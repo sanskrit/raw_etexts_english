@@ -13371,7 +13371,7 @@ depended on Hindu support ’.
 
 The machinations of one Asad Khan Lari, a wily courtier of 
 Ismail Shah, who had been sent to Vijayanagar to conclude a treaty, 
-led Krishnadeva into yet another campaign against Bijapur in 1 523. 
+led Krishnadeva into yet another campaign against Bijapur in 1 \523. 
 According to Asad Khan’s undertaking, the Adil Khan or his 
 mother would meet Krishnadeva at a certain point on the northern 
 frontier of the kingdom. As he did not find them, however, he 

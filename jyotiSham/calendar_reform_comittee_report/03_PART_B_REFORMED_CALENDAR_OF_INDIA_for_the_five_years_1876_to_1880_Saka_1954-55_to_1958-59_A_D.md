@@ -1483,7 +1483,7 @@ Tithi
 
 i 
 
-Naksatra 
+Nakṣatra 
 
 Ook English 
 
@@ -2315,7 +2315,7 @@ FOR SAKA ERA 1876 (1954-55 A.D.) . Dhanuḥ : Sahasya Ayanāṁsa on 18t=23° 13
 
 Tithi 
 
-Naksatra 
+Nakṣatra 
 
 Sun 
 
@@ -2805,7 +2805,7 @@ Kumbha : Tapasya Winter 2nd Month
 
 Tithi 
 
-Naksatra 
+Nakṣatra 
 
 Week English Long. of the 
 
@@ -3337,7 +3337,7 @@ Meṣa : Mādhava Spring 2nd Month
 
 Tithi 
 
-Naksatra 
+Nakṣatra 
 
 Week English 15 Day Date 
 
@@ -7243,7 +7243,7 @@ Ayanānisa on 1st=23° 15' 3"
 
 Tithi 
 
-Naksatra 
+Nakṣatra 
 
 Sud 
 
@@ -12803,7 +12803,7 @@ Vțścika : Sabas Hemanta 1st Month
 
 Tithi 
 
-Naksatra 
+Nakṣatra 
 
 Sun Rise 
 
@@ -18477,7 +18477,7 @@ of three years, when Jupiter remains in Kumbha rasi, Vrsa rasi, Simha rasi or Vr
 
 109 
 
-Tithis, Naksatras, Muhurtas and their Lords. 
+Tithis, Nakṣatras, Muhurtas and their Lords. 
 
 :: 
 

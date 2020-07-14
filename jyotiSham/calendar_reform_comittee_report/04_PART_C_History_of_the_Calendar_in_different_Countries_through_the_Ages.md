@@ -1939,7 +1939,7 @@ REFORT OF THE CALENDAR BEFORM COMMITTEE
 
 itt:1 1 1 1 1 
 
-nible 5.–Stars of the Naksatra divisions. 
+nible 5.–Stars of the Nakṣatra divisions. 
 
 Positions of the Junction Stars of Naksatta Divisions of the Siddhantas, 
 
@@ -10425,7 +10425,7 @@ stars of, 210, 211 Lunar year, beginning of, 220, 221 Lunation, duration of, 158
 
 length of, 164, 248 
 
-Nabu Nazir, 177 Naburiannu, 200 Nadir, 157 Någabhata, 257 Nahapana, 233 Naksatra,. average length of, 224 ; 
+Nabu Nazir, 177 Naburiannu, 200 Nadir, 157 Någabhata, 257 Nahapana, 233 Nakṣatra,. average length of, 224 ; 
 
 beginning of, 14, 229; calculation of (acc. to the recommenda 
 

@@ -1,5 +1,5 @@
 +++
-title = "The sixth cycle of samarAichcha kahA: a vaNijaxa0tradition"
+title = "The sixth cycle of samarAichcha kahA: a vaNija tradition"
 
 +++
 The jaina AchArya haribhadra sUri collected a series of old tales and

@@ -1,5 +1,5 @@
 +++
-title = "Āryabhaṭa and his sinexa0table"
+title = "Āryabhaṭa and his sine table"
 
 +++
 Everyone and his son have written about Āryabhaṭa and his sine table.

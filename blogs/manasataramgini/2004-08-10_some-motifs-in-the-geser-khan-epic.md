@@ -1,5 +1,5 @@
 +++
-title = "Some motifs in the Geser Khanxa0epic"
+title = "Some motifs in the Geser Khan epic"
 
 +++
 The Geser Khan Epic of the Turko-Mongols is one of the last frontiers of

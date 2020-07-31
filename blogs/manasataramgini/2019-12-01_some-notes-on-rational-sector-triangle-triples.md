@@ -1,5 +1,5 @@
 +++
-title = "Some notes on rational sector trianglexa0triples"
+title = "Some notes on rational sector triangle triples"
 
 +++
 **Rational points on a unit circle**  

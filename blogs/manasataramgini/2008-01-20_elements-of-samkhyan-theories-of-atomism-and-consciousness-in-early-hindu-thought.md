@@ -1,5 +1,5 @@
 +++
-title = "Elements of sAMkhyan theories of atomism and consciousness in early Hinduxa0thought"
+title = "Elements of sAMkhyan theories of atomism and consciousness in early Hindu thought"
 
 +++
 I was told by some pious modern Hindus attached to advaita thought that

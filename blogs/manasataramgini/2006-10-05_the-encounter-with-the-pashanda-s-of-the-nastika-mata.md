@@ -1,5 +1,5 @@
 +++
-title = "The encounter with the pAShaNDa-s of the nAstIkaxa0mata"
+title = "The encounter with the pAShaNDa-s of the nAstIka mata"
 
 +++
 With the due assent I decided to narrate the account of

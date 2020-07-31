@@ -1,5 +1,5 @@
 +++
-title = "Max Mueller: good, bad or a Malhotranxa0U-turner?"
+title = "Max Mueller: good, bad or a Malhotran U-turner?"
 
 +++
 It is common these days to find many Indians stating that Max Mueller

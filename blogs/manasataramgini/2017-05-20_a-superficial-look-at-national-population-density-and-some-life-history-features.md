@@ -1,5 +1,5 @@
 +++
-title = "A superficial look at national population density and some life historyxa0features"
+title = "A superficial look at national population density and some life history features"
 
 +++
 Over the years we have repeatedly checked out various collections of

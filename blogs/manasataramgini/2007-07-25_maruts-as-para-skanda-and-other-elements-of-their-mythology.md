@@ -1,5 +1,5 @@
 +++
-title = "maruts as \"para-skanda\" and other elements of theirxa0mythology"
+title = "maruts as \"para-skanda\" and other elements of their mythology"
 
 +++
 Many deities undergo drastic changes when they move across the

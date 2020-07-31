@@ -1,5 +1,5 @@
 +++
-title = "Human journeys, ascents andxa0descents"
+title = "Human journeys, ascents and descents"
 
 +++
 As we headed towards the bus-stand to take our homeward conveyance, we

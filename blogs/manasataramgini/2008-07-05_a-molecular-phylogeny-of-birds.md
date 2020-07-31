@@ -1,5 +1,5 @@
 +++
-title = "A molecular phylogeny ofxa0birds"
+title = "A molecular phylogeny of birds"
 
 +++
 While much progress has been made with respect to the paleontological

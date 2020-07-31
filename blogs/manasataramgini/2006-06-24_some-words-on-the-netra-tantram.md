@@ -1,5 +1,5 @@
 +++
-title = "Some words on the netraxa0tantraM"
+title = "Some words on the netra tantraM"
 
 +++
 tryambakaṃ yajāmahe sugandhiṃ puṣṭi vardhanam  

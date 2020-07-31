@@ -1,5 +1,5 @@
 +++
-title = "The tale of the two classes ofxa0vaNij-s"
+title = "The tale of the two classes of vaNij-s"
 
 +++
 It is with some trepidation that we discuss the vaNij-s for, belonging

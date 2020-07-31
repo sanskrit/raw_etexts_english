@@ -1,5 +1,5 @@
 +++
-title = "Some notes on Shahji and Sambhaji the brother ofxa0Shivaji-IV"
+title = "Some notes on Shahji and Sambhaji the brother of Shivaji-IV"
 
 +++
 Sambhaji and Shivaji break free  

@@ -1,5 +1,5 @@
 +++
-title = "The prelude toxa0Manas"
+title = "The prelude to Manas"
 
 +++
 From the time of the defeat of the Uighurs to the rise to the powerful

@@ -1,5 +1,5 @@
 +++
-title = "The roots of Vaiṣṇavam: a view from the numerology of Vedicxa0texts"
+title = "The roots of Vaiṣṇavam: a view from the numerology of Vedic texts"
 
 +++
 While glorified with a 1000 names in the famous stotra of the early

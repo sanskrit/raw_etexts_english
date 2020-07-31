@@ -1,5 +1,5 @@
 +++
-title = "The realm ofxa0indra"
+title = "The realm of indra"
 
 +++
 A version of this article was published earlier at [India

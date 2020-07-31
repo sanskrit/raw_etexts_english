@@ -1,5 +1,5 @@
 +++
-title = "Hayastanika, sAMkhya, Platoxa0etc."
+title = "Hayastanika, sAMkhya, Plato etc."
 
 +++
 Hayastanika is known as sarvapriyA and mahAsurApipAnA. Thus, we mused

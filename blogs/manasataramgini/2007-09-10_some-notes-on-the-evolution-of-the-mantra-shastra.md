@@ -1,5 +1,5 @@
 +++
-title = "Some notes on the evolution of the mantraxa0shAstra"
+title = "Some notes on the evolution of the mantra shAstra"
 
 +++
 A hall mark feature of the Hindu tradition right from its

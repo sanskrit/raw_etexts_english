@@ -1,5 +1,5 @@
 +++
-title = "A killer spermxa0whale"
+title = "A killer sperm whale"
 
 +++
 [![](https://i0.wp.com/lh4.ggpht.com/_hjuA1bE0hBw/TDGAv8o7N8I/AAAAAAAABgc/qr97ls86PVE/s800/leviathan.jpg)](http://picasaweb.google.com/lh/photo/47q0PBOVQYA83-aDRhEdEQ?feat=embedwebsite)*A

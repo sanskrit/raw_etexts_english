@@ -1,5 +1,5 @@
 +++
-title = "The reign of Ramaraya and the battle ofxa0Talikota."
+title = "The reign of Ramaraya and the battle of Talikota."
 
 +++
 One of the most fateful events in Hindu history was the battle of

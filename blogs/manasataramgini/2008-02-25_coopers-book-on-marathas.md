@@ -1,5 +1,5 @@
 +++
-title = "Cooper’s book onxa0Marathas"
+title = "Cooper’s book on Marathas"
 
 +++
 Randolf Cooper is one of the few white historians to reconsider the

@@ -1,5 +1,5 @@
 +++
-title = "Three enigmatic vedicxa0tales"
+title = "Three enigmatic vedic tales"
 
 +++
 [![](https://i0.wp.com/bp3.blogger.com/_ZhvcTTaaD_4/RdAbBu8rbrI/AAAAAAAAADQ/tcBoYZm5q8c/s320/mythic_network.jpg)](http://bp3.blogger.com/_ZhvcTTaaD_4/RdAbBu8rbrI/AAAAAAAAADQ/tcBoYZm5q8c/s1600-h/mythic_network.jpg)

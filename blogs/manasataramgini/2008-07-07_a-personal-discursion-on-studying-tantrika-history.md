@@ -1,5 +1,5 @@
 +++
-title = "A personal discursion on studying tAntrikaxa0history"
+title = "A personal discursion on studying tAntrika history"
 
 +++
 For some reason I was prompted to put down these useless words after an

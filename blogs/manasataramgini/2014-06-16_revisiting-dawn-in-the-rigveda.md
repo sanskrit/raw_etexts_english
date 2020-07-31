@@ -1,5 +1,5 @@
 +++
-title = "Revisiting dawn in thexa0R^igveda"
+title = "Revisiting dawn in the R^igveda"
 
 +++
 One of the most physically and mentally demanding performances in the

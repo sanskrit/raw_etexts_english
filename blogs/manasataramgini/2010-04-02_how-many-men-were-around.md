@@ -1,5 +1,5 @@
 +++
-title = "How many men werexa0around?"
+title = "How many men were around?"
 
 +++
 A few years back we had a dispatch on the evolution of the great apes of

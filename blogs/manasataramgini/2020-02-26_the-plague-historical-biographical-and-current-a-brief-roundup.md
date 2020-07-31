@@ -1,5 +1,5 @@
 +++
-title = "The Plague: historical, biographical and current: a briefxa0roundup"
+title = "The Plague: historical, biographical and current: a brief roundup"
 
 +++
 Globalization is not a new thing. The Indo-European empire of the

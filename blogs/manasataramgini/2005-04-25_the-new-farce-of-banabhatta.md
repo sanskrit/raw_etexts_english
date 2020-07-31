@@ -1,5 +1,5 @@
 +++
-title = "The new farce ofxa0baNabhatta"
+title = "The new farce of baNabhatta"
 
 +++
 bANa had just written a new play and was showing it to rAja harSha.

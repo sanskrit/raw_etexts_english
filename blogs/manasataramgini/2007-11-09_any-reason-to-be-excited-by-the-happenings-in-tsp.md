@@ -1,5 +1,5 @@
 +++
-title = "Any reason to be excited by the happenings inxa0TSP"
+title = "Any reason to be excited by the happenings in TSP"
 
 +++
 Many bhAratas have expressed excitement over the events in the terrorist

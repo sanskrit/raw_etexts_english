@@ -1,5 +1,5 @@
 +++
-title = "The vaishvadeva riddle ofxa0manu"
+title = "The vaishvadeva riddle of manu"
 
 +++
 In 8th maNDala of the R^igveda there is famous vaishvadeva riddle of

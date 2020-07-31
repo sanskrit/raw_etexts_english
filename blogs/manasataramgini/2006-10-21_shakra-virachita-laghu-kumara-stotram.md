@@ -1,5 +1,5 @@
 +++
-title = "shakra virachita laghu kumAraxa0stotraM"
+title = "shakra virachita laghu kumAra stotraM"
 
 +++
 laghu kumAra stotrasya shatakratuH R^iShiH | anuShTup ChandaH | skando

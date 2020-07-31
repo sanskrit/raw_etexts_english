@@ -1,5 +1,5 @@
 +++
-title = "The rise ofxa0tyrannosaurs"
+title = "The rise of tyrannosaurs"
 
 +++
 [![](https://i0.wp.com/photos1.blogger.com/blogger/2010/410/320/guanlong.0.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/guanlong.0.jpg)[![](https://i0.wp.com/photos1.blogger.com/blogger/2010/410/320/Dilong.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/Dilong.jpg)

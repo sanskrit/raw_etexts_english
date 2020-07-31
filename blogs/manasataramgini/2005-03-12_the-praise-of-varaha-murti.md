@@ -1,5 +1,5 @@
 +++
-title = "The praise of varAhaxa0mUrtI"
+title = "The praise of varAha mUrtI"
 
 +++
 daMShTrAyAM vasudhA sashaila-nagarAraNyApagA huMkR^itau vAgIshI

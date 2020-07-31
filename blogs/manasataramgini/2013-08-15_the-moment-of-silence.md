@@ -1,5 +1,5 @@
 +++
-title = "The moment ofxa0silence"
+title = "The moment of silence"
 
 +++
 In the days long past, when we were still young, we did not like the

@@ -1,5 +1,5 @@
 +++
-title = "A brief note on animal heads, Celtic human sacrifice, and Indo-Europeanxa0tradition"
+title = "A brief note on animal heads, Celtic human sacrifice, and Indo-European tradition"
 
 +++
 Our illustrious ancestor Dadhyaṅc Ātharvaṇa is supposed to have

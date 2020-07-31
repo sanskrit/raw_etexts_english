@@ -1,5 +1,5 @@
 +++
-title = "Some notes on the dispersion of thexa0kaumAra-shAsana"
+title = "Some notes on the dispersion of the kaumAra-shAsana"
 
 +++
 In the early 1900s the English archaeologist John Marshall began

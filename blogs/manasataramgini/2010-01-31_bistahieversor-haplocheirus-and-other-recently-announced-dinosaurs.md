@@ -1,5 +1,5 @@
 +++
-title = "Bistahieversor, Haplocheirus and other recently announcedxa0dinosaurs"
+title = "Bistahieversor, Haplocheirus and other recently announced dinosaurs"
 
 +++
 ***Bistahieversor:*** A recent publication by Carr and Williamson

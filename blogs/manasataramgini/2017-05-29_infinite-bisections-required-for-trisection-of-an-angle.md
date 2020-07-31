@@ -1,5 +1,5 @@
 +++
-title = "Infinite bisections required for trisection of anxa0angle"
+title = "Infinite bisections required for trisection of an angle"
 
 +++
 ![sum\_series\_1by2\_equal\_1by3](https://manasataramgini.files.wordpress.com/2017/05/sum_series_1by2_equal_1by3.png?w=640)

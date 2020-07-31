@@ -1,5 +1,5 @@
 +++
-title = "The Mandel-diamond: crystals emerge from an amorphousxa0background"
+title = "The Mandel-diamond: crystals emerge from an amorphous background"
 
 +++
 [![](https://lh6.googleusercontent.com/-3eblxZAP_5I/VDYt3_NAzMI/AAAAAAAADII/sM0bopBo8K8/s800/mandel_diamond.jpg)](https://picasaweb.google.com/lh/photo/fZjuF6xKNFWm1HYm9hNXudMTjNZETYmyPJy0liipFm0?feat=embedwebsite)

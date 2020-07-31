@@ -1,5 +1,5 @@
 +++
-title = "Divergence in the constraining motifs of the gAyatri: kANvas andxa0others"
+title = "Divergence in the constraining motifs of the gAyatri: kANvas and others"
 
 +++
 The vedic gAyatrI meter is constructed as per the following rules:  

@@ -1,5 +1,5 @@
 +++
-title = "Some notes on the tantra-rAjaxa0tantra"
+title = "Some notes on the tantra-rAja tantra"
 
 +++
 The tantra-rAja is a key shrI-kula tantra that forms the basis for many

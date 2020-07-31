@@ -1,5 +1,5 @@
 +++
-title = "Retrospections on the curtain-raiser to the long past Great Warxa01"
+title = "Retrospections on the curtain-raiser to the long past Great War 1"
 
 +++
 It was a year before the great abhichAra of dashAnta had struck us. We

@@ -1,5 +1,5 @@
 +++
-title = "The bird’s call and otherxa0issues"
+title = "The bird’s call and other issues"
 
 +++
 The songs and the calls of the only surviving dinosaurs around us range

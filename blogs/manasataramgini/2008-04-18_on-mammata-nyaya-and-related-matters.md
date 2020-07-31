@@ -1,5 +1,5 @@
 +++
-title = "On mammaTa, nyAya and relatedxa0matters"
+title = "On mammaTa, nyAya and related matters"
 
 +++
 The Kashmirian efflorescence was a remarkable, even if a brief phase, in

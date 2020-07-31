@@ -1,5 +1,5 @@
 +++
-title = "The sarpasattra: vedic andxa0aitihasic."
+title = "The sarpasattra: vedic and aitihasic."
 
 +++
 The sarpasattra as per the itihAsa was the gory sacrifice of janamejaya

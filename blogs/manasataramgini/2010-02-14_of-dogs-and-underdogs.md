@@ -1,5 +1,5 @@
 +++
-title = "Of dogs andxa0underdogs"
+title = "Of dogs and underdogs"
 
 +++
 While being hemmed in by the hima pralaya we spoke to the va\~Nga

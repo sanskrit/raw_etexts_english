@@ -1,5 +1,5 @@
 +++
-title = "trayodasha-prAkArIya pa~nchadashi kaumAraxa0chakra"
+title = "trayodasha-prAkArIya pa~nchadashi kaumAra chakra"
 
 +++
 [![](https://i0.wp.com/lh6.ggpht.com/_hjuA1bE0hBw/TA85M-TXh6I/AAAAAAAABew/8a8_DDxiXOY/s400/g3130.png)](http://picasaweb.google.com/lh/photo/zWapZuPB3500eIc-4ziMDw?feat=embedwebsite)

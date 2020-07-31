@@ -1,5 +1,5 @@
 +++
-title = "The shaiva cult in the tamilxa0country"
+title = "The shaiva cult in the tamil country"
 
 +++
 The rise of shaiva thought in the draviDa country was a milestone in the

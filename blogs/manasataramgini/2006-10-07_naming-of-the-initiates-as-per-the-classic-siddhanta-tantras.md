@@ -1,5 +1,5 @@
 +++
-title = "naming of the initiates as per the classic siddhAntaxa0tantras"
+title = "naming of the initiates as per the classic siddhAnta tantras"
 
 +++
 The siddhAnta tantrics receive their names as per a fixed procedure:

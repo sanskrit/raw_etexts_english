@@ -1,5 +1,5 @@
 +++
-title = "Some thoughts on medieval Sanskrit authors amongst ourxa0co-ethnics"
+title = "Some thoughts on medieval Sanskrit authors amongst our co-ethnics"
 
 +++
 Our co-ethnics represent one of the last great waves of brahminical

@@ -1,5 +1,5 @@
 +++
-title = "The code of the aShTAkSharIxa0vidyA"
+title = "The code of the aShTAkSharI vidyA"
 
 +++
 It is well-known that the atharva vedic tradition provides the vidhi for

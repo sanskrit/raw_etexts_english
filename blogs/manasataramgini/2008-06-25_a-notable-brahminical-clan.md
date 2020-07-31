@@ -1,5 +1,5 @@
 +++
-title = "A notable brAhminicalxa0clan"
+title = "A notable brAhminical clan"
 
 +++
 Some research into the brAhmaNa-s of the drAviDa country of the vaDama

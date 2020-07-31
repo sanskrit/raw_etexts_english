@@ -1,5 +1,5 @@
 +++
-title = "On the samarA~NgaNa sUtradhAra:xa0yantra-s"
+title = "On the samarA~NgaNa sUtradhAra: yantra-s"
 
 +++
 The vimAna has been noticed by many since the publication of the

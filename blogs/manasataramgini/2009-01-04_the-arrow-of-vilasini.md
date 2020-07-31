@@ -1,5 +1,5 @@
 +++
-title = "The arrow ofxa0vilAsinI"
+title = "The arrow of vilAsinI"
 
 +++
 It was just before dashAnta. We were on the brink of shaking off the

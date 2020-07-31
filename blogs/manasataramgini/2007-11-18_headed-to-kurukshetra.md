@@ -1,5 +1,5 @@
 +++
-title = "Headed to kurukShetraxa0?"
+title = "Headed to kurukShetra ?"
 
 +++
 We made arrangements for our rendezvous with ST and ekanetra. Both

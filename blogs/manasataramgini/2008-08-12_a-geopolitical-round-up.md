@@ -1,5 +1,5 @@
 +++
-title = "A geopolitical roundxa0up"
+title = "A geopolitical round up"
 
 +++
 An elderly white American Hindu activist was going to a temple. On the

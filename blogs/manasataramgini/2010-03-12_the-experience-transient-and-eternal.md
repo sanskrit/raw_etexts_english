@@ -1,5 +1,5 @@
 +++
-title = "The experience: transient andxa0eternal"
+title = "The experience: transient and eternal"
 
 +++
 Having reached the ford I called on indra for aid and also that great

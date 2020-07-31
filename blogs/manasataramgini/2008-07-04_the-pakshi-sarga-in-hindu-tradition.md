@@ -1,5 +1,5 @@
 +++
-title = "The pakShi sarga in Hinduxa0tradition"
+title = "The pakShi sarga in Hindu tradition"
 
 +++
 [![Figure 1](https://manasataramgini.files.wordpress.com/2008/07/pakshi_evolution.jpg?w=300&h=174)](https://manasataramgini.files.wordpress.com/2008/07/pakshi_evolution.jpg)

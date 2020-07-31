@@ -1,5 +1,5 @@
 +++
-title = "Some musings on the aushanasa adbhutAnI and itsxa0deities"
+title = "Some musings on the aushanasa adbhutAnI and its deities"
 
 +++
 The work on omens attributed to ushanA kAvya the bhArgava (narrated by

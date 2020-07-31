@@ -1,5 +1,5 @@
 +++
-title = "A geopolitical package: Julyxa02016"
+title = "A geopolitical package: July 2016"
 
 +++
 One often hears of the tale of Śivājī and his men killing the gigantic

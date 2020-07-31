@@ -1,5 +1,5 @@
 +++
-title = "Translating an ancient mantra: R^igvedaxa02.34.09"
+title = "Translating an ancient mantra: R^igveda 2.34.09"
 
 +++
 Sometimes translating even a single vaidika mantra can take some effort.

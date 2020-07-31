@@ -1,5 +1,5 @@
 +++
-title = "Indus iconography and itsxa0parallels"
+title = "Indus iconography and its parallels"
 
 +++
 As Thomas McEvilley pointed out there are numerous connections between

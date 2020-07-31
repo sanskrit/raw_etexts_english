@@ -1,5 +1,5 @@
 +++
-title = "The bhR^igu-s, the country and the nationalxa0epic"
+title = "The bhR^igu-s, the country and the national epic"
 
 +++
 The imprint of the bhR^igu-s is not just all over the literature of

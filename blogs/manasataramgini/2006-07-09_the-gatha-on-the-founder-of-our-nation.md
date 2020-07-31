@@ -1,5 +1,5 @@
 +++
-title = "The gAtha on the founder of ourxa0nation"
+title = "The gAtha on the founder of our nation"
 
 +++
 hiraNyena pArivR^itAn kR^iShNA\~n Chukladato mR^igAn |  

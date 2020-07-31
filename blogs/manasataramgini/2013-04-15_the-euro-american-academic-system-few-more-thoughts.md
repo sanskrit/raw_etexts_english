@@ -1,5 +1,5 @@
 +++
-title = "The Euro-American academic system: few morexa0thoughts"
+title = "The Euro-American academic system: few more thoughts"
 
 +++
 [The neglect of human

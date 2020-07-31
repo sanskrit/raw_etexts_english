@@ -1,5 +1,5 @@
 +++
-title = "Mongolica: Knowledge preservation and generation, Bolad Aqa and thexa0like"
+title = "Mongolica: Knowledge preservation and generation, Bolad Aqa and the like"
 
 +++
 We had earlier written [an

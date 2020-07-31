@@ -1,5 +1,5 @@
 +++
-title = "The indrajAla-sUktaM and the atharvan militaryxa0ritual"
+title = "The indrajAla-sUktaM and the atharvan military ritual"
 
 +++
 An atharvan military ritual for kShatriya-s headed to war involves

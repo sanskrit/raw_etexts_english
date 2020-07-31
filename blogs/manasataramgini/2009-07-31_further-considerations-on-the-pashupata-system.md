@@ -1,5 +1,5 @@
 +++
-title = "Further considerations on the pAshupataxa0system"
+title = "Further considerations on the pAshupata system"
 
 +++
 Though it is at the foundation of all the shaiva systems that survive to

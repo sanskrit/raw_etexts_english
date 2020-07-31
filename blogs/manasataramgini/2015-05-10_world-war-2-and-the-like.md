@@ -1,5 +1,5 @@
 +++
-title = "World War 2 and thexa0like"
+title = "World War 2 and the like"
 
 +++
 Right away we should state that there is going to be some dilation –

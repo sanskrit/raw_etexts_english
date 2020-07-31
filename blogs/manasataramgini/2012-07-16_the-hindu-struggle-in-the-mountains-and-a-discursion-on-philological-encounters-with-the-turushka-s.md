@@ -1,5 +1,5 @@
 +++
-title = "The Hindu struggle in the mountains and a discursion on philological encounters with thexa0turuShka-s"
+title = "The Hindu struggle in the mountains and a discursion on philological encounters with the turuShka-s"
 
 +++
 Sometime after Bhairappa, a noted writer among the karNATa-s, published

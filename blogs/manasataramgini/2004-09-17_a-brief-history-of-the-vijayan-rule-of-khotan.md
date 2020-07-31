@@ -1,5 +1,5 @@
 +++
-title = "A brief history of the Vijayan rule ofxa0Khotan"
+title = "A brief history of the Vijayan rule of Khotan"
 
 +++
 Nilakantha Shastri brings attention to the Indian rulers of Khotan and

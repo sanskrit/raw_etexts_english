@@ -1,5 +1,5 @@
 +++
-title = "The evolution ofxa0Cats"
+title = "The evolution of Cats"
 
 +++
 The classical felid or the Neofelid lineage appears first in the fossil

@@ -1,5 +1,5 @@
 +++
-title = "The mantra saMhitA of the devIxa0purANa"
+title = "The mantra saMhitA of the devI purANa"
 
 +++
 The devI purANa is one of the several dedicated shAktA purANa-s such as

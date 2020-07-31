@@ -1,5 +1,5 @@
 +++
-title = "The broken chain and the chain ofxa0knowledge"
+title = "The broken chain and the chain of knowledge"
 
 +++
 In the city of shAhjI he lay dead on the litter. His yaj\~napAtra-s were

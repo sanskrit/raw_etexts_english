@@ -1,5 +1,5 @@
 +++
-title = "The split forces and thexa0pralApa"
+title = "The split forces and the pralApa"
 
 +++
 The muni and me were in a sense like branches of the same tree. We

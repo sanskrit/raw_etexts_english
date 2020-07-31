@@ -1,5 +1,5 @@
 +++
-title = "On biodiversity of Indians: the storyxa0again"
+title = "On biodiversity of Indians: the story again"
 
 +++
 ![world\_races](https://manasataramgini.files.wordpress.com/2009/07/world_races.jpg?w=640

@@ -1,5 +1,5 @@
 +++
-title = "Strange and frighteningxa0conversation"
+title = "Strange and frightening conversation"
 
 +++
 I received a call and we set off for the evening. The women-folk wanted

@@ -1,5 +1,5 @@
 +++
-title = "Did Wallace completely understandxa0evolution?"
+title = "Did Wallace completely understand evolution?"
 
 +++
 At the outset I must present the disclaimer that I am no scholar of the

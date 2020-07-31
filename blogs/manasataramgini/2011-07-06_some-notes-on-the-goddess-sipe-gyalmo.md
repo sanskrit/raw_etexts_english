@@ -1,5 +1,5 @@
 +++
-title = "Some notes on the goddess Sipexa0Gyalmo"
+title = "Some notes on the goddess Sipe Gyalmo"
 
 +++
 A translation of the tAntrika stotra to Sipe Gyalmo from the Tibetan

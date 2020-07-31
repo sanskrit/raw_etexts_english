@@ -1,5 +1,5 @@
 +++
-title = "Some notes of the ShaTsAhasraxa0tradition"
+title = "Some notes of the ShaTsAhasra tradition"
 
 +++
 [![](https://i0.wp.com/photos1.blogger.com/blogger/2010/410/320/vAgIshvarI.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/vAgIshvarI.jpg)

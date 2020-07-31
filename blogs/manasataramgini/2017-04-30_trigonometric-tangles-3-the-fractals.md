@@ -1,5 +1,5 @@
 +++
-title = "Trigonometric tangles-3: thexa0fractals"
+title = "Trigonometric tangles-3: the fractals"
 
 +++
 See also:

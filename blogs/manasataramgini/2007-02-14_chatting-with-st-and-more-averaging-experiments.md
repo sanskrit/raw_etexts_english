@@ -1,5 +1,5 @@
 +++
-title = "Chatting with ST and more averagingxa0experiments"
+title = "Chatting with ST and more averaging experiments"
 
 +++
 [![](https://i0.wp.com/bp0.blogger.com/_ZhvcTTaaD_4/RdJ7Ye8rbtI/AAAAAAAAADk/RSlTORihyME/s320/madhyA_clean.jpg)](http://bp0.blogger.com/_ZhvcTTaaD_4/RdJ7Ye8rbtI/AAAAAAAAADk/RSlTORihyME/s1600-h/madhyA_clean.jpg)[![](https://i0.wp.com/bp0.blogger.com/_ZhvcTTaaD_4/RdJ7Re8rbsI/AAAAAAAAADc/3lsuU-cDX4A/s320/madhyA_bindu_clean.jpg)](http://bp0.blogger.com/_ZhvcTTaaD_4/RdJ7Re8rbsI/AAAAAAAAADc/3lsuU-cDX4A/s1600-h/madhyA_bindu_clean.jpg)

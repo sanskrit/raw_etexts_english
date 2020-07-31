@@ -1,5 +1,5 @@
 +++
-title = "The 800th anniversary of the great khuriltai ofxa01206"
+title = "The 800th anniversary of the great khuriltai of 1206"
 
 +++
 It was the year of the Tiger (1206 CE). At the head waters of the Onon

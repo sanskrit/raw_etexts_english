@@ -1,5 +1,5 @@
 +++
-title = "The amazonian banana republic: the strī-rājya in Hinduxa0tradition"
+title = "The amazonian banana republic: the strī-rājya in Hindu tradition"
 
 +++
 ![amazon\_2](https://manasataramgini.files.wordpress.com/2018/05/amazon_2.jpg?w=640)

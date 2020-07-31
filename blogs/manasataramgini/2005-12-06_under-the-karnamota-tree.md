@@ -1,5 +1,5 @@
 +++
-title = "Under the karNamoTAxa0tree"
+title = "Under the karNamoTA tree"
 
 +++
 We walked up the path of the hill of the vAnara, when the dasyus were

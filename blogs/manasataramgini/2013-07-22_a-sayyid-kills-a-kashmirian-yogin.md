@@ -1,5 +1,5 @@
 +++
-title = "A Sayyid kills a Kashmirianxa0yogin"
+title = "A Sayyid kills a Kashmirian yogin"
 
 +++
 The Kashmirian brAhmaNa jonarAja wrote a rAjataraMgiNi describing the

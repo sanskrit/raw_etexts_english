@@ -1,5 +1,5 @@
 +++
-title = "The blight ofxa0Monotheism"
+title = "The blight of Monotheism"
 
 +++
 Moving out of the frustration from the futile discussion on the thermal

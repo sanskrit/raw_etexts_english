@@ -1,5 +1,5 @@
 +++
-title = "Paper folding, Sundara Rao and geometricalxa0constructions"
+title = "Paper folding, Sundara Rao and geometrical constructions"
 
 +++
 Paper folding, which we shall hereinafter refer to as origami without

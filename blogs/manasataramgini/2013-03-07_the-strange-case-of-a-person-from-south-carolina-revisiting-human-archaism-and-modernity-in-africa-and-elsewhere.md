@@ -1,5 +1,5 @@
 +++
-title = "The strange case of a person from South Carolina: Revisiting human archaism and modernity in Africa andxa0elsewhere"
+title = "The strange case of a person from South Carolina: Revisiting human archaism and modernity in Africa and elsewhere"
 
 +++
 It was in the year yuvan, which we were passing through for the first

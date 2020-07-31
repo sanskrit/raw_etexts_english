@@ -1,5 +1,5 @@
 +++
-title = "The chakras ofxa0viShNu"
+title = "The chakras of viShNu"
 
 +++
 [![](https://i0.wp.com/photos1.blogger.com/blogger/2010/410/320/sudarshana.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/sudarshana.jpg)

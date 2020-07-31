@@ -1,5 +1,5 @@
 +++
-title = "The master ofxa0viliste~NgA"
+title = "The master of viliste~NgA"
 
 +++
 One who is in the grip of the vidyA-s of the dreaded dhUmAvatI and

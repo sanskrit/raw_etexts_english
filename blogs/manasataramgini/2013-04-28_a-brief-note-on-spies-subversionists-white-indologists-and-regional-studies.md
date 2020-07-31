@@ -1,5 +1,5 @@
 +++
-title = "A brief note on spies, subversionists, white indologists and “regionalxa0studies”"
+title = "A brief note on spies, subversionists, white indologists and “regional studies”"
 
 +++
 While today the US, as the leader of the leukosphere, is renowned for

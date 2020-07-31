@@ -1,5 +1,5 @@
 +++
-title = "Su-lu Khan’s heroic struggle against the army ofxa0Islam"
+title = "Su-lu Khan’s heroic struggle against the army of Islam"
 
 +++
 When one glances at the map of central Asia one sees Samarqand, Khorezm,

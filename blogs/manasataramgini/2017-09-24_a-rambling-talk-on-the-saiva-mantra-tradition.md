@@ -1,5 +1,5 @@
 +++
-title = "A rambling talk on the śaiva mantraxa0tradition"
+title = "A rambling talk on the śaiva mantra tradition"
 
 +++
 A rambling talk we had given on the śaiva tradition. Talking is easier

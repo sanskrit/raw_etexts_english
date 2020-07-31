@@ -1,5 +1,5 @@
 +++
-title = "Some wild geo-politicalxa0speculation."
+title = "Some wild geo-political speculation."
 
 +++
 I heard that a learned American political theorist had pronounced a

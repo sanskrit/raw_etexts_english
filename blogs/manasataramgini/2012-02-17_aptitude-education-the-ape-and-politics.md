@@ -1,5 +1,5 @@
 +++
-title = "Aptitude, education, the ape andxa0politics"
+title = "Aptitude, education, the ape and politics"
 
 +++
 The yogin experiences, but at the height of his practice there is

@@ -1,5 +1,5 @@
 +++
-title = "The scope of shivAjI’s plan ofxa0svarAjya"
+title = "The scope of shivAjI’s plan of svarAjya"
 
 +++
 dADhi ke rakhaiyan kI DADhi sI rahati cHAti bADhI marjAda jasa hadda

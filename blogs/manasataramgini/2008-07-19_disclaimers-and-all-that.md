@@ -1,5 +1,5 @@
 +++
-title = "Disclaimers and allxa0that"
+title = "Disclaimers and all that"
 
 +++
 I never knew I would end up writing something like this on my own pages.

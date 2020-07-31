@@ -1,5 +1,5 @@
 +++
-title = "Intellectual cretinism ofxa0Hindus"
+title = "Intellectual cretinism of Hindus"
 
 +++
 Intellectual cretinism is a prevalent trend amongst the Hindu elite. The

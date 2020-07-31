@@ -1,5 +1,5 @@
 +++
-title = "devarAja stava or the devadeveshvaraxa0stava"
+title = "devarAja stava or the devadeveshvara stava"
 
 +++
 [![](https://i0.wp.com/bp1.blogger.com/_ZhvcTTaaD_4/RbW6dy6_e0I/AAAAAAAAABg/idxmMbwdBTk/s320/indra.jpg)](http://bp1.blogger.com/_ZhvcTTaaD_4/RbW6dy6_e0I/AAAAAAAAABg/idxmMbwdBTk/s1600-h/indra.jpg)

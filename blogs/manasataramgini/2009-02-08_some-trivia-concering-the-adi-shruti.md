@@ -1,5 +1,5 @@
 +++
-title = "Some trivia concering thexa0Adi-shruti"
+title = "Some trivia concering the Adi-shruti"
 
 +++
 Students of the veda often question each other on trivia to test their

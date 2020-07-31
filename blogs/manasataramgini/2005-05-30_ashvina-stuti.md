@@ -213,7 +213,7 @@ The embryo has been taken through the mouth, oh youths impel this one
 who has expired to obtain \[his station\]. The mother, eater of the
 embryo, has brought it out (5); Oh ashvins release me and bring to life.
 
-**Notes**
+## Notes
 
 (1) 360 cows are the days of the year giving birth to the calf, the sun.
 The allegory here is thus: At the end of 360 days, the year, the sun has

@@ -1,5 +1,5 @@
 +++
-title = "Notes on hayagrIva siddhi among thexa0nAstika-s"
+title = "Notes on hayagrIva siddhi among the nAstika-s"
 
 +++
 While most extant mantravAdin-s practicing pA\~ncharAtrika apotropaic

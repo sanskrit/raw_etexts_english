@@ -1,5 +1,5 @@
 +++
-title = "Actions of the vairi-sxa02"
+title = "Actions of the vairi-s 2"
 
 +++
 Yesterday, the grAhin, which had been kept at bay for a day came back to

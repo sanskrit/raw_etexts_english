@@ -1,5 +1,5 @@
 +++
-title = "jAtavedase… and shredhIxa0vyavahAra"
+title = "jAtavedase… and shredhI vyavahAra"
 
 +++
 The hymn RV 1.99 is a peculiar hymn in many ways:

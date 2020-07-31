@@ -1,5 +1,5 @@
 +++
-title = "Hofstadter and Nārāyaṇa: connections across space andxa0time"
+title = "Hofstadter and Nārāyaṇa: connections across space and time"
 
 +++
 The scientist-philosopher Douglas Hofstadter presents an interesting

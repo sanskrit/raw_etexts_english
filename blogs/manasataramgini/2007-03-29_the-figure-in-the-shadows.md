@@ -1,5 +1,5 @@
 +++
-title = "The figure in thexa0shadows"
+title = "The figure in the shadows"
 
 +++
 After the futile battle of khANDava, which to us was like the decline

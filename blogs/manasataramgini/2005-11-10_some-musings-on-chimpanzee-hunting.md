@@ -1,5 +1,5 @@
 +++
-title = "Some musings on chimpanzeexa0hunting"
+title = "Some musings on chimpanzee hunting"
 
 +++
 Like the human ape the chimpanzee is a predatory great ape. We saw a

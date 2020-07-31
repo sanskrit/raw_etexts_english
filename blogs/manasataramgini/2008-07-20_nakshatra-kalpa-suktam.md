@@ -1,5 +1,5 @@
 +++
-title = "atharva-vedIya nakShatra kalpaxa0sUktaM"
+title = "atharva-vedIya nakShatra kalpa sUktaM"
 
 +++
 Below are the nakShatreShTi mantra-s of the atharvanic tradition. We use

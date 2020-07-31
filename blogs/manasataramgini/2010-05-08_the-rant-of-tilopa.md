@@ -1,5 +1,5 @@
 +++
-title = "The rant ofxa0tilopA"
+title = "The rant of tilopA"
 
 +++
 The nAstika tilopA from the va\~Nga country is highly regarded among

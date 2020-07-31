@@ -1,5 +1,5 @@
 +++
-title = "Some notes on Shahji and Sambhaji the brother ofxa0Shivaji-III"
+title = "Some notes on Shahji and Sambhaji the brother of Shivaji-III"
 
 +++
 Mustafa Khan’s invasions  

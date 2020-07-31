@@ -1,5 +1,5 @@
 +++
-title = "The battle with thexa0grAhin-s"
+title = "The battle with the grAhin-s"
 
 +++
 The return to the mantra of skanda suppressed the second grAhin. The

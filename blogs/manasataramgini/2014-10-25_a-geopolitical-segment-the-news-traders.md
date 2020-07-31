@@ -1,5 +1,5 @@
 +++
-title = "A geopolitical segment: thexa0news-traders"
+title = "A geopolitical segment: the news-traders"
 
 +++
 We have earlier proposed on these pages the postulates of the [first

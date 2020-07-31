@@ -1,5 +1,5 @@
 +++
-title = "Some philological considerations on Indic transmissions to Uighurs andxa0Mongols"
+title = "Some philological considerations on Indic transmissions to Uighurs and Mongols"
 
 +++
 The vaiShNava had brought my attention to a fragment of a text on vArAhI

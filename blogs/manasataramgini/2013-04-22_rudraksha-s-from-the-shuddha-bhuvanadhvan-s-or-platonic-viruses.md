@@ -1,5 +1,5 @@
 +++
-title = "rudrAkSha-s from the shuddha-bhuvanAdhvan-s or Platonicxa0viruses"
+title = "rudrAkSha-s from the shuddha-bhuvanAdhvan-s or Platonic viruses"
 
 +++
 Based on the Icosahedron mated with the Mandelbulb of power 8

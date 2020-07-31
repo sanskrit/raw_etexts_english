@@ -1,5 +1,5 @@
 +++
-title = "The temple of nature by Erasmusxa0Darwin"
+title = "The temple of nature by Erasmus Darwin"
 
 +++
 The grandfather of Charles wrote the following poem, which might be

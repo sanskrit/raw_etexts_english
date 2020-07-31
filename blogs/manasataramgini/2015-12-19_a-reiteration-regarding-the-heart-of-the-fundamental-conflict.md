@@ -1,5 +1,5 @@
 +++
-title = "A reiteration regarding the heart of the fundamentalxa0conflict"
+title = "A reiteration regarding the heart of the fundamental conflict"
 
 +++
 We are somewhat zealous in recycling unused bits of writing lending a

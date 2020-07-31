@@ -1,5 +1,5 @@
 +++
-title = "An apparition ofxa0Mordell"
+title = "An apparition of Mordell"
 
 +++
 Consider the equation:

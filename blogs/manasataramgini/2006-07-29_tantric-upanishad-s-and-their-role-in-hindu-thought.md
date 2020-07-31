@@ -1,5 +1,5 @@
 +++
-title = "“Tantric” upaniShad-s and their role in Hinduxa0thought"
+title = "“Tantric” upaniShad-s and their role in Hindu thought"
 
 +++
 The point of origin of the later sectarian upaniShads is unclear. It

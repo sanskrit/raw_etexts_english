@@ -1,5 +1,5 @@
 +++
-title = "A note on the asterisms forming thexa0nakṣatra-s"
+title = "A note on the asterisms forming the nakṣatra-s"
 
 +++
 In Hindu tradition the ecliptic is divided into 27 parts of

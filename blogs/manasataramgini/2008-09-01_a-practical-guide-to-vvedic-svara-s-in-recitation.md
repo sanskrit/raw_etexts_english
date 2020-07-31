@@ -1,5 +1,5 @@
 +++
-title = "A practical guide to Vedic svara-s inxa0recitation"
+title = "A practical guide to Vedic svara-s in recitation"
 
 +++
 Due to multiple requests we decided to entirely redo and update our

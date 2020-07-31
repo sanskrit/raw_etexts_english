@@ -1,5 +1,5 @@
 +++
-title = "The mantra-s of the kapAla-DAmarIya-s and the earlyxa0mantra-mArga"
+title = "The mantra-s of the kapAla-DAmarIya-s and the early mantra-mArga"
 
 +++
 The tenth paTala of the guhyakAlI khaNDa of the great mahAkAla-saMhitA

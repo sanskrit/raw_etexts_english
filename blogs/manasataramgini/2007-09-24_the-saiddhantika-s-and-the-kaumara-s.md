@@ -1,5 +1,5 @@
 +++
-title = "The saiddhAntika-s and thexa0kaumara-s"
+title = "The saiddhAntika-s and the kaumara-s"
 
 +++
 I was examining a kaumAra manual used by priests from Kilmangalam (a

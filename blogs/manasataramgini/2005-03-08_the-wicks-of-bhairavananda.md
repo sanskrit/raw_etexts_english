@@ -1,5 +1,5 @@
 +++
-title = "The wicks ofxa0bhairavAnanda"
+title = "The wicks of bhairavAnanda"
 
 +++
 Having worshipped krodhabhairava and offered his arghya to

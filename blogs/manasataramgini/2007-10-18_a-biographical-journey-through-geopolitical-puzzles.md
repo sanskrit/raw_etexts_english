@@ -1,5 +1,5 @@
 +++
-title = "A biographical journey through geopoliticalxa0puzzles"
+title = "A biographical journey through geopolitical puzzles"
 
 +++
 We have said something along these lines before, but then each time

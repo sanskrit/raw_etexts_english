@@ -1,5 +1,5 @@
 +++
-title = "Some mysteries ofxa0uchChiShTa"
+title = "Some mysteries of uchChiShTa"
 
 +++
 In extant atharvavedic shrauta practice the uchChiShTa sUkta (AV-vulgate

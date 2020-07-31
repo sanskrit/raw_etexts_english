@@ -1,5 +1,5 @@
 +++
-title = "The culmination of the tAntrika education of anxa0AtharvaNa"
+title = "The culmination of the tAntrika education of an AtharvaNa"
 
 +++
 After having changed his yaj\~nopavIta, the dvija who has studied the

@@ -1,5 +1,5 @@
 +++
-title = "nAstika-s before the tathAgata and thexa0nirgrantha"
+title = "nAstika-s before the tathAgata and the nirgrantha"
 
 +++
 An essay by shrI sarvesha tivArI pointed me to some discussions that in

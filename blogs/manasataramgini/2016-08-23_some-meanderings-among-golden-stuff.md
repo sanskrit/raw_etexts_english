@@ -1,5 +1,5 @@
 +++
-title = "Some meanderings among goldenxa0stuff"
+title = "Some meanderings among golden stuff"
 
 +++
 There are some angles that we often encounter in the construction of the

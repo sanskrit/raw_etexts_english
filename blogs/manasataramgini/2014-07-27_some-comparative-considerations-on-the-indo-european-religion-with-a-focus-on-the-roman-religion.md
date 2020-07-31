@@ -1,5 +1,5 @@
 +++
-title = "Some comparative considerations on the Indo-European religion with a focus on the Romanxa0religion"
+title = "Some comparative considerations on the Indo-European religion with a focus on the Roman religion"
 
 +++
 **Studies on the Roman religion**  

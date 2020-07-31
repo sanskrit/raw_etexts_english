@@ -1,5 +1,5 @@
 +++
-title = "On cicadas and theirxa0kin"
+title = "On cicadas and their kin"
 
 +++
 Those were days when I was the local expert on hoppers and to lesser

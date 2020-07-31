@@ -1,5 +1,5 @@
 +++
-title = "The winding narration of deaths andxa0counter-deaths"
+title = "The winding narration of deaths and counter-deaths"
 
 +++
 It is said that Śiva transforms continually into many forms for his own

@@ -1,5 +1,5 @@
 +++
-title = "A dialog inxa0sandhyAbhASha"
+title = "A dialog in sandhyAbhASha"
 
 +++
 R called me to describe her views on the lalitArchanachandrika. This

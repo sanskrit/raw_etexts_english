@@ -1,5 +1,5 @@
 +++
-title = "shrI shyAmol rAm’s exposition ofxa0mahAchInakrama"
+title = "shrI shyAmol rAm’s exposition of mahAchInakrama"
 
 +++
 While mahAchInakrama is a not a path of tantra usually followed by the

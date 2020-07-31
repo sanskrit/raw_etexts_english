@@ -1,5 +1,5 @@
 +++
-title = "The kAlAtman maNDala at Angkorxa0Wat"
+title = "The kAlAtman maNDala at Angkor Wat"
 
 +++
 [![](https://i0.wp.com/bp0.blogger.com/_hjuA1bE0hBw/R65rFKfEbEI/AAAAAAAAACU/15bQeMsDM24/s320/kAlayAga.png)](http://bp0.blogger.com/_hjuA1bE0hBw/R65rFKfEbEI/AAAAAAAAACU/15bQeMsDM24/s1600-h/kAlayAga.png)

@@ -1,5 +1,5 @@
 +++
-title = "Make your own skyxa0map"
+title = "Make your own sky map"
 
 +++
 We live in the age of photo-realism, be it for maps of the world or of

@@ -1,5 +1,5 @@
 +++
-title = "Macranthropy and the saMbandha-s between microcosm andxa0macrocosm"
+title = "Macranthropy and the saMbandha-s between microcosm and macrocosm"
 
 +++
 May we first invoke indra that he might drive away the obstructions to

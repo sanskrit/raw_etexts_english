@@ -1,5 +1,5 @@
 +++
-title = "A note on govinda, a medieval chemist and physician from Southxa0India"
+title = "A note on govinda, a medieval chemist and physician from South India"
 
 +++
 Years ago while examining the sarva-darshana-saMgraha it became clear

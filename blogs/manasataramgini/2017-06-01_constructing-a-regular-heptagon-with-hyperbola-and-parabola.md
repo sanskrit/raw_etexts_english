@@ -1,5 +1,5 @@
 +++
-title = "Constructing a regular heptagon with hyperbola andxa0parabola"
+title = "Constructing a regular heptagon with hyperbola and parabola"
 
 +++
 There is little doubt that Archimedes was one of the greatest yavana

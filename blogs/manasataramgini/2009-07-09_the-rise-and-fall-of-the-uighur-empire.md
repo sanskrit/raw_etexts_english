@@ -1,5 +1,5 @@
 +++
-title = "The rise and fall of the Uighurxa0Empire"
+title = "The rise and fall of the Uighur Empire"
 
 +++
 With the Uighurs in the news some people asked me about them. I decided

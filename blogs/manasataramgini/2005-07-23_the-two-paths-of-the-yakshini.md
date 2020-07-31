@@ -1,5 +1,5 @@
 +++
-title = "The two paths of thexa0yakShiNi"
+title = "The two paths of the yakShiNi"
 
 +++
 The paths of the yakShiNi [![Posted by

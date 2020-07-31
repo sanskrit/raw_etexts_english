@@ -1,5 +1,5 @@
 +++
-title = "The oral and textual traditions of the shaunakIyaxa0atharvaveda"
+title = "The oral and textual traditions of the shaunakIya atharvaveda"
 
 +++
 The only complete surviving oral tradition is that of the 4th veda is

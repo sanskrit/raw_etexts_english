@@ -1,5 +1,5 @@
 +++
-title = "On the vedicxa0anusvAra."
+title = "On the vedic anusvAra."
 
 +++
 The shaunaka, mAnDukya, pANini and other authorities have declared that

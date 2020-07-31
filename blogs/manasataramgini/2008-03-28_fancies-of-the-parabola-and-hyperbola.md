@@ -1,5 +1,5 @@
 +++
-title = "Fancies of the parabola andxa0hyperbola"
+title = "Fancies of the parabola and hyperbola"
 
 +++
 ![](https://i2.wp.com/farm3.static.flickr.com/2268/2368154183_04165d4193.jpg)

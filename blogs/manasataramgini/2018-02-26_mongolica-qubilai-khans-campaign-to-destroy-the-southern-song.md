@@ -1,5 +1,5 @@
 +++
-title = "Mongolica: Qubilai Khan’s campaign to destroy the Southernxa0Song"
+title = "Mongolica: Qubilai Khan’s campaign to destroy the Southern Song"
 
 +++
 The final act in Mongol conquest of China shows the military capability

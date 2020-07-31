@@ -1,5 +1,5 @@
 +++
-title = "So many things to talkxa0about"
+title = "So many things to talk about"
 
 +++
 The chat with Sharada encompassed a wide gallimaufry of items, even as

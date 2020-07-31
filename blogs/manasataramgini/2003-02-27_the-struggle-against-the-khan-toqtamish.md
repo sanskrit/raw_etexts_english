@@ -1,5 +1,5 @@
 +++
-title = "The struggle against the Khanxa0Toqtamish"
+title = "The struggle against the Khan Toqtamish"
 
 +++
 The land North of the Syr Darya delta and the Little Aral Sea was the

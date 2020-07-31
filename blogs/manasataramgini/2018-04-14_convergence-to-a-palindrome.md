@@ -1,5 +1,5 @@
 +++
-title = "Convergence to axa0palindrome"
+title = "Convergence to a palindrome"
 
 +++
 This is a brief account of a sequence we constructed inspired by

@@ -1,5 +1,5 @@
 +++
-title = "Strange news from Newxa0Zealand"
+title = "Strange news from New Zealand"
 
 +++
 Geologists have held two views on New Zealand. Everyone more or less

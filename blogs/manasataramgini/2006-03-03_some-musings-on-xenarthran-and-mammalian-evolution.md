@@ -1,5 +1,5 @@
 +++
-title = "Some musings on xenarthran and mammalianxa0evolution"
+title = "Some musings on xenarthran and mammalian evolution"
 
 +++
 The living xenarthrans (defined by their unique zygapophysis

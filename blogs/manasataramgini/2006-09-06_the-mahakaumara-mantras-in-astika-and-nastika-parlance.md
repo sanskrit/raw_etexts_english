@@ -1,5 +1,5 @@
 +++
-title = "The mahAkaumara mantras in AstIka and nAstIkaxa0parlance"
+title = "The mahAkaumara mantras in AstIka and nAstIka parlance"
 
 +++
 || OM namaH kumArAya ||  

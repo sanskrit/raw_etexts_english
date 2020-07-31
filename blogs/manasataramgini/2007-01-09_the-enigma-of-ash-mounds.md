@@ -1,5 +1,5 @@
 +++
-title = "The enigma of ashxa0mounds"
+title = "The enigma of ash mounds"
 
 +++
 These thoughts sprung in course of one of those extended conversations

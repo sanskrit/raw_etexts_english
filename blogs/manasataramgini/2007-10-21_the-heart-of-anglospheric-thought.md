@@ -1,5 +1,5 @@
 +++
-title = "The heart of Anglosphericxa0thought"
+title = "The heart of Anglospheric thought"
 
 +++
 An [interesting recent

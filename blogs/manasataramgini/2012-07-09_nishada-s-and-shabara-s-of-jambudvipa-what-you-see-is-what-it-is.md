@@ -1,5 +1,5 @@
 +++
-title = "niShAda-s and shabara-s of jambudvIpa: What you see is what itxa0is"
+title = "niShAda-s and shabara-s of jambudvIpa: What you see is what it is"
 
 +++
 The vast land of jambudvIpa is home to many different types of tribal

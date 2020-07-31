@@ -1,5 +1,5 @@
 +++
-title = "Indo-Aryans of the Middlexa0East"
+title = "Indo-Aryans of the Middle East"
 
 +++
 The Indo-Aryans of the second millenium Middle East have been a topic of

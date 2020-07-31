@@ -1,5 +1,5 @@
 +++
-title = "Transmission of the kAli kula tantras according to the chinchini-mata sAraxa0samuchChaya"
+title = "Transmission of the kAli kula tantras according to the chinchini-mata sAra samuchChaya"
 
 +++
 There was a muni named shIlAchiti in the shivapITha of shrIshaila. His

@@ -1,5 +1,5 @@
 +++
-title = "On the namexa0itself"
+title = "On the name itself"
 
 +++
 We were passing noting the immersion of the folks in the pAsha of moha.

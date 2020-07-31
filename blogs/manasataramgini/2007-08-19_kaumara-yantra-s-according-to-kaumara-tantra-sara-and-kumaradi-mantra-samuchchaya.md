@@ -1,5 +1,5 @@
 +++
-title = "kaumAra yantra-s according to kaumara tantra sAra and kumarAdi mantraxa0samuchchaya"
+title = "kaumAra yantra-s according to kaumara tantra sAra and kumarAdi mantra samuchchaya"
 
 +++
 [![](https://i2.wp.com/bp1.blogger.com/_ZhvcTTaaD_4/RsjHg_XcXfI/AAAAAAAAANM/Ybrs9He4CdI/s320/kaumara_magic_square.jpg)](http://bp1.blogger.com/_ZhvcTTaaD_4/RsjHg_XcXfI/AAAAAAAAANM/Ybrs9He4CdI/s1600-h/kaumara_magic_square.jpg)  

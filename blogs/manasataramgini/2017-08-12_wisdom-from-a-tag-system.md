@@ -1,5 +1,5 @@
 +++
-title = "Wisdom from a tagxa0system"
+title = "Wisdom from a tag system"
 
 +++
 The case of the mathematician Emil Post, like that of several others,

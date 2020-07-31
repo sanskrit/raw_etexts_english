@@ -1,5 +1,5 @@
 +++
-title = "The extraordinary case of Cometxa0Holmes"
+title = "The extraordinary case of Comet Holmes"
 
 +++
 A dhuma-gola was sighted near the head of yayAti, when the

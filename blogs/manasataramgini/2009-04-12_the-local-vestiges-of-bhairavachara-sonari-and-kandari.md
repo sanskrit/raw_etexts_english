@@ -1,5 +1,5 @@
 +++
-title = "The local vestiges of bhairavAchara: Sonari andxa0Kandari"
+title = "The local vestiges of bhairavAchara: Sonari and Kandari"
 
 +++
 [We had earlier described the remnants of bhairava worship in

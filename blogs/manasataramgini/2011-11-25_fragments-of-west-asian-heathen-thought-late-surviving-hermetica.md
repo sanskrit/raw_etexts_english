@@ -1,5 +1,5 @@
 +++
-title = "Fragments of West Asian heathen thought: late survivingxa0Hermetica"
+title = "Fragments of West Asian heathen thought: late surviving Hermetica"
 
 +++
 To be read in conjunction with

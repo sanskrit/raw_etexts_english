@@ -1,5 +1,5 @@
 +++
-title = "bhaTTa jayanta thexa0paippalAdin"
+title = "bhaTTa jayanta the paippalAdin"
 
 +++
 I have always felt a close affinity to bhaTTa jayanta, the great scholar

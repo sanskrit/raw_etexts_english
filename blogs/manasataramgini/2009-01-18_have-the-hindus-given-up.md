@@ -1,5 +1,5 @@
 +++
-title = "Have the Hindus givenxa0up?"
+title = "Have the Hindus given up?"
 
 +++
 I did not want to write this and instead try to finish the train of

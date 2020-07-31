@@ -1,5 +1,5 @@
 +++
-title = "A brief rant on the Indian politicalxa0system"
+title = "A brief rant on the Indian political system"
 
 +++
 The coming elections in the secular, socialist, democratic republic of

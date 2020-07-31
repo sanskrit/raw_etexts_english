@@ -1,5 +1,5 @@
 +++
-title = "Doubling the cube withxa0ellipses"
+title = "Doubling the cube with ellipses"
 
 +++
 The problem of doubling of the cube which emerged in the context of the

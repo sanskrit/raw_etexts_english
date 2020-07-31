@@ -1,5 +1,5 @@
 +++
-title = "draupadi ammAL andxa0chunItan"
+title = "draupadi ammAL and chunItan"
 
 +++
 A sub-set of the smarta brahmins of Gingee, Melaccheri Kadu and parts of

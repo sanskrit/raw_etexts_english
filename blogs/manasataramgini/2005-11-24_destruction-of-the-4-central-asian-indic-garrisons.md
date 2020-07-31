@@ -1,5 +1,5 @@
 +++
-title = "Destruction of the 4 central Asian Indicxa0garrisons"
+title = "Destruction of the 4 central Asian Indic garrisons"
 
 +++
 In 615 AD, the 3 Central Asian kingdoms of Kucha, Agni (later Qara

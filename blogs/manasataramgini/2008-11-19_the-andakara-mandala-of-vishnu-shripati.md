@@ -1,5 +1,5 @@
 +++
-title = "The aNDAkAra maNDala of viShNuxa0shrIpati"
+title = "The aNDAkAra maNDala of viShNu shrIpati"
 
 +++
 [![oval\_basic](https://i1.wp.com/farm4.static.flickr.com/3057/3036227882_81b7b1c370.jpg)](http://www.flickr.com/photos/24766652@N05/3036227882/ "oval_basic by somasushma, on Flickr")  

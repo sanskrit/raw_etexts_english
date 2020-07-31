@@ -1,5 +1,5 @@
 +++
-title = "The early mysticete whalexa0Janjucetus"
+title = "The early mysticete whale Janjucetus"
 
 +++
 [![](https://i1.wp.com/photos1.blogger.com/blogger/2010/410/320/janjucetus.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/janjucetus.jpg)[![](https://i1.wp.com/photos1.blogger.com/blogger/2010/410/320/dakosaurus.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/dakosaurus.jpg)

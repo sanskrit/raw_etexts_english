@@ -1,5 +1,5 @@
 +++
-title = "A page from the chIna-Tibetxa0encounter"
+title = "A page from the chIna-Tibet encounter"
 
 +++
 A wordy exchange between a chIna general and a Tibetan minister during

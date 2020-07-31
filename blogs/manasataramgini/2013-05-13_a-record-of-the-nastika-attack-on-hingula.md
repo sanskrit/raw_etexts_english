@@ -1,5 +1,5 @@
 +++
-title = "A record of the nAstika attack onxa0hi~NgulA"
+title = "A record of the nAstika attack on hi~NgulA"
 
 +++
 Hindu historical tradition holds that bauddha-s of the sindhu had made

@@ -1,5 +1,5 @@
 +++
-title = "The drinking of soma inxa0svarga"
+title = "The drinking of soma in svarga"
 
 +++
 Briefly we were awarded the freedom by the grace of the great indra, who

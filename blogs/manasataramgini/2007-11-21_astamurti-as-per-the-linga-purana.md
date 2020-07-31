@@ -1,5 +1,5 @@
 +++
-title = "aSTamUrti as per the li~Ngaxa0purANa"
+title = "aSTamUrti as per the li~Nga purANa"
 
 +++
 nandikeshvara in the li\~Nga purANa narrates the nature of the

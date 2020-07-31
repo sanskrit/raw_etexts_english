@@ -1,5 +1,5 @@
 +++
-title = "Notices of Hūṇa-s in kāvya and an excursus on their origins andxa0ethnicity"
+title = "Notices of Hūṇa-s in kāvya and an excursus on their origins and ethnicity"
 
 +++
 This article was originally published in a slightly modified form at

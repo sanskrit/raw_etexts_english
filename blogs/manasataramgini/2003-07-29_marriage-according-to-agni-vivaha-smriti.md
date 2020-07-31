@@ -1,5 +1,5 @@
 +++
-title = "Marriage according to agni-vivAhaxa0smR^iti"
+title = "Marriage according to agni-vivAha smR^iti"
 
 +++
 While there are reams of writings on the yeses and nos of Hindu marriage

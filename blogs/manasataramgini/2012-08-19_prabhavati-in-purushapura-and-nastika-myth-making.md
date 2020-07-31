@@ -1,5 +1,5 @@
 +++
-title = "prabhAvatI in puruShapura and nAstikaxa0myth-making"
+title = "prabhAvatI in puruShapura and nAstika myth-making"
 
 +++
 The nAstika teacher paramArtha who operated in midst of the chIna-s

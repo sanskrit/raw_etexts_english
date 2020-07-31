@@ -1,5 +1,5 @@
 +++
-title = "The peculiar mythology behind the mAyAvAmanaxa0mantras"
+title = "The peculiar mythology behind the mAyAvAmana mantras"
 
 +++
 The hAdi mata votaries from the North also preserved a range of kramas,

@@ -1,5 +1,5 @@
 +++
-title = "Raised by bAlA andxa0dattAtreya-II"
+title = "Raised by bAlA and dattAtreya-II"
 
 +++
 A great nAtha yogi who worshiped dattAtreya was eating curds and saw a

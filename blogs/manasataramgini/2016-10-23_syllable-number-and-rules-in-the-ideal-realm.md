@@ -1,5 +1,5 @@
 +++
-title = "Syllable, number and rules in the idealxa0realm"
+title = "Syllable, number and rules in the ideal realm"
 
 +++
 This note is neither meant to be complete exposition of this matter nor

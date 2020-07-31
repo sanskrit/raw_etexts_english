@@ -1,5 +1,5 @@
 +++
-title = "The appearance of the kR^ityA andxa0chetaka…"
+title = "The appearance of the kR^ityA and chetaka…"
 
 +++
 “Everyone knows well how the bharadvAja yavakri met his end due the

@@ -1,5 +1,5 @@
 +++
-title = "The Meru and Nārāyaṇa’s cows: Words andxa0fractals"
+title = "The Meru and Nārāyaṇa’s cows: Words and fractals"
 
 +++
 The fractals described herein are based on and inspired by the work of

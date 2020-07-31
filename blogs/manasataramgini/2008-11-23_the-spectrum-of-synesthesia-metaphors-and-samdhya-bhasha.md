@@ -1,5 +1,5 @@
 +++
-title = "The spectrum of synesthesia, metaphors and saMdhyaxa0bhASha"
+title = "The spectrum of synesthesia, metaphors and saMdhya bhASha"
 
 +++
 I had my first instance of the

@@ -1,5 +1,5 @@
 +++
-title = "Matters of religion: discussion on vāyavyaxa0offerings"
+title = "Matters of religion: discussion on vāyavya offerings"
 
 +++
 Somakhya and Lootika had revived the private one day rite in the manner

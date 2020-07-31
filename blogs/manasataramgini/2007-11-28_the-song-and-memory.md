@@ -1,5 +1,5 @@
 +++
-title = "The song andxa0memory"
+title = "The song and memory"
 
 +++
 R is a great believer of the view that for every mood there is a song

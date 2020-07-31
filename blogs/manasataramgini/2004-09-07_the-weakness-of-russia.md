@@ -1,5 +1,5 @@
 +++
-title = "The weakness ofxa0Russia"
+title = "The weakness of Russia"
 
 +++
 The recent string of Islamic attacks and the spineless Russian response

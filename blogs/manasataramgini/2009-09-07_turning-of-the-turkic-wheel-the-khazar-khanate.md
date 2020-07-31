@@ -1,5 +1,5 @@
 +++
-title = "Turning of the Turkic wheel: the Khazarxa0Khanate"
+title = "Turning of the Turkic wheel: the Khazar Khanate"
 
 +++
 In a discussion with ekanetra we revisited the “turning of the Turkic

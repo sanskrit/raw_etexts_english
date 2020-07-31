@@ -1,5 +1,5 @@
 +++
-title = "New species ofxa0Neofelis?"
+title = "New species of Neofelis?"
 
 +++
 [![](https://i0.wp.com/bp0.blogger.com/_ZhvcTTaaD_4/RfuDF8cE73I/AAAAAAAAAFo/K38pO0uBYHo/s320/clouded_leopard.jpg)](http://bp0.blogger.com/_ZhvcTTaaD_4/RfuDF8cE73I/AAAAAAAAAFo/K38pO0uBYHo/s1600-h/clouded_leopard.jpg)[![](https://i0.wp.com/bp0.blogger.com/_ZhvcTTaaD_4/RfuDF8cE74I/AAAAAAAAAFw/4j4ZzYdURng/s320/clouded_leopard_old.jpg)](http://bp0.blogger.com/_ZhvcTTaaD_4/RfuDF8cE74I/AAAAAAAAAFw/4j4ZzYdURng/s1600-h/clouded_leopard_old.jpg)

@@ -1,5 +1,5 @@
 +++
-title = "A mantra fossil from the vedo-tAntric transition inxa0charaka"
+title = "A mantra fossil from the vedo-tAntric transition in charaka"
 
 +++
 The chikitsAsthAna of the charaka saMhitA cites a formula to be recited

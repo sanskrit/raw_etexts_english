@@ -1,5 +1,5 @@
 +++
-title = "The upper story in a fewxa0pictures"
+title = "The upper story in a few pictures"
 
 +++
 We have always held that there is no substitute to the knowledge gained

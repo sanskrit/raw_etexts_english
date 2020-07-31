@@ -1,5 +1,5 @@
 +++
-title = "Forms of the pratya~NgirAxa0R^ik"
+title = "Forms of the pratya~NgirA R^ik"
 
 +++
 yAm kalpayanti no arayaH krUrAm kR^ityAm vadhUm iva /  

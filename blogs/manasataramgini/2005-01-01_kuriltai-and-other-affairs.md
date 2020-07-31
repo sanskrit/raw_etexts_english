@@ -1,5 +1,5 @@
 +++
-title = "Kuriltai and otherxa0affairs"
+title = "Kuriltai and other affairs"
 
 +++
 The ever querulous vAtavyAdi kept coming up with more of his ideas that

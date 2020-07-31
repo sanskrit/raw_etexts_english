@@ -1,5 +1,5 @@
 +++
-title = "Some simple maps specifying strangexa0attractors"
+title = "Some simple maps specifying strange attractors"
 
 +++
 This note may be read a continuation of: [Some reminiscences of our

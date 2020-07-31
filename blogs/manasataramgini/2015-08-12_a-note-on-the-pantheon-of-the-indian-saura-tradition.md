@@ -1,5 +1,5 @@
 +++
-title = "A note on the pantheon of the Indian Sauraxa0tradition"
+title = "A note on the pantheon of the Indian Saura tradition"
 
 +++
 The Indian Saura-mata (or the Hindu sect of the Sun) is an amalgam of

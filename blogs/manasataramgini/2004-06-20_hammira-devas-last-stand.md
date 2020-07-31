@@ -1,5 +1,5 @@
 +++
-title = "Hammira Deva’s lastxa0stand"
+title = "Hammira Deva’s last stand"
 
 +++
 [Continue reading from

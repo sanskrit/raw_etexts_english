@@ -1,5 +1,5 @@
 +++
-title = "Discovering bronze in the characteristic ellipse of rightxa0triangles"
+title = "Discovering bronze in the characteristic ellipse of right triangles"
 
 +++
 **The arithmetic mean square of a right triangle**  

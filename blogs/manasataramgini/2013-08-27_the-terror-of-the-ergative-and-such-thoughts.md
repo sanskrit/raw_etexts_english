@@ -1,5 +1,5 @@
 +++
-title = "The terror of the ergative and suchxa0thoughts"
+title = "The terror of the ergative and such thoughts"
 
 +++
 In our youth we were confronted with the prospect of learning two New

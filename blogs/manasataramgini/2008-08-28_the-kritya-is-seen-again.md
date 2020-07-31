@@ -1,5 +1,5 @@
 +++
-title = "The kR^ityA is seenxa0again"
+title = "The kR^ityA is seen again"
 
 +++
 We were in their midst – full of excitement and mirth. But even now we

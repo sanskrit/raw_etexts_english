@@ -1,5 +1,5 @@
 +++
-title = "Some novel observations concerning quadratic roots and fractalxa0sequences"
+title = "Some novel observations concerning quadratic roots and fractal sequences"
 
 +++
 Disclaimer: To our knowledge we have not found the material presented

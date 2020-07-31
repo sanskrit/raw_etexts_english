@@ -1,5 +1,5 @@
 +++
-title = "In the midst of thexa0rAkShasas"
+title = "In the midst of the rAkShasas"
 
 +++
 Having set the spot for the rendezvous with the svastrI, and having made

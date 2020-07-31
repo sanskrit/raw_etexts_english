@@ -1,5 +1,5 @@
 +++
-title = "The karnATa-s in Tirabhukti andxa0Nepal"
+title = "The karnATa-s in Tirabhukti and Nepal"
 
 +++
 Sometimes an exploration of the evolution of the mantra-shAstra leads to

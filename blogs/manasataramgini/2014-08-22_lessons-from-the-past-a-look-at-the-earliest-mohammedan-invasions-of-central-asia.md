@@ -1,5 +1,5 @@
 +++
-title = "Lessons from the past: A look at the earliest Mohammedan invasions of Centralxa0Asia"
+title = "Lessons from the past: A look at the earliest Mohammedan invasions of Central Asia"
 
 +++
 First published at IndiaFacts:

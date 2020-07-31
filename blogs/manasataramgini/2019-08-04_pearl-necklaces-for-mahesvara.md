@@ -1,5 +1,5 @@
 +++
-title = "Pearl necklaces forxa0Maheśvara"
+title = "Pearl necklaces for Maheśvara"
 
 +++
 **Śrīpati’s pearl necklace for Maheśvara**  

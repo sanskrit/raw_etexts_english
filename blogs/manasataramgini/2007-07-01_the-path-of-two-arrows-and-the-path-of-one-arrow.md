@@ -1,5 +1,5 @@
 +++
-title = "The path of two arrows and the path of onexa0arrow"
+title = "The path of two arrows and the path of one arrow"
 
 +++
 We felt the arms of the golden-handed asura. We felt the presence of

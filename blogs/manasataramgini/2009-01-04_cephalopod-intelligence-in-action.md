@@ -1,5 +1,5 @@
 +++
-title = "Cephalopod intelligence inxa0action?"
+title = "Cephalopod intelligence in action?"
 
 +++
 This footage of a mimic octopus raises the issue of cephalopod

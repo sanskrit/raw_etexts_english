@@ -1,5 +1,5 @@
 +++
-title = "The blue bottle and the talentxa0show"
+title = "The blue bottle and the talent show"
 
 +++
 This story itself is haunted.

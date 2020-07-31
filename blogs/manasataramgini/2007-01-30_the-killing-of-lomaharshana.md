@@ -1,5 +1,5 @@
 +++
-title = "The killing ofxa0lomaharShaNa"
+title = "The killing of lomaharShaNa"
 
 +++
 The bhArgava mArkaNDeya told jaimini that he had no time to narrate to

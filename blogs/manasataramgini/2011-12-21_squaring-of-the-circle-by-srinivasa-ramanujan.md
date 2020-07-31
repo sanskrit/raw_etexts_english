@@ -1,5 +1,5 @@
 +++
-title = "Squaring of the circle by Srinivasaxa0Ramanujan"
+title = "Squaring of the circle by Srinivasa Ramanujan"
 
 +++
 [![](https://lh6.googleusercontent.com/-Hwk9xyvIQA0/TvGRx5OZJzI/AAAAAAAACUo/Jkc33wxOAGw/s400/ramanujam.png)](https://picasaweb.google.com/lh/photo/E5aCuEwBdE6ig15rleHMedMTjNZETYmyPJy0liipFm0?feat=embedwebsite)

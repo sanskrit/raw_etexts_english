@@ -1,5 +1,5 @@
 +++
-title = "bhavabhUti’s avifauna andxa0flora"
+title = "bhavabhUti’s avifauna and flora"
 
 +++
 A good kavI of yore is supposed to have been a naturalist. We had

@@ -1,5 +1,5 @@
 +++
-title = "The location ofxa0Vijayanagara"
+title = "The location of Vijayanagara"
 
 +++
 The location of Vijayanagara [![Posted by

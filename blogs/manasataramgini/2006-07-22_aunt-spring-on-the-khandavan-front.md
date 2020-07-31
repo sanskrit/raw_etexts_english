@@ -1,5 +1,5 @@
 +++
-title = "Aunt Spring on the khANDavanxa0front"
+title = "Aunt Spring on the khANDavan front"
 
 +++
 With Jx liberated from the grahaNa, and Mn having stabilized his ratha,

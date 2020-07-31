@@ -1,5 +1,5 @@
 +++
-title = "The Rāmāyaṇa and a para-rāmāyaṇa in numbers-I: epic asxa0religion"
+title = "The Rāmāyaṇa and a para-rāmāyaṇa in numbers-I: epic as religion"
 
 +++
 This note may be read as part of our studies on the Rāmāyaṇa and

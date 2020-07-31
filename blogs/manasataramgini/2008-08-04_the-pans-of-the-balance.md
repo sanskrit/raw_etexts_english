@@ -1,5 +1,5 @@
 +++
-title = "The pans of thexa0balance"
+title = "The pans of the balance"
 
 +++
 We had long ago said that he had attained eko-mAnuSha AnandaH, but he

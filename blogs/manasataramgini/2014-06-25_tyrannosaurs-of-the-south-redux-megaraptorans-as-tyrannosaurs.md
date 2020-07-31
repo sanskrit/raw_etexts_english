@@ -1,5 +1,5 @@
 +++
-title = "Tyrannosaurs of the south redux: megaraptorans asxa0tyrannosaurs?"
+title = "Tyrannosaurs of the south redux: megaraptorans as tyrannosaurs?"
 
 +++
 Shortly after we had reached the mlechCha-land we read an abstract of a

@@ -1,5 +1,5 @@
 +++
-title = "The temple ofxa0irAvAn"
+title = "The temple of irAvAn"
 
 +++
 In addition to the temples of draupadi ammAL there are a cluster of

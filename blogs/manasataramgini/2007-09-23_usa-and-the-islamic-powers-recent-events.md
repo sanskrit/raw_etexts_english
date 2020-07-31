@@ -1,5 +1,5 @@
 +++
-title = "USA and the Islamic powers: Recentxa0events"
+title = "USA and the Islamic powers: Recent events"
 
 +++
 A number of news items are of some interest in terms of the manufacture

@@ -1,5 +1,5 @@
 +++
-title = "Mapusaurus roseae and the theropods of thexa0South"
+title = "Mapusaurus roseae and the theropods of the South"
 
 +++
 In my earliest youth I was fascinated by an obscure Late Cretaceous

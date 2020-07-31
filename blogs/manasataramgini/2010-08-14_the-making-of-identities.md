@@ -1,5 +1,5 @@
 +++
-title = "The making ofxa0identities"
+title = "The making of identities"
 
 +++
 It is important that Hindus as a part of their defensive strategy

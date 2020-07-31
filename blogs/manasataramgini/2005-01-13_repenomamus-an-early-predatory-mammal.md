@@ -1,5 +1,5 @@
 +++
-title = "Repenomamus an early predatoryxa0mammal"
+title = "Repenomamus an early predatory mammal"
 
 +++
 [![](https://i0.wp.com/bp3.blogger.com/_ZhvcTTaaD_4/RnCeuE5tW4I/AAAAAAAAAKM/ienVCnqk1rE/s320/Repenomamus1.jpg)](http://bp3.blogger.com/_ZhvcTTaaD_4/RnCeuE5tW4I/AAAAAAAAAKM/ienVCnqk1rE/s1600-h/Repenomamus1.jpg)[![](https://i1.wp.com/bp0.blogger.com/_ZhvcTTaaD_4/RnCeuU5tW7I/AAAAAAAAAKk/_sNLRSphtDg/s320/repenomamus_skull.jpg)](http://bp0.blogger.com/_ZhvcTTaaD_4/RnCeuU5tW7I/AAAAAAAAAKk/_sNLRSphtDg/s1600-h/repenomamus_skull.jpg)

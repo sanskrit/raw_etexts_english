@@ -1,5 +1,5 @@
 +++
-title = "The mahAvidyA ofxa0karNamoTini"
+title = "The mahAvidyA of karNamoTini"
 
 +++
 shrI karNamoTinI devI [![Posted by

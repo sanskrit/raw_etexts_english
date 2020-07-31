@@ -1,5 +1,5 @@
 +++
-title = "On a paramAra warrior queen and some Saracenic structures inxa0lATa"
+title = "On a paramAra warrior queen and some Saracenic structures in lATa"
 
 +++
 S and other members of aurvasheyI’s family have rich body of legend

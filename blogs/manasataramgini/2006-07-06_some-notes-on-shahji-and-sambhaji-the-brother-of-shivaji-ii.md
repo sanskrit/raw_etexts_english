@@ -1,5 +1,5 @@
 +++
-title = "Some notes on Shahji and Sambhaji the brother ofxa0Shivaji-II"
+title = "Some notes on Shahji and Sambhaji the brother of Shivaji-II"
 
 +++
 Randulla Khan’s invasion of the South  

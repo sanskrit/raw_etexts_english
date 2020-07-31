@@ -1,5 +1,5 @@
 +++
-title = "The gotra-specific elements of the installation of the gArhapatyaxa0fire"
+title = "The gotra-specific elements of the installation of the gArhapatya fire"
 
 +++
 \-The udgAtA starts singing the rathanthara and ya\~jna-yaj\~nIya

@@ -1,5 +1,5 @@
 +++
-title = "Some anti-Astika stories of thexa0jaina-s"
+title = "Some anti-Astika stories of the jaina-s"
 
 +++
 The nAstika-s, smarting from their poor performance relative to the

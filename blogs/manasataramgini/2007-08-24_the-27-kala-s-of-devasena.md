@@ -1,5 +1,5 @@
 +++
-title = "The 27 kalA-s ofxa0devasenA"
+title = "The 27 kalA-s of devasenA"
 
 +++
 [![](https://i1.wp.com/bp1.blogger.com/_ZhvcTTaaD_4/Rs5u7fXcXhI/AAAAAAAAANc/f77pxaAh8qU/s320/devasena_skanda.jpg)](http://bp1.blogger.com/_ZhvcTTaaD_4/Rs5u7fXcXhI/AAAAAAAAANc/f77pxaAh8qU/s1600-h/devasena_skanda.jpg)

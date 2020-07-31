@@ -1,5 +1,5 @@
 +++
-title = "The verse of thexa0sword"
+title = "The verse of the sword"
 
 +++
 [chitrabandha-s](https://manasataramgini.wordpress.com/2013/01/06/between-the-rasarnava-and-the-chitrabandha-s/ "Between the rasArNava and the chitrabandha-s")

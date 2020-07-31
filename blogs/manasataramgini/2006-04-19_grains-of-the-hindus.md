@@ -1,5 +1,5 @@
 +++
-title = "Grains of thexa0Hindus"
+title = "Grains of the Hindus"
 
 +++
 Driven by the curse of khANDava we were wandering. We decided to drown

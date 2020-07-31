@@ -1,5 +1,5 @@
 +++
-title = "A laud ofxa0indra"
+title = "A laud of indra"
 
 +++
 For the Arya of yore there was nothing more inspiring than indra in his

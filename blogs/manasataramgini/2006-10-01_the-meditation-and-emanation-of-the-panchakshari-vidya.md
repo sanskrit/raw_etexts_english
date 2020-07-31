@@ -1,5 +1,5 @@
 +++
-title = "The meditation and emanation of the pa~nchAkSharIxa0vidyA"
+title = "The meditation and emanation of the pa~nchAkSharI vidyA"
 
 +++
 We described earlier how one installs the yantra of mahAdeva pertaining

@@ -1,5 +1,5 @@
 +++
-title = "Musings on the aponaptrIyaxa0rite"
+title = "Musings on the aponaptrIya rite"
 
 +++
 The aponaptrIya is an important rite associated with the somayAga and is

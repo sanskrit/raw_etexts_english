@@ -1,5 +1,5 @@
 +++
-title = "The ghosts ofxa0Tulagiri"
+title = "The ghosts of Tulagiri"
 
 +++
 Vrishchika was taking a few days off to visit her parents’ town before

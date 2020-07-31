@@ -1,5 +1,5 @@
 +++
-title = "An origin mythology in the brahmavaivartaxa0purANa"
+title = "An origin mythology in the brahmavaivarta purANa"
 
 +++
 brahmavaivarta purANa 1.8.1-9:  

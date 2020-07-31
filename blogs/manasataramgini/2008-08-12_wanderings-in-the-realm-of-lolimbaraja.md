@@ -1,5 +1,5 @@
 +++
-title = "Wanderings in the realm ofxa0lolimbarAja"
+title = "Wanderings in the realm of lolimbarAja"
 
 +++
 A relatively minor affliction of the upper-respiratory tract had seized

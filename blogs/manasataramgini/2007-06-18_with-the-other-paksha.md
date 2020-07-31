@@ -1,5 +1,5 @@
 +++
-title = "With the otherxa0pakSha"
+title = "With the other pakSha"
 
 +++
 The third hero advanced with a large force to defend his turf. His men

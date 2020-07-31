@@ -1,5 +1,5 @@
 +++
-title = "This time it is the big man’sxa0story"
+title = "This time it is the big man’s story"
 
 +++
 Vidrum was hurrying back to his office after a quick dinner. As he did

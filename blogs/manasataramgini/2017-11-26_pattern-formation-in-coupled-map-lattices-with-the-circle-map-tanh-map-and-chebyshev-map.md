@@ -1,5 +1,5 @@
 +++
-title = "Pattern formation in coupled map lattices with the circle map, tanh map, and Chebyshevxa0map"
+title = "Pattern formation in coupled map lattices with the circle map, tanh map, and Chebyshev map"
 
 +++
 The coupled map lattices (CMLs), first defined by Kunihiko Kaneko around

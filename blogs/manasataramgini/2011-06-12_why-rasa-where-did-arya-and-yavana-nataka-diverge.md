@@ -1,5 +1,5 @@
 +++
-title = "Why rasa? where did Arya and yavana nATakaxa0diverge?"
+title = "Why rasa? where did Arya and yavana nATaka diverge?"
 
 +++
 This may be read in conjunction with an earlier note on an [overlapping

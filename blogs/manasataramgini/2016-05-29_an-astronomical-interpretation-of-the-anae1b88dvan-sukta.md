@@ -1,5 +1,5 @@
 +++
-title = "An astronomical interpretation of the anaḍvānxa0sūkta"
+title = "An astronomical interpretation of the anaḍvān sūkta"
 
 +++
 This may be seen as a continuation of this note: [Anatomy and heavens in

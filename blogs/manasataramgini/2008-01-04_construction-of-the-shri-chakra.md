@@ -1,5 +1,5 @@
 +++
-title = "Construction of thexa0shrI-chakra"
+title = "Construction of the shrI-chakra"
 
 +++
 Much has been said about this topic and it has been technically

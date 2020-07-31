@@ -1,5 +1,5 @@
 +++
-title = "A visitation andxa0ruminations"
+title = "A visitation and ruminations"
 
 +++
 Most of our fellow travelers in school and college, with some exceptions

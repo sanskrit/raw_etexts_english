@@ -1,5 +1,5 @@
 +++
-title = "Founding fathers and otherxa0musings"
+title = "Founding fathers and other musings"
 
 +++
 [![](https://i1.wp.com/photos1.blogger.com/blogger/2010/410/320/niall.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/niall.jpg)

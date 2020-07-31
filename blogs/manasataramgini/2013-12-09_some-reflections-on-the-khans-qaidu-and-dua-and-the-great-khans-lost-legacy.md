@@ -1,5 +1,5 @@
 +++
-title = "Some reflections on the Khans Qaidu and Du’a and the great Khan’s lostxa0legacy"
+title = "Some reflections on the Khans Qaidu and Du’a and the great Khan’s lost legacy"
 
 +++
 **Prolog**  

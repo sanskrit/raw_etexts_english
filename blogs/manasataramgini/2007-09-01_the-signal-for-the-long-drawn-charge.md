@@ -1,5 +1,5 @@
 +++
-title = "The signal for the long drawnxa0charge"
+title = "The signal for the long drawn charge"
 
 +++
 How did we get to this state:  

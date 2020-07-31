@@ -1,5 +1,5 @@
 +++
-title = "Some notes on the heathen Lithuania and itsxa0demise"
+title = "Some notes on the heathen Lithuania and its demise"
 
 +++
 Clinging to the inner coast of northern Europe lies Lithuania, a nation

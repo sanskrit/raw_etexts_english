@@ -1,5 +1,5 @@
 +++
-title = "Some reminiscences of our study of chaoticxa0maps-1"
+title = "Some reminiscences of our study of chaotic maps-1"
 
 +++
 Starting in our teens, we began our exploration of chaotic (strange)

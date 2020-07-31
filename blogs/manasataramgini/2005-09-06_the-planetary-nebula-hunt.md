@@ -1,5 +1,5 @@
 +++
-title = "The Planetary nebulaxa0hunt"
+title = "The Planetary nebula hunt"
 
 +++
 A great hunt for the planetary nebulae was successfully conducted this

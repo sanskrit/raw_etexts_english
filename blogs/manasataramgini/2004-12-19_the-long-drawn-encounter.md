@@ -1,5 +1,5 @@
 +++
-title = "The long drawnxa0encounter"
+title = "The long drawn encounter"
 
 +++
 We repulsed another attack on our position by the brigade from

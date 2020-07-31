@@ -1,5 +1,5 @@
 +++
-title = "The battle of the train and busxa0towns"
+title = "The battle of the train and bus towns"
 
 +++
 As many issues remain still murky and we are still behind the haze we

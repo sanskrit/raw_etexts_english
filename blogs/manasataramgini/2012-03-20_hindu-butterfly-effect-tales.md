@@ -1,5 +1,5 @@
 +++
-title = "Hindu “butterfly effect”xa0tales"
+title = "Hindu “butterfly effect” tales"
 
 +++
 Lorenz is supposed to have said that a flap of a butterfly might end up

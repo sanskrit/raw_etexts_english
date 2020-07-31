@@ -1,5 +1,5 @@
 +++
-title = "The experience of axa0mantra"
+title = "The experience of a mantra"
 
 +++
 There are certain things which only make sense to the insiders of the

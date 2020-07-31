@@ -1,5 +1,5 @@
 +++
-title = "More encounters with padmAvatI and the tantras of the jainaxa0nAstikas"
+title = "More encounters with padmAvatI and the tantras of the jaina nAstikas"
 
 +++
 [![](https://i0.wp.com/bp3.blogger.com/_ZhvcTTaaD_4/RYjoXe6AktI/AAAAAAAAAAM/ZAQDBiDjp9A/s320/padubai.jpg)](http://bp3.blogger.com/_ZhvcTTaaD_4/RYjoXe6AktI/AAAAAAAAAAM/ZAQDBiDjp9A/s1600-h/padubai.jpg)

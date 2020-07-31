@@ -1,5 +1,5 @@
 +++
-title = "In memory of thexa0Oxalate"
+title = "In memory of the Oxalate"
 
 +++
 A recent conversation brought to mind the our famed oxalate experiment.

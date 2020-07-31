@@ -1,5 +1,5 @@
 +++
-title = "Abhyantara dhyAna of the shrIkulaxa0system."
+title = "Abhyantara dhyAna of the shrIkula system."
 
 +++
 *taDil-lekhA-tanvIM tapana-shashi-vaishvAnara-mayIM  

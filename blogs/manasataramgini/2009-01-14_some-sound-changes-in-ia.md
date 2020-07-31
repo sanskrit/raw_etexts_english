@@ -1,5 +1,5 @@
 +++
-title = "Some sound changes inxa0IA"
+title = "Some sound changes in IA"
 
 +++
 Some neo-Indo-Aryan languages sound unusual to us because they are not

@@ -1,5 +1,5 @@
 +++
-title = "The sense of pArokSha andxa0anumAna"
+title = "The sense of pArokSha and anumAna"
 
 +++
 What constitutes the meeting of the minds with a vipra (used in the

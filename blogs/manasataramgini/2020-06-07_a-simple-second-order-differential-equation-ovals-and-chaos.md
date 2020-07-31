@@ -1,5 +1,5 @@
 +++
-title = "A simple second order differential equation, ovals andxa0chaos"
+title = "A simple second order differential equation, ovals and chaos"
 
 +++
 In our youth as a consequence of our undying fascination with ovals we

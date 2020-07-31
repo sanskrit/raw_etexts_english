@@ -1,5 +1,5 @@
 +++
-title = "The Urdhvasrotas and medicalxa0tradition"
+title = "The Urdhvasrotas and medical tradition"
 
 +++
 The jaina mantravAdins in the karnATa country use a medical text termed

@@ -1,5 +1,5 @@
 +++
-title = "In the darkxa0zone"
+title = "In the dark zone"
 
 +++
 We sat on the edge of the crater of sorrow, defeat and destruction,

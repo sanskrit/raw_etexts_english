@@ -1,5 +1,5 @@
 +++
-title = "A fine point in kR^iShNa yajur vedicxa0recitation"
+title = "A fine point in kR^iShNa yajur vedic recitation"
 
 +++
 For a general account of vedic accents and their oral rendering one

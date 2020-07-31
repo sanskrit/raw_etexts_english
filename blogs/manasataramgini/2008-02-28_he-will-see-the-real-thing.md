@@ -1,5 +1,5 @@
 +++
-title = "He will see the realxa0thing."
+title = "He will see the real thing."
 
 +++
 Mis-creant and we rode past the 7 betelnut trees that stood in a row on

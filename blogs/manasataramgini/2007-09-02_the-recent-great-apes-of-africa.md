@@ -1,5 +1,5 @@
 +++
-title = "The recent great apes ofxa0Africa"
+title = "The recent great apes of Africa"
 
 +++
 Today 4 great apes still survive in Africa all of which share a more

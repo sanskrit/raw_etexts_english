@@ -1,5 +1,5 @@
 +++
-title = "pAkashAstra: Hindu and Hinduized alienxa0food"
+title = "pAkashAstra: Hindu and Hinduized alien food"
 
 +++
 The field of pAkashAstra is well worthy of study as it is dying along

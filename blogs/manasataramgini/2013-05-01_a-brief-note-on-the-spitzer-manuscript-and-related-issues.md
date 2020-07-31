@@ -1,5 +1,5 @@
 +++
-title = "A brief note on the Spitzer manuscript and relatedxa0issues"
+title = "A brief note on the Spitzer manuscript and related issues"
 
 +++
 In his famed kAvya the buddhacharita, ashvagoSha states that when the

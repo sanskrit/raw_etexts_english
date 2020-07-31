@@ -1,5 +1,5 @@
 +++
-title = "Cerebrals or retroflexes inxa0Indo-Aryan"
+title = "Cerebrals or retroflexes in Indo-Aryan"
 
 +++
 A question from R prompted me to look more closely at the formation of

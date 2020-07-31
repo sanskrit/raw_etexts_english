@@ -1,5 +1,5 @@
 +++
-title = "The end of the era of Tamilxa0warlords"
+title = "The end of the era of Tamil warlords"
 
 +++
 The puranAnuru and related puraM texts of early Tamil literature mark

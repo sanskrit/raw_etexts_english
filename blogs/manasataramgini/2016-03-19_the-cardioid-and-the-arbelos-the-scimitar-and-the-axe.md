@@ -1,5 +1,5 @@
 +++
-title = "The cardioid and the arbelos: the scimitar and thexa0axe"
+title = "The cardioid and the arbelos: the scimitar and the axe"
 
 +++
 *The arbelos of Archimedes,*  

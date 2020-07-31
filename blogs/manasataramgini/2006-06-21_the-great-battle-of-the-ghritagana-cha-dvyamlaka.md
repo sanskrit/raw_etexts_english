@@ -1,5 +1,5 @@
 +++
-title = "The great battle of the ghR^itagaNa chaxa0dvyAmlaka"
+title = "The great battle of the ghR^itagaNa cha dvyAmlaka"
 
 +++
 While we were still being relentless hammered by the shiva-yuvatI of

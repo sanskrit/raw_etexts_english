@@ -1,5 +1,5 @@
 +++
-title = "Two squares that sum to axa0cube"
+title = "Two squares that sum to a cube"
 
 +++
 **Introduction**  

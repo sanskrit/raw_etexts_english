@@ -1,5 +1,5 @@
 +++
-title = "Sant Ramadas’ letter toxa0Sambhaji"
+title = "Sant Ramadas’ letter to Sambhaji"
 
 +++
 When Sambhaji seized power he invited his father’s advisor the bhakti

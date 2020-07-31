@@ -1,5 +1,5 @@
 +++
-title = "The tale of thexa0li~Nga"
+title = "The tale of the li~Nga"
 
 +++
 The tale of the li\~Nga as the phallus of shiva is found in several

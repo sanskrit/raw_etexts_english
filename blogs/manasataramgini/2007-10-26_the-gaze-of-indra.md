@@ -1,5 +1,5 @@
 +++
-title = "The gaze ofxa0indra"
+title = "The gaze of indra"
 
 +++
 || sahasrAkShA dhiyaspatI ||  

@@ -1,5 +1,5 @@
 +++
-title = "The mahAmantras of the urvashI prayoga and saubhAgyaxa0sarasvatI"
+title = "The mahAmantras of the urvashI prayoga and saubhAgya sarasvatI"
 
 +++
 The most glorious urvashI is invoked by her mahAmantra:  

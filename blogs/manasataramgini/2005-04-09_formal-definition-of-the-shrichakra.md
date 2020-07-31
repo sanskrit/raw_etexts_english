@@ -1,5 +1,5 @@
 +++
-title = "Formal definition of thexa0shrichakra"
+title = "Formal definition of the shrichakra"
 
 +++
 shrichakra [![Posted by

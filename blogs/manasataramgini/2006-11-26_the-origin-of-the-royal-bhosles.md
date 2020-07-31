@@ -1,5 +1,5 @@
 +++
-title = "The origin of the royalxa0bhosles"
+title = "The origin of the royal bhosles"
 
 +++
 The problem of the origin of the royal Bhosles, or the clan of Shivaji

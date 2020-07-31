@@ -1,5 +1,5 @@
 +++
-title = "Does the bee eater really have a mindxa0?"
+title = "Does the bee eater really have a mind ?"
 
 +++
 Our acquaintance and his field team concluded the following. They

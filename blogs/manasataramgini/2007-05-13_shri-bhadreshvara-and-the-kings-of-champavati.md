@@ -1,5 +1,5 @@
 +++
-title = "shri bhadreshvara and the kings ofxa0champAvatI"
+title = "shri bhadreshvara and the kings of champAvatI"
 
 +++
 [![](https://i1.wp.com/bp1.blogger.com/_ZhvcTTaaD_4/RkdZhI9MdRI/AAAAAAAAAIs/JPg5O8CNiXE/s320/bhadra1.jpg)](http://bp1.blogger.com/_ZhvcTTaaD_4/RkdZhI9MdRI/AAAAAAAAAIs/JPg5O8CNiXE/s1600-h/bhadra1.jpg)

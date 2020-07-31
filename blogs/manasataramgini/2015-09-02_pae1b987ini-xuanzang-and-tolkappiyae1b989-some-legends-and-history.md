@@ -1,5 +1,5 @@
 +++
-title = "Pāṇini, Xuanzang, and Tolkāppiyaṉ: some legends andxa0history"
+title = "Pāṇini, Xuanzang, and Tolkāppiyaṉ: some legends and history"
 
 +++
 [A slightly modified version of article was originally published at

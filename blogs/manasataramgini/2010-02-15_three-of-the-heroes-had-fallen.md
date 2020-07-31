@@ -1,5 +1,5 @@
 +++
-title = "Three of the heroes hadxa0fallen"
+title = "Three of the heroes had fallen"
 
 +++
 He had become a powerful yogin but had not acquired j\~nAna. He had

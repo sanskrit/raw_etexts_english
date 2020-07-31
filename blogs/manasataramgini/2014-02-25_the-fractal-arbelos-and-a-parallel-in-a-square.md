@@ -1,5 +1,5 @@
 +++
-title = "The fractal Arbelos and a parallel in axa0square"
+title = "The fractal Arbelos and a parallel in a square"
 
 +++
 [![](https://lh6.googleusercontent.com/-FXjTPn09z6w/Uwwp4NeFYJI/AAAAAAAAC3w/q5fu2QVqtwY/s800/Arbelos.jpg)](https://picasaweb.google.com/lh/photo/j-8Pm6FcJLt32HS-tw0I99MTjNZETYmyPJy0liipFm0?feat=embedwebsite)

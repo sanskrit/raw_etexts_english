@@ -1,5 +1,5 @@
 +++
-title = "Chinese incursion of 2013: Just thexa0beginning?"
+title = "Chinese incursion of 2013: Just the beginning?"
 
 +++
 Hindus face three major civilizational threats – two from the

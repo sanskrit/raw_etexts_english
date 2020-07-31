@@ -1,5 +1,5 @@
 +++
-title = "A Sanskrit history of the conquest ofxa0parNAla-parvata"
+title = "A Sanskrit history of the conquest of parNAla-parvata"
 
 +++
 “Brahmins do not have it in them to fight” was a common refrain I had

@@ -1,5 +1,5 @@
 +++
-title = "A local pantheon ofxa0mallaNNa"
+title = "A local pantheon of mallaNNa"
 
 +++
 A train of thought culminated in me remembering the peculiar case of the

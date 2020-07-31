@@ -1,5 +1,5 @@
 +++
-title = "The primal shrine ofxa0vighnadeva"
+title = "The primal shrine of vighnadeva"
 
 +++
 We pay obscience to the terrible medholka, who is surrounded by the

@@ -1,5 +1,5 @@
 +++
-title = "Genes affecting humanxa0intelligence"
+title = "Genes affecting human intelligence"
 
 +++
 Most people know that there is something tangible called intelligence.

@@ -1,5 +1,5 @@
 +++
-title = "Bow-making in Hinduxa0lore"
+title = "Bow-making in Hindu lore"
 
 +++
 The making of the bow is discussed in dhanurveda.  

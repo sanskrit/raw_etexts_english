@@ -1,5 +1,5 @@
 +++
-title = "The remarkable behavior of a map displaying derived from a simple model for a biologicalxa0conflict"
+title = "The remarkable behavior of a map displaying derived from a simple model for a biological conflict"
 
 +++
 One of the simplest yet profound mathematical models for biological

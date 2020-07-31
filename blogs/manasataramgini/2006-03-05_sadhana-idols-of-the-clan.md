@@ -1,5 +1,5 @@
 +++
-title = "sAdhana idols of thexa0clan"
+title = "sAdhana idols of the clan"
 
 +++
 A number of idols have been routinely used by my family in various

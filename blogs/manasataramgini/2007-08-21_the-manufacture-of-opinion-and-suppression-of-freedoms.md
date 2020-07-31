@@ -1,5 +1,5 @@
 +++
-title = "The manufacture of opinion and suppression ofxa0freedoms"
+title = "The manufacture of opinion and suppression of freedoms"
 
 +++
 Many years ago I was being subject to an English examination by an

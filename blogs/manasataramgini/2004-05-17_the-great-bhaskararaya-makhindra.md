@@ -1,5 +1,5 @@
 +++
-title = "The great bhAskararAyaxa0makhIndra"
+title = "The great bhAskararAya makhIndra"
 
 +++
 The redoubtable bhAskararAya was one of the greatest shrauta sacrificers

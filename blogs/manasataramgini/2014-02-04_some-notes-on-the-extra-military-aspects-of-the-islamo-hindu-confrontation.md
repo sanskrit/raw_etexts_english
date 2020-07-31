@@ -1,5 +1,5 @@
 +++
-title = "Some notes on the extra-military aspects of the Islamo-Hinduxa0confrontation"
+title = "Some notes on the extra-military aspects of the Islamo-Hindu confrontation"
 
 +++
 Under the modern Indian practice of secularism it is common to hold the

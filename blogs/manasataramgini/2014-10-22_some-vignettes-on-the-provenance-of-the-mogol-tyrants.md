@@ -1,5 +1,5 @@
 +++
-title = "Some vignettes on the provenance of the Mogolxa0tyrants"
+title = "Some vignettes on the provenance of the Mogol tyrants"
 
 +++
 Published first in a slightly modified form at

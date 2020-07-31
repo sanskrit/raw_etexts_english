@@ -1,5 +1,5 @@
 +++
-title = "The affinities of the phorusrhacids and the second attempt of thexa0dinosaurs"
+title = "The affinities of the phorusrhacids and the second attempt of the dinosaurs"
 
 +++
 For about 150 million years, during the Mesozoic, archosaurs of the

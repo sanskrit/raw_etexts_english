@@ -1,5 +1,5 @@
 +++
-title = "3 kaumAra yantras with tangent circularxa0curves"
+title = "3 kaumAra yantras with tangent circular curves"
 
 +++
 [![](https://i1.wp.com/bp1.blogger.com/_hjuA1bE0hBw/R54jTVPQosI/AAAAAAAAAB8/4roD8EDG2aE/s320/kumAra_vRiddhi.png)](http://bp1.blogger.com/_hjuA1bE0hBw/R54jTVPQosI/AAAAAAAAAB8/4roD8EDG2aE/s1600-h/kumAra_vRiddhi.png)  

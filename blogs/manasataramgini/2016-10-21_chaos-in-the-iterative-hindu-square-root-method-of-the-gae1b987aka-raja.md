@@ -1,5 +1,5 @@
 +++
-title = "Chaos in the iterative Hindu square root method of thexa0gaṇaka-rāja"
+title = "Chaos in the iterative Hindu square root method of the gaṇaka-rāja"
 
 +++
 For Hindus big numbers always mattered and our mathematics is quite

@@ -1,5 +1,5 @@
 +++
-title = "Time, world history, or the lackxa0thereof"
+title = "Time, world history, or the lack thereof"
 
 +++
 Many years ago in our old home we came across a book won by the

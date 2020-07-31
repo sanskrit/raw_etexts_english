@@ -1,5 +1,5 @@
 +++
-title = "The primitive ape, the red ape andxa0Sivapithecus"
+title = "The primitive ape, the red ape and Sivapithecus"
 
 +++
 Long ago in our earliest youth, we were fascinated to no end by the

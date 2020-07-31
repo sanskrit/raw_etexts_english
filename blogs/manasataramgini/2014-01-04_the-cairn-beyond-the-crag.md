@@ -1,5 +1,5 @@
 +++
-title = "The cairn beyond thexa0crag"
+title = "The cairn beyond the crag"
 
 +++
 It was the an early Indian summer morning. The type that makes one rise

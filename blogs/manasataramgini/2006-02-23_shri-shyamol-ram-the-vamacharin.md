@@ -1,5 +1,5 @@
 +++
-title = "shri shyAmol rAm thexa0vAmAchArin"
+title = "shri shyAmol rAm the vAmAchArin"
 
 +++
 R, narrated to me a remarkable tale that with her due acquiscience I

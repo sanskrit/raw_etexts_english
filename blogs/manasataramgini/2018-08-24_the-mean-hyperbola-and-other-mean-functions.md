@@ -1,5 +1,5 @@
 +++
-title = "The mean hyperbola and other meanxa0functions"
+title = "The mean hyperbola and other mean functions"
 
 +++
 Let ![a,

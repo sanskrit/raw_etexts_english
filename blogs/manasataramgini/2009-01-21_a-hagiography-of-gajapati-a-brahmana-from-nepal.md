@@ -1,5 +1,5 @@
 +++
-title = "A hagiography of gajapati, a brAhmaNa fromxa0Nepal"
+title = "A hagiography of gajapati, a brAhmaNa from Nepal"
 
 +++
 Though pursued by the grAhin like a sparrow by a hawk, we felt we should

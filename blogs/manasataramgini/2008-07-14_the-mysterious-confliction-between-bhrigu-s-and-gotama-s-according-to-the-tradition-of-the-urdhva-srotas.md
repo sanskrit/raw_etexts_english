@@ -1,5 +1,5 @@
 +++
-title = "The mysterious conflict between bhR^igu-s and gotama-s according to the tradition of thexa0Urdhva-srotas"
+title = "The mysterious conflict between bhR^igu-s and gotama-s according to the tradition of the Urdhva-srotas"
 
 +++
 In the R^igveda the gotama-s repeatedly and respectfully mention the

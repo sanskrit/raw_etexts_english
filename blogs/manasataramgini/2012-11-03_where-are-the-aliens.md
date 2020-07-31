@@ -1,5 +1,5 @@
 +++
-title = "Where are thexa0aliens?"
+title = "Where are the aliens?"
 
 +++
 One thing that dawned on us from our explorations of life was that

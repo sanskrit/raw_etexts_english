@@ -1,5 +1,5 @@
 +++
-title = "early kaumAra iconography fromxa0Mathura"
+title = "early kaumAra iconography from Mathura"
 
 +++
 [![kaumAra\_grahas](https://manasataramgini.files.wordpress.com/2010/02/kaumara_grahas.jpg?w=640)](https://manasataramgini.files.wordpress.com/2010/02/kaumara_grahas.jpg)  

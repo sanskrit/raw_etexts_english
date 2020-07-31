@@ -1,5 +1,5 @@
 +++
-title = "Memories of old geometricxa0fancies"
+title = "Memories of old geometric fancies"
 
 +++
 [![](https://i1.wp.com/bp1.blogger.com/_ZhvcTTaaD_4/RoxRIe2Ko6I/AAAAAAAAALk/fjfcUfQPpX4/s320/superellipse.png)](http://bp1.blogger.com/_ZhvcTTaaD_4/RoxRIe2Ko6I/AAAAAAAAALk/fjfcUfQPpX4/s1600-h/superellipse.png)We

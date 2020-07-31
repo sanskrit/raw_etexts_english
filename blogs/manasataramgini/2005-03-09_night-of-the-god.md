@@ -1,5 +1,5 @@
 +++
-title = "Night of Thexa0god"
+title = "Night of The god"
 
 +++
 oM atitIkShNa mahAkAya kalpAntadahanopama jha\~NkAra-bhairavAya

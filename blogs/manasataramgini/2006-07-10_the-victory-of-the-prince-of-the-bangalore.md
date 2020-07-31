@@ -1,5 +1,5 @@
 +++
-title = "The victory of the prince of thexa0Bangalore"
+title = "The victory of the prince of the Bangalore"
 
 +++
 If am writing this it really means I am wasting time. Since I have done

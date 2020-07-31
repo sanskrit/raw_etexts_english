@@ -1,5 +1,5 @@
 +++
-title = "Tyrannosaurs and morphological evolution inxa0coelurosaurs"
+title = "Tyrannosaurs and morphological evolution in coelurosaurs"
 
 +++
 The recent find of the tyrannosaur Guanlong going back to the late

@@ -1,5 +1,5 @@
 +++
-title = "The nakshatra kalpa of the Atharvaxa0veda"
+title = "The nakshatra kalpa of the Atharva veda"
 
 +++
 The nakshatra kalpa of the Atharva veda that is considered the first

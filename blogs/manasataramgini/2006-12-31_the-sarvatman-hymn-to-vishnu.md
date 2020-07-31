@@ -1,5 +1,5 @@
 +++
-title = "The sarvAtman hymn toxa0viShNu"
+title = "The sarvAtman hymn to viShNu"
 
 +++
 The sarvAtmAn hymn to viShNu shows some variations between recensions

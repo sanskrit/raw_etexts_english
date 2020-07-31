@@ -1,5 +1,5 @@
 +++
-title = "Crocodiles in the shadow of thexa0dinosaurs"
+title = "Crocodiles in the shadow of the dinosaurs"
 
 +++
 [![crocs-2](https://i0.wp.com/farm5.static.flickr.com/4044/4240078138_e4629b6bf4.jpg)](http://www.flickr.com/photos/24766652@N05/4240078138/ "crocs-2 by somasushma, on Flickr")  

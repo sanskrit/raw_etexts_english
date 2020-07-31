@@ -1,5 +1,5 @@
 +++
-title = "Viṣṇu, the Marut-s andxa0Rudra"
+title = "Viṣṇu, the Marut-s and Rudra"
 
 +++
 This note might be read as a continuation of the these two earlier

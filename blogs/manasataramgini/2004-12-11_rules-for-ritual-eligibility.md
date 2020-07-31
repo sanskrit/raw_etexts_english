@@ -1,5 +1,5 @@
 +++
-title = "Rules for ritualxa0eligibility"
+title = "Rules for ritual eligibility"
 
 +++
 There is considerable debate about who is eligible for vedic rites. The

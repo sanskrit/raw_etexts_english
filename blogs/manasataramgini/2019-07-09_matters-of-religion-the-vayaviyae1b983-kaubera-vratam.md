@@ -1,5 +1,5 @@
 +++
-title = "Matters of religion: the Vāyavīyaṃxa0Kaubera-vratam"
+title = "Matters of religion: the Vāyavīyaṃ Kaubera-vratam"
 
 +++
 The bus came to halt at the underground stop. Vrishchika of pretty

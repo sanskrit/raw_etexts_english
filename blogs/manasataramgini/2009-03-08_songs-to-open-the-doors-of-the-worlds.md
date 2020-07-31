@@ -1,5 +1,5 @@
 +++
-title = "Songs to open the doors of thexa0worlds"
+title = "Songs to open the doors of the worlds"
 
 +++
 The 4 gAna-s that comprise the vaishadeva series are based on the code

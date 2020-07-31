@@ -1,5 +1,5 @@
 +++
-title = "On feathers, fleas and big stemxa0birds"
+title = "On feathers, fleas and big stem birds"
 
 +++
 Should the Mesozoic dinosaurs have been depicted with feathers or not?

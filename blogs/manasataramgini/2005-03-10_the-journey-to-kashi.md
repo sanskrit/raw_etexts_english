@@ -1,5 +1,5 @@
 +++
-title = "The journey toxa0Kashi"
+title = "The journey to Kashi"
 
 +++
 Since the Atman, which merely watches, is poised to cast away its

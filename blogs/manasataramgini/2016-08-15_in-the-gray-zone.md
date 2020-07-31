@@ -1,5 +1,5 @@
 +++
-title = "In the grayxa0zone"
+title = "In the gray zone"
 
 +++
 Among the thinkers of the modern Occident one may take note of the

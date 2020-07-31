@@ -1,5 +1,5 @@
 +++
-title = "The confluence of fourxa0paths"
+title = "The confluence of four paths"
 
 +++
 The vaiShNava during his perambulations in Central Asia had noted two

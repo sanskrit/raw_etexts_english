@@ -1,5 +1,5 @@
 +++
-title = "Hindu setbacks in confronting the mlechChaxa0va~nchaka-s"
+title = "Hindu setbacks in confronting the mlechCha va~nchaka-s"
 
 +++
 The news reached us through certain channels that the Hindu-s had met a

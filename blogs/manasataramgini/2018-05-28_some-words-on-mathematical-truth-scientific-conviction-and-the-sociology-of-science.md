@@ -1,5 +1,5 @@
 +++
-title = "Some words on mathematical truth, scientific conviction and the sociology ofxa0science"
+title = "Some words on mathematical truth, scientific conviction and the sociology of science"
 
 +++
 Sometime in the bronze age more than one group of humans, including our

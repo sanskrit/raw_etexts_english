@@ -1,5 +1,5 @@
 +++
-title = "Conic conquests: biographical andxa0historical"
+title = "Conic conquests: biographical and historical"
 
 +++
 [PDF file of same

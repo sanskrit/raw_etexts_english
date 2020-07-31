@@ -1,5 +1,5 @@
 +++
-title = "The beginning of bhArgava tradition ofxa0bhUta-DAmara"
+title = "The beginning of bhArgava tradition of bhUta-DAmara"
 
 +++
 The preliminary section of the bhUtaDAmaraM with the vajra-maNDala

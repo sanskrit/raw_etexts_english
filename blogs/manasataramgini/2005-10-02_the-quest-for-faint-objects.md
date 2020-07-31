@@ -1,5 +1,5 @@
 +++
-title = "The quest for faintxa0objects"
+title = "The quest for faint objects"
 
 +++
 In the great expedition of last night the following unusually faint

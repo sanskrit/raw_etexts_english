@@ -1,5 +1,5 @@
 +++
-title = "Panchatantra- India’s great product: origin andxa0evolution"
+title = "Panchatantra- India’s great product: origin and evolution"
 
 +++
 ****What were the origins of the pa\~nchatantra (PT) of the great

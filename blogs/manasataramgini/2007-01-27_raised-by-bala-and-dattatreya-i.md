@@ -1,5 +1,5 @@
 +++
-title = "Raised by bAlA andxa0dattAtreya-I"
+title = "Raised by bAlA and dattAtreya-I"
 
 +++
 In the hot plain to the north of the Wardha river, in the village of

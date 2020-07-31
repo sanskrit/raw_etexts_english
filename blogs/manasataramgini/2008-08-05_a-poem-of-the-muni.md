@@ -1,5 +1,5 @@
 +++
-title = "A poem by thexa0muni"
+title = "A poem by the muni"
 
 +++
 That muni, enlightened in the lore, but leading the ways of a vrAtya

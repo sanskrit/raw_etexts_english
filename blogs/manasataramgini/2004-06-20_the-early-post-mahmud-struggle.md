@@ -1,5 +1,5 @@
 +++
-title = "The early Post-Mahmudxa0struggle"
+title = "The early Post-Mahmud struggle"
 
 +++
 One area where most Indian historians and writers of history text books

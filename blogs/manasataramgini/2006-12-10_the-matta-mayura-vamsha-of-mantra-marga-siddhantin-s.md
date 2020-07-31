@@ -1,5 +1,5 @@
 +++
-title = "The matta-mayUra vaMsha of mantra mArgaxa0siddhAntin-s"
+title = "The matta-mayUra vaMsha of mantra mArga siddhAntin-s"
 
 +++
 An important, but neglected aspect of the history of India before the

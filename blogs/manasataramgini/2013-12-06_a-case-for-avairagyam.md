@@ -1,5 +1,5 @@
 +++
-title = "A case forxa0avairAgyaM?"
+title = "A case for avairAgyaM?"
 
 +++
 The teacher had renounced worldly life and become a saffron-robed yati.

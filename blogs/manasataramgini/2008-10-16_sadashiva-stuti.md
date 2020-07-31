@@ -1,5 +1,5 @@
 +++
-title = "sadAshiva stuti and otherxa0issues"
+title = "sadAshiva stuti and other issues"
 
 +++
 From miThThu’s citation we get this version of the sadAshiva stuti:

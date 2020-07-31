@@ -1,5 +1,5 @@
 +++
-title = "shrI sUkta of thexa0R^igveda"
+title = "shrI sUkta of the R^igveda"
 
 +++
 The celebrated shrI sUkta has spread widely beyond its original role in

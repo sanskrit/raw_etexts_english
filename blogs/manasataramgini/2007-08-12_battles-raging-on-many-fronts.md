@@ -1,5 +1,5 @@
 +++
-title = "Battles raging on manyxa0fronts"
+title = "Battles raging on many fronts"
 
 +++
 On the front of jIva-sUtra parama padAratha we had faced a terrible

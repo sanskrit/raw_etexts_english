@@ -1,5 +1,5 @@
 +++
-title = "The ditty of the desertxa0road"
+title = "The ditty of the desert road"
 
 +++
 He who eats once is a tyāgin;  

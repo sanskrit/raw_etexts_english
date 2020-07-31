@@ -1,5 +1,5 @@
 +++
-title = "A biographical journey from conics toxa0ovals"
+title = "A biographical journey from conics to ovals"
 
 +++
 As this article needed a lot of figures with some mathematical notation

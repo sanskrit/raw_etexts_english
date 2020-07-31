@@ -1,5 +1,5 @@
 +++
-title = "The engineer, the dead fish and the bag ofxa0earth-IV"
+title = "The engineer, the dead fish and the bag of earth-IV"
 
 +++
 [From chapter

@@ -1,5 +1,5 @@
 +++
-title = "French wine: practicalxa0symbolism?"
+title = "French wine: practical symbolism?"
 
 +++
 Malhotra had once mentioned in his blog that French wine may be a major

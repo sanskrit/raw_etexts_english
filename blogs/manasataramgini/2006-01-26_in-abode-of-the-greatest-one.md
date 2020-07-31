@@ -1,5 +1,5 @@
 +++
-title = "In abode of the greatestxa0one"
+title = "In abode of the greatest one"
 
 +++
 vishvasmAd indra uttaraH |  

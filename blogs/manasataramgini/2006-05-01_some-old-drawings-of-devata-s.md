@@ -1,5 +1,5 @@
 +++
-title = "Some old drawings ofxa0devatA-s"
+title = "Some old drawings of devatA-s"
 
 +++
 [![](https://i1.wp.com/photos1.blogger.com/blogger/2010/410/320/deva1_small.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/deva1_small.jpg)

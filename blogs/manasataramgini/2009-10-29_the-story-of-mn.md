@@ -1,5 +1,5 @@
 +++
-title = "The story ofxa0Mn"
+title = "The story of Mn"
 
 +++
 We have referred to Mn under many disguises. He was and remains the

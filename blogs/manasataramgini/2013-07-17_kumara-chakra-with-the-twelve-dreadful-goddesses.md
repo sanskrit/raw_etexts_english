@@ -1,5 +1,5 @@
 +++
-title = "kumAra chakra with the twelve dreadfulxa0goddesses"
+title = "kumAra chakra with the twelve dreadful goddesses"
 
 +++
 The account of the mantra practice of these kaumAra goddesses was

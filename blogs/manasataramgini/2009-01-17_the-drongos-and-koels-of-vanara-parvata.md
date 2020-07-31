@@ -1,5 +1,5 @@
 +++
-title = "The drongos and koels ofxa0vAnara-parvata"
+title = "The drongos and koels of vAnara-parvata"
 
 +++
 In the long past I had made acquaintance with some extant dinosaurs on

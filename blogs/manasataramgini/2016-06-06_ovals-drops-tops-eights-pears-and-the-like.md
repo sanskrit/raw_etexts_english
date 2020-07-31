@@ -1,5 +1,5 @@
 +++
-title = "Ovals, drops, tops, eights, pears and thexa0like"
+title = "Ovals, drops, tops, eights, pears and the like"
 
 +++
 [Ovals, drops, tops, eights, pears and the

@@ -1,5 +1,5 @@
 +++
-title = "Some more special idols worshipped in thexa0family"
+title = "Some more special idols worshipped in the family"
 
 +++
 ![](https://i1.wp.com/photos1.blogger.com/blogger/2010/410/320/chakranArAyaNa_frame.jpg)

@@ -1,5 +1,5 @@
 +++
-title = "The shR^i~NgAra katha of kumAra from the islander’sxa0narrative"
+title = "The shR^i~NgAra katha of kumAra from the islander’s narrative"
 
 +++
 In later northern Indian tradition a euphemistic transformation was

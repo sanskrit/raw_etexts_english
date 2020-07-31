@@ -1,5 +1,5 @@
 +++
-title = "The paschimaugha of the mAnavaugha of thexa0kaumaras"
+title = "The paschimaugha of the mAnavaugha of the kaumaras"
 
 +++
 We were told that there was the lost temple of the pashchimaugha. After

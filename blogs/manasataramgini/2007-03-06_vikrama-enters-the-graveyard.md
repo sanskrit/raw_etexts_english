@@ -1,5 +1,5 @@
 +++
-title = "vikrama enters thexa0graveyard"
+title = "vikrama enters the graveyard"
 
 +++
 tataH shamashAnam saMprApa niHsha\~Nko bhuta-saMkulaM  

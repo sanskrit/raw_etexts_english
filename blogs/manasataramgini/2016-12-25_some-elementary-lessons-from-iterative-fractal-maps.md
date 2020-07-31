@@ -1,5 +1,5 @@
 +++
-title = "Some elementary lessons from iterative fractalxa0maps"
+title = "Some elementary lessons from iterative fractal maps"
 
 +++
 The famous Sierpinski gasket was one of the first fractals we wrote code

@@ -1,5 +1,5 @@
 +++
-title = "Another piece of kAvya by thexa0muni"
+title = "Another piece of kAvya by the muni"
 
 +++
 The muni and me, who are like one atmAn in two different sharIra-s;

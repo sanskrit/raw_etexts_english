@@ -1,5 +1,5 @@
 +++
-title = "The other vIraxa0appears"
+title = "The other vIra appears"
 
 +++
 All the vIra-s had been attacked by the prayoga-s of the ari-s as

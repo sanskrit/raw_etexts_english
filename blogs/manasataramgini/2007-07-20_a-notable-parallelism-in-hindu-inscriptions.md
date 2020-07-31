@@ -1,5 +1,5 @@
 +++
-title = "A notable parallelism in Hinduxa0inscriptions"
+title = "A notable parallelism in Hindu inscriptions"
 
 +++
 After the whirlwind of Islam under the dreadful Alla-ad-din Khalji had

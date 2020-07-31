@@ -1,5 +1,5 @@
 +++
-title = "A pAshupata temple desecrated by Mahmudxa0Begarha"
+title = "A pAshupata temple desecrated by Mahmud Begarha"
 
 +++
 [![](https://i0.wp.com/farm4.static.flickr.com/3007/2736507265_fb582211db_b.jpg)](http://farm4.static.flickr.com/3007/2736507265_fb582211db_b.jpg)

@@ -1,5 +1,5 @@
 +++
-title = "Watching the kaNTaka-s andxa0AkrAnta-s"
+title = "Watching the kaNTaka-s and AkrAnta-s"
 
 +++
 The pleonastic writings on geopolitics on these pages can be avoided

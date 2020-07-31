@@ -1,5 +1,5 @@
 +++
-title = "End of the Maharattas –xa0I"
+title = "End of the Maharattas – I"
 
 +++
 An important lesson is there to be learnt from what happened between

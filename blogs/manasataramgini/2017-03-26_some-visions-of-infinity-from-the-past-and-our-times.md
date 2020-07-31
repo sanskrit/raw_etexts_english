@@ -1,5 +1,5 @@
 +++
-title = "Some visions of infinity from the past and ourxa0times"
+title = "Some visions of infinity from the past and our times"
 
 +++
 The great Hindu mathematician and astronomer Bhāskara-II’s work

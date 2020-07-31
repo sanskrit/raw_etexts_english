@@ -1,5 +1,5 @@
 +++
-title = "A Japanese gANApatyaxa0text"
+title = "A Japanese gANApatya text"
 
 +++
 One of the unusual tantra inspired texts from Japan that shows the

@@ -1,5 +1,5 @@
 +++
-title = "penance for illicitxa0foods"
+title = "penance for illicit foods"
 
 +++
 1.1) drinking vAruNi beer inadvertantly: Has to have to undergo a new

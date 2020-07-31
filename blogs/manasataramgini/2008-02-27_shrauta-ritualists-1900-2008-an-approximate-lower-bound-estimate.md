@@ -1,5 +1,5 @@
 +++
-title = "shrauta ritualists 1900-2008- an approximate lower boundxa0estimate"
+title = "shrauta ritualists 1900-2008- an approximate lower bound estimate"
 
 +++
 I have seen a bunch of estimates by Kashikar et al, Kannan and via

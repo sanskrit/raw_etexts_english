@@ -1,5 +1,5 @@
 +++
-title = "Braided power: a brief note on the last great steppe power: the Mongol-Manchuxa0system"
+title = "Braided power: a brief note on the last great steppe power: the Mongol-Manchu system"
 
 +++
 We first read of matters pertaining to this note which some interest in

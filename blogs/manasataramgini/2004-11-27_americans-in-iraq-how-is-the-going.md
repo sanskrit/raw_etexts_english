@@ -1,5 +1,5 @@
 +++
-title = "Americans in Iraq: how is thexa0going?"
+title = "Americans in Iraq: how is the going?"
 
 +++
 With Bush firmly in power, we need to see how things are going for the

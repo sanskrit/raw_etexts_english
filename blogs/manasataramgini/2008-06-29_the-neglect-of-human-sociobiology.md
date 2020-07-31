@@ -1,5 +1,5 @@
 +++
-title = "The neglect of humanxa0sociobiology"
+title = "The neglect of human sociobiology"
 
 +++
 I was at a workshop on new channels of scientific communication. One big

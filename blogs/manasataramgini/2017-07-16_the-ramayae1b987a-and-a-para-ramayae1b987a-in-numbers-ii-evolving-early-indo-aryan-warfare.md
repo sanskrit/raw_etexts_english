@@ -1,5 +1,5 @@
 +++
-title = "The Rāmāyaṇa and a para-Rāmāyaṇa in numbers-II: Evolving early Indo-Aryanxa0warfare"
+title = "The Rāmāyaṇa and a para-Rāmāyaṇa in numbers-II: Evolving early Indo-Aryan warfare"
 
 +++
 This article might be read in as a continuation of [this earlier

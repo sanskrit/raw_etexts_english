@@ -1,5 +1,5 @@
 +++
-title = "When chimps and men stoppedxa0mating"
+title = "When chimps and men stopped mating"
 
 +++
 Chimps and humans are so close that I had wondered since my school days

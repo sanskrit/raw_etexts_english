@@ -1,5 +1,5 @@
 +++
-title = "Yet another geopoliticalxa0yarn"
+title = "Yet another geopolitical yarn"
 
 +++
 As the va\~Nga paNDita said it is no more fun to talk of geopolitics for

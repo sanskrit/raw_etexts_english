@@ -1,5 +1,5 @@
 +++
-title = "The struggle againstxa0Qamar-ad-din."
+title = "The struggle against Qamar-ad-din."
 
 +++
 The heartland of the Chagadai khanate- Mogholistan lay in the land

@@ -1,5 +1,5 @@
 +++
-title = "somadeva of AravIDu and the freedomxa0struggle"
+title = "somadeva of AravIDu and the freedom struggle"
 
 +++
 Around 1326 Mohammed ibn Tughlaq dispatched dispatched two Turkic ghazis

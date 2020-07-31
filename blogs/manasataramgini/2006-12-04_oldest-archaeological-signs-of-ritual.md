@@ -1,5 +1,5 @@
 +++
-title = "Oldest archaeological signs ofxa0ritual?"
+title = "Oldest archaeological signs of ritual?"
 
 +++
 When did human rituals begin? As a ritualist and evolutionary explorer

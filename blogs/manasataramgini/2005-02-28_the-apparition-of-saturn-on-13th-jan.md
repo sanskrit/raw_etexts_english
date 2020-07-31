@@ -1,5 +1,5 @@
 +++
-title = "The apparition of Saturn on 13thxa0Jan."
+title = "The apparition of Saturn on 13th Jan."
 
 +++
 Saturn was at its closest on 13th. Marc spent a while observing it with

@@ -1,5 +1,5 @@
 +++
-title = "abhinavagupta on thexa0deha"
+title = "abhinavagupta on the deha"
 
 +++
 I was reminded of a statement of abhinavagupta in the tantrAloka due to

@@ -1,5 +1,5 @@
 +++
-title = "The Anglosphere and India: newxa0events"
+title = "The Anglosphere and India: new events"
 
 +++
 One cannot rule out a complex ploy by the US decision-makers (the inner

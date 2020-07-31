@@ -1,5 +1,5 @@
 +++
-title = "The pAshupata-brahmopaniShat (pAshupata brahma [brAhmaNo] upaniShad;xa0PBU)"
+title = "The pAshupata-brahmopaniShat (pAshupata brahma [brAhmaNo] upaniShad; PBU)"
 
 +++
 The pAshupata-brahmopaniShat (pAshupata brahma \[brAhmaNo\] upaniShad;

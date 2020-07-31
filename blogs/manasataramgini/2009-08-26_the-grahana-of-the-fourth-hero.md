@@ -1,5 +1,5 @@
 +++
-title = "The grahaNa of the fourthxa0hero"
+title = "The grahaNa of the fourth hero"
 
 +++
 We learned that the amAtya was caught up with completing the devotions

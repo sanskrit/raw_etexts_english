@@ -1,5 +1,5 @@
 +++
-title = "Meanderings in the vedAnta-nAstikaxa0interface"
+title = "Meanderings in the vedAnta-nAstika interface"
 
 +++
 One of the central figures of classical advaita vedAnta is the AchArya

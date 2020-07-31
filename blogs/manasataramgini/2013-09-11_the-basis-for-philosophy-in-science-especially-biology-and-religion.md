@@ -1,5 +1,5 @@
 +++
-title = "The basis for philosophy in science (especially biology) andxa0religion"
+title = "The basis for philosophy in science (especially biology) and religion"
 
 +++
 We did not want to write this epistle as we have said things along these

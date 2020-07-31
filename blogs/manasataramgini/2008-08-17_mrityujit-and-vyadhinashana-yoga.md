@@ -1,5 +1,5 @@
 +++
-title = "mR^ityujit and vyAdhinAshanaxa0yoga"
+title = "mR^ityujit and vyAdhinAshana yoga"
 
 +++
 R1’s father mentioned that a good tAntrIka is one who can prognosticate

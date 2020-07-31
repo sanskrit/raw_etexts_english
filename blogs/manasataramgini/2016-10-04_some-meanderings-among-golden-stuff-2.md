@@ -1,5 +1,5 @@
 +++
-title = "Some meanderings among goldenxa0stuff-2"
+title = "Some meanderings among golden stuff-2"
 
 +++
 Related stuff:  

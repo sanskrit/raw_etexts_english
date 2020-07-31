@@ -1,5 +1,5 @@
 +++
-title = "A few notes related to bhAskararAyaxa0makhindra"
+title = "A few notes related to bhAskararAya makhindra"
 
 +++
 We had earlier reconstructed a narrative on the illustrious bhAskararAya

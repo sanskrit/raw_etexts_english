@@ -1,5 +1,5 @@
 +++
-title = "Some icons fromxa0Nepal"
+title = "Some icons from Nepal"
 
 +++
 ![](https://i0.wp.com/farm4.static.flickr.com/3072/2559543403_59d75f9193_o.jpg)

@@ -1,5 +1,5 @@
 +++
-title = "Deliberations on richness and beauty: discovery of some multi-parameter iterativexa0maps"
+title = "Deliberations on richness and beauty: discovery of some multi-parameter iterative maps"
 
 +++
 As we have explained in the earlier notes

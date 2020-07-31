@@ -1,5 +1,5 @@
 +++
-title = "The magic of thexa0deva-ogdoad"
+title = "The magic of the deva-ogdoad"
 
 +++
 Classical Hindu tradition holds that the ogdoad of deva-s corresponding

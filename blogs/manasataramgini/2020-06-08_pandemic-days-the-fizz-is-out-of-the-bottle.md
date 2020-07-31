@@ -1,5 +1,5 @@
 +++
-title = "Pandemic days: the fizz is out of thexa0bottle"
+title = "Pandemic days: the fizz is out of the bottle"
 
 +++
 Just this morning our brother remarked that the fear of the virus has

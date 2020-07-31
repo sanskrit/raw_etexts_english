@@ -1,5 +1,5 @@
 +++
-title = "Notes on miscellaneous brāhmaṇa passages from thexa0Yajurveda"
+title = "Notes on miscellaneous brāhmaṇa passages from the Yajurveda"
 
 +++
 The upasthāna ritual is performed to let the sacrificial fire remain in

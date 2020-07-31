@@ -1,5 +1,5 @@
 +++
-title = "The mechanical, the magical and thexa0fantastic"
+title = "The mechanical, the magical and the fantastic"
 
 +++
 She said: “You had promised the robots of king bhoja even as we had

@@ -1,5 +1,5 @@
 +++
-title = "Zeros of the Zeta function and such metaphysicalxa0wanderings"
+title = "Zeros of the Zeta function and such metaphysical wanderings"
 
 +++
 [![](https://i2.wp.com/bp3.blogger.com/_ZhvcTTaaD_4/RnIkZk5tW9I/AAAAAAAAAK0/feBY8IcpE0U/s320/First200riemann_zeroes.jpg)](http://bp3.blogger.com/_ZhvcTTaaD_4/RnIkZk5tW9I/AAAAAAAAAK0/feBY8IcpE0U/s1600-h/First200riemann_zeroes.jpg)The

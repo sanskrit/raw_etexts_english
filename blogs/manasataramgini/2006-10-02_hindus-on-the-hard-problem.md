@@ -1,5 +1,5 @@
 +++
-title = "Hindus on the hardxa0problem"
+title = "Hindus on the hard problem"
 
 +++
 We had earlier mentioned the interesting discussion we had with Marc and

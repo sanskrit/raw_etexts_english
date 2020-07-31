@@ -1,5 +1,5 @@
 +++
-title = "Al Qaeda revival andxa0India"
+title = "Al Qaeda revival and India"
 
 +++
 Recently Americans have been making noise that the Al Qaeda has been

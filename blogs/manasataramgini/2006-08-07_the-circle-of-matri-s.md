@@ -1,5 +1,5 @@
 +++
-title = "The circle ofxa0mAtR^i-s"
+title = "The circle of mAtR^i-s"
 
 +++
 [![](https://i2.wp.com/photos1.blogger.com/blogger/2010/410/320/88.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/88.jpg)[![](https://i1.wp.com/photos1.blogger.com/blogger/2010/410/320/mothers.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/mothers.jpg)

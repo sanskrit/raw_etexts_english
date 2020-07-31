@@ -1,5 +1,5 @@
 +++
-title = "Division-multiplication parabolas, triplications, and quadraticxa0residues"
+title = "Division-multiplication parabolas, triplications, and quadratic residues"
 
 +++
 **Introduction**

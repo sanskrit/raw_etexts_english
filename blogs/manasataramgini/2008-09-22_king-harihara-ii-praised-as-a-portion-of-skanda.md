@@ -1,5 +1,5 @@
 +++
-title = "King harihara-II praised as a portion ofxa0skanda"
+title = "King harihara-II praised as a portion of skanda"
 
 +++
 The nallur plate of the vijayanagaran king harihara-II praises him as a

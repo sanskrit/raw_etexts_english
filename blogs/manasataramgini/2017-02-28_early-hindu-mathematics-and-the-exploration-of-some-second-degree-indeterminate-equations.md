@@ -1,5 +1,5 @@
 +++
-title = "Early Hindu mathematics and the exploration of some second degree indeterminatexa0equations"
+title = "Early Hindu mathematics and the exploration of some second degree indeterminate equations"
 
 +++
 The following is merely a record of our exploration as a

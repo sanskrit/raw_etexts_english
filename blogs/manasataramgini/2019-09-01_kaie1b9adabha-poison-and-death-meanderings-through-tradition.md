@@ -1,5 +1,5 @@
 +++
-title = "Kaiṭabha, poison and death: meanderings throughxa0tradition"
+title = "Kaiṭabha, poison and death: meanderings through tradition"
 
 +++
 For better reading try [PDF

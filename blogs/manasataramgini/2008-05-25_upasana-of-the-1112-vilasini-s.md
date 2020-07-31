@@ -1,5 +1,5 @@
 +++
-title = "upAsana of the 11/12xa0vilAsinI-s"
+title = "upAsana of the 11/12 vilAsinI-s"
 
 +++
 One of the (apparently) extinct and distinct branches of the kula system

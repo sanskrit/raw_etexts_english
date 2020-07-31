@@ -1,5 +1,5 @@
 +++
-title = "Neuquenraptor argentinus and thexa0deinonychosaurs"
+title = "Neuquenraptor argentinus and the deinonychosaurs"
 
 +++
 Neuquenraptor argentinus [![Posted by

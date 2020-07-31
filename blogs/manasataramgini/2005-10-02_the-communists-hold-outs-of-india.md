@@ -1,5 +1,5 @@
 +++
-title = "The communists hold outs ofxa0India"
+title = "The communists hold outs of India"
 
 +++
 Recently there was a report that the Russians after having buried

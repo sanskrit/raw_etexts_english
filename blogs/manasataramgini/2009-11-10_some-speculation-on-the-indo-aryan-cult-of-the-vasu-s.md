@@ -1,5 +1,5 @@
 +++
-title = "Some speculation on the Indo-Aryan cult of thexa0vasu-s"
+title = "Some speculation on the Indo-Aryan cult of the vasu-s"
 
 +++
 The below material arose as a collaborative venture in course of

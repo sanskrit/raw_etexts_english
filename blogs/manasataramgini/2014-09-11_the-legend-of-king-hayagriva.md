@@ -1,5 +1,5 @@
 +++
-title = "The legend of kingxa0hayagrīva"
+title = "The legend of king hayagrīva"
 
 +++
 First published at

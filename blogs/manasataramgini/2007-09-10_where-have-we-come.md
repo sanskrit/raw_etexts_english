@@ -1,5 +1,5 @@
 +++
-title = "Where have wexa0come?"
+title = "Where have we come?"
 
 +++
 ekanetra brought to mind an old incident. duShTa-putraka, gola-mukha and

@@ -1,5 +1,5 @@
 +++
-title = "Potentially interesting tyrannosauroidxa0scraps"
+title = "Potentially interesting tyrannosauroid scraps"
 
 +++
 Recent dinosaurian discoveries are emphasizing cosmopolitanism against

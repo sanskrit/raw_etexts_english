@@ -1,5 +1,5 @@
 +++
-title = "Chaotic behavior of some floor-squaredxa0maps"
+title = "Chaotic behavior of some floor-squared maps"
 
 +++
 Consider the one dimensional maps of the form:

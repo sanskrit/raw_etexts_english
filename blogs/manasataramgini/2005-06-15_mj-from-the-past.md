@@ -1,5 +1,5 @@
 +++
-title = "MJ from thexa0past"
+title = "MJ from the past"
 
 +++
 shachIva and amAtya met old and witch-like MJ. MJ was a great adversary

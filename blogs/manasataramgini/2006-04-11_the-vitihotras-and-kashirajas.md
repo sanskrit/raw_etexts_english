@@ -1,5 +1,5 @@
 +++
-title = "The vItihotras andxa0kashirAjas"
+title = "The vItihotras and kashirAjas"
 
 +++
 Now we shall narrate the great AkhyAnaM of the vItihotras and the

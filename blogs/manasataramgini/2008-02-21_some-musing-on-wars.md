@@ -1,5 +1,5 @@
 +++
-title = "Some musing onxa0wars"
+title = "Some musing on wars"
 
 +++
 I had never been a good student of recent military history. ekanetra or

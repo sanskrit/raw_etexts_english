@@ -1,5 +1,5 @@
 +++
-title = "The primary tantras ofxa0rudra"
+title = "The primary tantras of rudra"
 
 +++
 urdhvasrotas- siddhAnta tantras  

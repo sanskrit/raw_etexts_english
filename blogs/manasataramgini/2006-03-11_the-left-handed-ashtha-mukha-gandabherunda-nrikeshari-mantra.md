@@ -1,5 +1,5 @@
 +++
-title = "The left-handed aShTha-mukha gaNDabheruNDa nR^ikesharixa0mantra"
+title = "The left-handed aShTha-mukha gaNDabheruNDa nR^ikeshari mantra"
 
 +++
 It is said that there are two emanations of the mantra of the most

@@ -1,5 +1,5 @@
 +++
-title = "A Hindu contribution: the warxa0elephant"
+title = "A Hindu contribution: the war elephant"
 
 +++
 It has often been stated that many of the martial failures of Hindus has

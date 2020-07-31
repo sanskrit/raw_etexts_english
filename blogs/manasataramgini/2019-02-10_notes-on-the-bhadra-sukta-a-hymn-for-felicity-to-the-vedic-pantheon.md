@@ -1,5 +1,5 @@
 +++
-title = "Notes on the Bhadra-sūkta, a hymn for felicity to the Vedicxa0pantheon"
+title = "Notes on the Bhadra-sūkta, a hymn for felicity to the Vedic pantheon"
 
 +++
 For better type-setting and Devanagari rendering use [PDF

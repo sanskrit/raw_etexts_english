@@ -1,5 +1,5 @@
 +++
-title = "Some aspects of vaikhAnasa iconic worship and theirxa0parallels"
+title = "Some aspects of vaikhAnasa iconic worship and their parallels"
 
 +++
 The spread of iconoclastic Zarathushtran and Abrahamistic cults over

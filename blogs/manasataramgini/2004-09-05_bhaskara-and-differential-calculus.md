@@ -1,5 +1,5 @@
 +++
-title = "bhAskara and differentialxa0calculus"
+title = "bhAskara and differential calculus"
 
 +++
 It is fair to state that bhAskara provides a clear description of the

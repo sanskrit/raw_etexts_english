@@ -1,5 +1,5 @@
 +++
-title = "Further notes of the dohA-s ofxa0sarahapAda"
+title = "Further notes of the dohA-s of sarahapAda"
 
 +++
 To

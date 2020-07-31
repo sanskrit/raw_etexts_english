@@ -1,5 +1,5 @@
 +++
-title = "A mysterious verse of axa0siddha"
+title = "A mysterious verse of a siddha"
 
 +++
 The siddha [tirumUlar or

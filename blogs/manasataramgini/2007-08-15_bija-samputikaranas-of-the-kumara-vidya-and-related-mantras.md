@@ -1,5 +1,5 @@
 +++
-title = "bIja saMpuTikaraNas of the kumAra vidyA and relatedxa0mantras"
+title = "bIja saMpuTikaraNas of the kumAra vidyA and related mantras"
 
 +++
 The great kaumAra tAntrika, [rAmAnuja

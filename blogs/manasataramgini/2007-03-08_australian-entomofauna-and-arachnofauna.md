@@ -1,5 +1,5 @@
 +++
-title = "Australian entomofauna andxa0arachnofauna"
+title = "Australian entomofauna and arachnofauna"
 
 +++
 R and Marc had returned after long and were having a chat along with

@@ -1,5 +1,5 @@
 +++
-title = "Some deeds of Bahmanidxa0Sultans-I"
+title = "Some deeds of Bahmanid Sultans-I"
 
 +++
 The Bahmanid sultans were amongst the most monstrous Islamic rulers in

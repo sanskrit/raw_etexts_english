@@ -1,5 +1,5 @@
 +++
-title = "What is ourxa0race?"
+title = "What is our race?"
 
 +++
 Americans are particularly interested in knowing about a person’s race,

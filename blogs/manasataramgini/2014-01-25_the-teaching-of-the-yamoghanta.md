@@ -1,5 +1,5 @@
 +++
-title = "The teaching of thexa0yamoghaNTa"
+title = "The teaching of the yamoghaNTa"
 
 +++
 She said that she was shoNitamekhalA, the barmaid from the glorious

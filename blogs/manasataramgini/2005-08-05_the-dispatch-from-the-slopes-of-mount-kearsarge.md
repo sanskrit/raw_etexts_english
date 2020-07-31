@@ -1,5 +1,5 @@
 +++
-title = "The dispatch from the slopes of Mountxa0Kearsarge"
+title = "The dispatch from the slopes of Mount Kearsarge"
 
 +++
 We circumambulated the large lake at the base of Mount Kearsarge with

@@ -1,5 +1,5 @@
 +++
-title = "A brief overview of the last campaign of Chingiz Khan and the issue of succession in the Mongolxa0empire"
+title = "A brief overview of the last campaign of Chingiz Khan and the issue of succession in the Mongol empire"
 
 +++
 Succession is always an important issue in history. The legacy of a

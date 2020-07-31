@@ -1,5 +1,5 @@
 +++
-title = "Indians:a bunch ofxa0idiots?"
+title = "Indians:a bunch of idiots?"
 
 +++
 A gentleman called Pingree and his lackey called Plofker would like us

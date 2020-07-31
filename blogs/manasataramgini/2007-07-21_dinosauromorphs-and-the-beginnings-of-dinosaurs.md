@@ -1,5 +1,5 @@
 +++
-title = "Dinosauromorphs and the beginnings ofxa0dinosaurs"
+title = "Dinosauromorphs and the beginnings of dinosaurs"
 
 +++
 [![](https://i2.wp.com/bp2.blogger.com/_ZhvcTTaaD_4/RqGmYR_WxfI/AAAAAAAAAMs/HA5HBG9_pew/s320/dinosauromorphs.jpg)](http://bp2.blogger.com/_ZhvcTTaaD_4/RqGmYR_WxfI/AAAAAAAAAMs/HA5HBG9_pew/s1600-h/dinosauromorphs.jpg)

@@ -1,5 +1,5 @@
 +++
-title = "Generalizations of the prime sieve andxa0Pi"
+title = "Generalizations of the prime sieve and Pi"
 
 +++
 [PDF

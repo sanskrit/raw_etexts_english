@@ -1,5 +1,5 @@
 +++
-title = "Some trivia on equilateral triangles and thexa0like"
+title = "Some trivia on equilateral triangles and the like"
 
 +++
 One may ask why one needs to revisit elementary geometry that was

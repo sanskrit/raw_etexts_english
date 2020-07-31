@@ -1,5 +1,5 @@
 +++
-title = "The big and small ofxa0theropods"
+title = "The big and small of theropods"
 
 +++
 [![](https://i2.wp.com/bp3.blogger.com/_ZhvcTTaaD_4/Rn1Nv05tXAI/AAAAAAAAALM/rxvTZMzZ1Jo/s320/majungasaurus.jpg)](http://bp3.blogger.com/_ZhvcTTaaD_4/Rn1Nv05tXAI/AAAAAAAAALM/rxvTZMzZ1Jo/s1600-h/majungasaurus.jpg)

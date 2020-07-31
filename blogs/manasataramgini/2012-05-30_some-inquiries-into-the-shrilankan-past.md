@@ -1,5 +1,5 @@
 +++
-title = "Some inquiries into the shrIlankanxa0past"
+title = "Some inquiries into the shrIlankan past"
 
 +++
 Whereas Hinduson the mainland in white indological parlance  are reputed

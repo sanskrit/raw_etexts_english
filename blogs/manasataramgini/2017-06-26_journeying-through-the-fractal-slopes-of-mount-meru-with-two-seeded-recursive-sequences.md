@@ -1,5 +1,5 @@
 +++
-title = "Journeying through the fractal slopes of mount Meru with two-seeded recursivexa0sequences"
+title = "Journeying through the fractal slopes of mount Meru with two-seeded recursive sequences"
 
 +++
 The Hindus have been fascinated by sequences and series from the

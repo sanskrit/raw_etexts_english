@@ -1,5 +1,5 @@
 +++
-title = "A tAntrika interpretation of vaidikaxa0mantra"
+title = "A tAntrika interpretation of vaidika mantra"
 
 +++
 Having completed the second circle we mediated up on the might of the

@@ -1,5 +1,5 @@
 +++
-title = "The battle ofxa0Talas"
+title = "The battle of Talas"
 
 +++
 Reviewing the battle of Talas one of the most defining moments in

@@ -1,5 +1,5 @@
 +++
-title = "A knot ofxa0loosers"
+title = "A knot of loosers"
 
 +++
 In the two years of college I was a magnet for a knot of colorful

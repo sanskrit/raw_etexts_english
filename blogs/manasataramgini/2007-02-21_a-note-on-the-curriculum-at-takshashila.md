@@ -1,5 +1,5 @@
 +++
-title = "A note on the curriculum atxa0takShashila"
+title = "A note on the curriculum at takShashila"
 
 +++
 ST asked me whether takShashila was a bauddha or Hindu university —

@@ -1,5 +1,5 @@
 +++
-title = "The Ara and thexa0Arbelos"
+title = "The Ara and the Arbelos"
 
 +++
 [![](https://i2.wp.com/bp1.blogger.com/_hjuA1bE0hBw/R4AyVdBucsI/AAAAAAAAAA0/D0XmMUzLYF0/s320/Arbelos.jpg)](http://bp1.blogger.com/_hjuA1bE0hBw/R4AyVdBucsI/AAAAAAAAAA0/D0XmMUzLYF0/s1600-h/Arbelos.jpg)

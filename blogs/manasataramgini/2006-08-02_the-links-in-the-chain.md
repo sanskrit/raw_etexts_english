@@ -1,5 +1,5 @@
 +++
-title = "The links in thexa0chain"
+title = "The links in the chain"
 
 +++
 Our ancestors went to the great asura medhira when they were in such a

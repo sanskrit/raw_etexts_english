@@ -1,5 +1,5 @@
 +++
-title = "The oldest surviving planetary ritual of thexa0Hindus"
+title = "The oldest surviving planetary ritual of the Hindus"
 
 +++
 Certain white Indologists and their Japanese imitators have often held

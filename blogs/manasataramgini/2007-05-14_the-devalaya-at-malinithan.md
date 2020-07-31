@@ -1,5 +1,5 @@
 +++
-title = "The devAlaya atxa0mAlinIthan"
+title = "The devAlaya at mAlinIthan"
 
 +++
 One of the remarkable forgotten devAlaya-s of the eastern fringes of

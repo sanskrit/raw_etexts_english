@@ -1,5 +1,5 @@
 +++
-title = "Some works of nArAyaNaxa0bhaTTathiri"
+title = "Some works of nArAyaNa bhaTTathiri"
 
 +++
 MelpattUr nArAyaNa bhaTTathiri, was a great nambuthiri sanskrit writer

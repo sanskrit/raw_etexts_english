@@ -1,5 +1,5 @@
 +++
-title = "The third hero and khANDavansxa0clash"
+title = "The third hero and khANDavans clash"
 
 +++
 There was nothing new in the hostile intention of the evil-minded

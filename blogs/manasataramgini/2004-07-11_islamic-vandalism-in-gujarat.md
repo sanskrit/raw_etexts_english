@@ -1,5 +1,5 @@
 +++
-title = "Islamic vandalism inxa0Gujarat"
+title = "Islamic vandalism in Gujarat"
 
 +++
 The Rudramahalaya temple complex in Siddhapura in Gujarat was one of the

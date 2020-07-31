@@ -1,5 +1,5 @@
 +++
-title = "Najash rionegrina and Yurlunggurxa0camfieldensis"
+title = "Najash rionegrina and Yurlunggur camfieldensis"
 
 +++
 During the flight with the yakShiNi we grew interested the origins of

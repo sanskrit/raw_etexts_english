@@ -1,5 +1,5 @@
 +++
-title = "Packing constants for polygonal fractalxa0maps"
+title = "Packing constants for polygonal fractal maps"
 
 +++
 Among the very first programs which we wrote in our childhood was one to

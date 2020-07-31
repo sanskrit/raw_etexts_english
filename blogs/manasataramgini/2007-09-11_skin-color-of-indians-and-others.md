@@ -1,5 +1,5 @@
 +++
-title = "Skin color of Indians (andxa0others)"
+title = "Skin color of Indians (and others)"
 
 +++
 Indians more than any other ethnic group are aware of the dramatic

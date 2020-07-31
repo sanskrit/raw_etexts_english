@@ -1,5 +1,5 @@
 +++
-title = "On the pishAchis, rAkShasis, apasarAs and thexa0vajrayoginI"
+title = "On the pishAchis, rAkShasis, apasarAs and the vajrayoginI"
 
 +++
 We had in our long wanderings encountered many a pishAchi, rAkSasi and

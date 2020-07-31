@@ -1,5 +1,5 @@
 +++
-title = "Some Nārāyaṇa-like convergents and their geometric and trigonometricxa0connections"
+title = "Some Nārāyaṇa-like convergents and their geometric and trigonometric connections"
 
 +++
 While playing with an iterative geometric construction in our youth we

@@ -1,5 +1,5 @@
 +++
-title = "The second attempt ofxa0kAma"
+title = "The second attempt of kAma"
 
 +++
 The contest between shiva and kAma is much celebrated in Hindu

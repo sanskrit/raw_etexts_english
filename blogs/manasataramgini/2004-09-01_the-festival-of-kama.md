@@ -1,5 +1,5 @@
 +++
-title = "The festival ofxa0kAma"
+title = "The festival of kAma"
 
 +++
 From a somewhat corrupt, but legible copy of the padma purANa, I have

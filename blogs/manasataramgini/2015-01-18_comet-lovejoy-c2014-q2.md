@@ -1,5 +1,5 @@
 +++
-title = "Comet Lovejoy, C/2014xa0Q2"
+title = "Comet Lovejoy, C/2014 Q2"
 
 +++
 [![](https://lh4.googleusercontent.com/-2_gZwn1jB8Y/VLtkW4OZm_I/AAAAAAAADN4/gLP7HtjLOSM/s800/Lovejoy.JPG)](https://picasaweb.google.com/lh/photo/IJt5POmpXYR6XeYXYdsGaNMTjNZETYmyPJy0liipFm0?feat=embedwebsite)

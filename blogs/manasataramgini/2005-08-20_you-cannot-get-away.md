@@ -1,5 +1,5 @@
 +++
-title = "You cannot getxa0away"
+title = "You cannot get away"
 
 +++
 GK had been a rival of R. R had genuine knowledge, but GK merely

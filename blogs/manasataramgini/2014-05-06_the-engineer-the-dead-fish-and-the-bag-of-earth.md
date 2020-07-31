@@ -1,5 +1,5 @@
 +++
-title = "The engineer, the dead fish and the bag ofxa0earth-I"
+title = "The engineer, the dead fish and the bag of earth-I"
 
 +++
 mR^ittikA-syUto nAma prathamo.adhyAyaH |  

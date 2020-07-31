@@ -1,5 +1,5 @@
 +++
-title = "The symmetric devolution ofxa0Jx"
+title = "The symmetric devolution of Jx"
 
 +++
 The chance for the kuriltai was unusually solidified by the bold

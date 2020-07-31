@@ -1,5 +1,5 @@
 +++
-title = "The worship of the pa~nchAkSharI vidyA ofxa0shiva"
+title = "The worship of the pa~nchAkSharI vidyA of shiva"
 
 +++
 Late in the evening the my clansmen and me left by an uncomfortable bus

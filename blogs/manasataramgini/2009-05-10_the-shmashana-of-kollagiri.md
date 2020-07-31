@@ -1,5 +1,5 @@
 +++
-title = "The shmashAna ofxa0kollagiri"
+title = "The shmashAna of kollagiri"
 
 +++
 Beating our Damaru we advanced to the great ground of kollagiri;  

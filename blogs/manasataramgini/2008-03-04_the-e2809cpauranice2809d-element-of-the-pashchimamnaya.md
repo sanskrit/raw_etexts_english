@@ -1,5 +1,5 @@
 +++
-title = "The “paurANic” element of thexa0pashchimAmnAya"
+title = "The “paurANic” element of the pashchimAmnAya"
 
 +++
 In the days after the fierce battle of dvAdashAnta, after we had

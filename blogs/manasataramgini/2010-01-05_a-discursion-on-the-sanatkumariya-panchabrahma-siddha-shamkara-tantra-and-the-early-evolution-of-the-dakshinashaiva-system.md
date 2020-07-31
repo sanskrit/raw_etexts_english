@@ -1,5 +1,5 @@
 +++
-title = "A discursion on the sanatkumArIya pa~nchabrahma (siddha-shaMkara) tantra and the early evolution of the dakShiNashaivaxa0system"
+title = "A discursion on the sanatkumArIya pa~nchabrahma (siddha-shaMkara) tantra and the early evolution of the dakShiNashaiva system"
 
 +++
 [![kalinjar\_bhairavas2](https://i2.wp.com/farm5.static.flickr.com/4031/4259390457_2140b69189.jpg)](http://www.flickr.com/photos/24766652@N05/4259390457/ "kalinjar_bhairavas2 by somasushma, on Flickr")

@@ -1,5 +1,5 @@
 +++
-title = "An Aryan mortuaryxa0rite"
+title = "An Aryan mortuary rite"
 
 +++
 The pitR^imedha is a relatively obscure Aryan mortuary rite done an year

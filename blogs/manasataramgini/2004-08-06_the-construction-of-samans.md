@@ -1,5 +1,5 @@
 +++
-title = "The construction ofxa0sAmans"
+title = "The construction of sAmans"
 
 +++
 The gAnaM rules are thus constructed. First we define elements

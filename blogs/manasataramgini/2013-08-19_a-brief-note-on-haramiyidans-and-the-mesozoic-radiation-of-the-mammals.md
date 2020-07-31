@@ -1,5 +1,5 @@
 +++
-title = "A brief note on haramiyidans and the Mesozoic radiation of thexa0mammals"
+title = "A brief note on haramiyidans and the Mesozoic radiation of the mammals"
 
 +++
 Mammals have a longer history in the “age of the dinosaurs” (Mesozoic)

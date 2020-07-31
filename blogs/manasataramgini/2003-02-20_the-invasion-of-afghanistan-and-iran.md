@@ -1,5 +1,5 @@
 +++
-title = "The invasion of Afghanistan andxa0Iran"
+title = "The invasion of Afghanistan and Iran"
 
 +++
 Timur-i-lang had campaigned in Afghanistan and Eastern Iran with Mir

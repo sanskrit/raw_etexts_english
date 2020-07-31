@@ -1,5 +1,5 @@
 +++
-title = "The Census of Marine Lifexa0project"
+title = "The Census of Marine Life project"
 
 +++
 A new-to-science goby fish from Guam   

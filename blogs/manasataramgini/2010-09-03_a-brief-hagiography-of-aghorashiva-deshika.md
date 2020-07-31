@@ -1,5 +1,5 @@
 +++
-title = "A brief hagiography of aghorashivaxa0deshika"
+title = "A brief hagiography of aghorashiva deshika"
 
 +++
 The saiddhAntika tradition or the Urdhvasrotas of the shaiva

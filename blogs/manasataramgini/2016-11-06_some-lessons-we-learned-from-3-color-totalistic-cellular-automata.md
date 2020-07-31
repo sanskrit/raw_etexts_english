@@ -1,5 +1,5 @@
 +++
-title = "Some lessons we learned from 3-color totalistic cellularxa0automata"
+title = "Some lessons we learned from 3-color totalistic cellular automata"
 
 +++
 Cellular automata (CA) have attracted people’s attention to different

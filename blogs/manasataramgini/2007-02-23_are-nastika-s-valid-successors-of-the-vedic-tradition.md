@@ -1,5 +1,5 @@
 +++
-title = "Are nAstika-s valid successors of the vedicxa0tradition"
+title = "Are nAstika-s valid successors of the vedic tradition"
 
 +++
 We had a discussion with ekanetra, the master of Asita-krIDa. ekanetra

@@ -1,5 +1,5 @@
 +++
-title = "dIvAkIrtya-s, eclipses and severedxa0heads"
+title = "dIvAkIrtya-s, eclipses and severed heads"
 
 +++
 We saw how the aitareya brAhmaNa describes the

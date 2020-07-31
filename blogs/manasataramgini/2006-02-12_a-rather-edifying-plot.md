@@ -1,5 +1,5 @@
 +++
-title = "A rather edifyingxa0plot"
+title = "A rather edifying plot"
 
 +++
 There has been much abuzz in our maNDala on the genetic support for

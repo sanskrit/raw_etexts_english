@@ -1,5 +1,5 @@
 +++
-title = "The origin of the uncinate process of diapsidxa0ribs"
+title = "The origin of the uncinate process of diapsid ribs"
 
 +++
 In the long past days, in the dawn of my zoological studies, which were

@@ -1,5 +1,5 @@
 +++
-title = "The mother of allxa0battles"
+title = "The mother of all battles"
 
 +++
 The ruffians of Southern Saxony had always held the Indian armies in

@@ -1,5 +1,5 @@
 +++
-title = "ghR^itaM and khristós: Did the Greeks losexa0ghee?"
+title = "ghR^itaM and khristós: Did the Greeks lose ghee?"
 
 +++
 vayaM nAma pra bravAmA ghR^itasyAsmin yaj\~ne dhArayAmA namobhiH |  

@@ -1,5 +1,5 @@
 +++
-title = "Reflections on our journey through the aliquot sums andxa0sequences"
+title = "Reflections on our journey through the aliquot sums and sequences"
 
 +++
 **The numerology of aliquot sums and perfect numbers  

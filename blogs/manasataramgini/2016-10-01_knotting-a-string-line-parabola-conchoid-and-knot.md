@@ -1,5 +1,5 @@
 +++
-title = "Knotting a string: line, parabola, conchoid andxa0knot"
+title = "Knotting a string: line, parabola, conchoid and knot"
 
 +++
 **The basic construction**  

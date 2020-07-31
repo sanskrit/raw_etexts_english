@@ -1,5 +1,5 @@
 +++
-title = "Making of a modern-day mantra-śāstraxa0pamphlet"
+title = "Making of a modern-day mantra-śāstra pamphlet"
 
 +++
 Originally, all mantra instructions were oral, keeping with the spirit

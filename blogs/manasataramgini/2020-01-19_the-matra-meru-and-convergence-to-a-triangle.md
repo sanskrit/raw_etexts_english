@@ -1,5 +1,5 @@
 +++
-title = "The Mātrā-meru and convergence to axa0triangle"
+title = "The Mātrā-meru and convergence to a triangle"
 
 +++
 What is presented below will be elementary for someone with even just

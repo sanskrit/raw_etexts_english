@@ -1,5 +1,5 @@
 +++
-title = "The Arimaspas, dinosaurs, griffins andxa0sharabha."
+title = "The Arimaspas, dinosaurs, griffins and sharabha."
 
 +++
 A persistant Indo-Iranian motif is that of the griffin, occuring in

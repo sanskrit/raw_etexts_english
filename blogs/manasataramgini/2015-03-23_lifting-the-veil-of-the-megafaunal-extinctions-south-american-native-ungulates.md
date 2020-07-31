@@ -1,5 +1,5 @@
 +++
-title = "Lifting the veil of the megafaunal extinctions: South American nativexa0ungulates"
+title = "Lifting the veil of the megafaunal extinctions: South American native ungulates"
 
 +++
 Some memories are simultaneously pleasant and sad: One such is of the

@@ -1,5 +1,5 @@
 +++
-title = "The new Americanxa0crusade"
+title = "The new American crusade"
 
 +++
 As the crusades are raging in Irak, the discerning Americans are divided

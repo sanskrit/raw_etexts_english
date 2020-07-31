@@ -1,5 +1,5 @@
 +++
-title = "The path of thexa0yakShini"
+title = "The path of the yakShini"
 
 +++
 We flew up again with the yakShini. There we stood in the mid-welkin and

@@ -1,5 +1,5 @@
 +++
-title = "Some pictures relating to incidence of tuberculosis andxa0AIDS"
+title = "Some pictures relating to incidence of tuberculosis and AIDS"
 
 +++
 [This another note of the type mentioned

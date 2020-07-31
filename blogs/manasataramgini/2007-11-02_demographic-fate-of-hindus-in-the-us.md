@@ -1,5 +1,5 @@
 +++
-title = "Demographic fate of Hindus in thexa0US"
+title = "Demographic fate of Hindus in the US"
 
 +++
 A friend brought to attention some interesting statistics of ABCDs’

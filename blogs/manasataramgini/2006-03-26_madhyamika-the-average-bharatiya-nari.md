@@ -1,5 +1,5 @@
 +++
-title = "mAdhyamikA the average bhAratIyaxa0nArI"
+title = "mAdhyamikA the average bhAratIya nArI"
 
 +++
 [![](https://i0.wp.com/photos1.blogger.com/blogger/2010/410/320/average_nari3.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/average_nari3.jpg)[![](https://i1.wp.com/photos1.blogger.com/blogger/2010/410/320/average_nari.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/average_nari.jpg)[![](https://i1.wp.com/photos1.blogger.com/blogger/2010/410/320/average_nari4.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/average_nari4.jpg)

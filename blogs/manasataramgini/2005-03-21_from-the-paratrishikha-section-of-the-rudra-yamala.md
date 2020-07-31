@@ -1,5 +1,5 @@
 +++
-title = "From the parAtrIshikhA section of the rudraxa0yAmala"
+title = "From the parAtrIshikhA section of the rudra yAmala"
 
 +++
 In the Hindu world view ritual and philosophy are intimately linked.

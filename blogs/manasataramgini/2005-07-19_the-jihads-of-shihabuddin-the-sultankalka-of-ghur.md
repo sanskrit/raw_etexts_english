@@ -1,5 +1,5 @@
 +++
-title = "The Jihads of Shihabuddin, the Sultankalka ofxa0Ghur"
+title = "The Jihads of Shihabuddin, the Sultankalka of Ghur"
 
 +++
 Around 1140, the Islamized Turko-Mongol chiefs of the Shansabanid tribe

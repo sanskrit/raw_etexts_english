@@ -1,5 +1,5 @@
 +++
-title = "Poem on Sübütäi’s attack onxa0Qazvin"
+title = "Poem on Sübütäi’s attack on Qazvin"
 
 +++
 The great Mongol Noyan Jebe upon receiving the news of the death of the

@@ -1,5 +1,5 @@
 +++
-title = "The praise ofxa0rudra"
+title = "The praise of rudra"
 
 +++
 001 namas te deva-devesha devAri-balasUdana |  

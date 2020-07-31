@@ -1,5 +1,5 @@
 +++
-title = "Visualizing the Hindu divisibilityxa0test"
+title = "Visualizing the Hindu divisibility test"
 
 +++
 **Prologue**  

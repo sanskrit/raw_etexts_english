@@ -1,5 +1,5 @@
 +++
-title = "American theory of operation Iraqixa0flypaper"
+title = "American theory of operation Iraqi flypaper"
 
 +++
 Many Americans are very satisfied with the conquest of Iraq, or at least

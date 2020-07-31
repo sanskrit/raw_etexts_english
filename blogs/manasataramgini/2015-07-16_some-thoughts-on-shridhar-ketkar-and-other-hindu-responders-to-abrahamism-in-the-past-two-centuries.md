@@ -1,5 +1,5 @@
 +++
-title = "Some thoughts on Shridhar Ketkar and other Hindu responders to Abrahamism in the past twoxa0centuries"
+title = "Some thoughts on Shridhar Ketkar and other Hindu responders to Abrahamism in the past two centuries"
 
 +++
 [A version of this article was published originally at India

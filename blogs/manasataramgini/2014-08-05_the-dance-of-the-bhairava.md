@@ -1,5 +1,5 @@
 +++
-title = "The dance of thexa0bhairava"
+title = "The dance of the bhairava"
 
 +++
 [![](https://lh6.googleusercontent.com/-A-QkUzDQ3ds/U906IaaTHFI/AAAAAAAADDA/Gk3E9H-pZzg/s800/bhairava5_nepAl.jpg)](https://picasaweb.google.com/lh/photo/-i9BPOuTEhZROufrZf684NMTjNZETYmyPJy0liipFm0?feat=embedwebsite)

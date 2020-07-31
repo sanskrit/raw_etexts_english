@@ -1,5 +1,5 @@
 +++
-title = "Watch out! Democracy(Marxism) is forxa0all!"
+title = "Watch out! Democracy(Marxism) is for all!"
 
 +++
 The West (in particular US of America) has endlessly spun tales of the

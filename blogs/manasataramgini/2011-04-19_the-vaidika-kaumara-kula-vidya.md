@@ -1,5 +1,5 @@
 +++
-title = "The vaidika kaumAra kulaxa0vidyA"
+title = "The vaidika kaumAra kula vidyA"
 
 +++
 We had earlier discussed the root mantra of the kumAra shAsana as

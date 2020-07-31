@@ -1,5 +1,5 @@
 +++
-title = "The hand ofxa0fate"
+title = "The hand of fate"
 
 +++
 After much struggle our forces fought their way to a strong position on

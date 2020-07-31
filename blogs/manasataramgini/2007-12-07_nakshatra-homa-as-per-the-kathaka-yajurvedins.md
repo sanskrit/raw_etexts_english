@@ -1,5 +1,5 @@
 +++
-title = "nakShatra homa as per the kAThakaxa0yajurvedins"
+title = "nakShatra homa as per the kAThaka yajurvedins"
 
 +++
 The nakShatra homa as performed by the taittirIyaka-s utilizes the famed

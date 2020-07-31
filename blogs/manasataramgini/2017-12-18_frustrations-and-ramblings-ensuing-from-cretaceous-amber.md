@@ -1,5 +1,5 @@
 +++
-title = "Frustrations and ramblings ensuing from Cretaceousxa0amber"
+title = "Frustrations and ramblings ensuing from Cretaceous amber"
 
 +++
 Time and again I have been frustrated by the inability of Hindus to make

@@ -1,5 +1,5 @@
 +++
-title = "The rise and fall of Khan Abu’lxa0Khair"
+title = "The rise and fall of Khan Abu’l Khair"
 
 +++
 An instructive lesson is offered by the eventful life of the Khan Abu’l

@@ -1,5 +1,5 @@
 +++
-title = "Enemies and theirxa0ilk"
+title = "Enemies and their ilk"
 
 +++
 saMskR^ita terms for enemies have some interesting social connotations.

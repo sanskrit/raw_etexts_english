@@ -1,5 +1,5 @@
 +++
-title = "vedA~Nga jyotiSha and other ramblings on early Hinduxa0calenders"
+title = "vedA~Nga jyotiSha and other ramblings on early Hindu calenders"
 
 +++
 The vedA\~NGa jyotiSha has been a strikingly difficult text to fathom

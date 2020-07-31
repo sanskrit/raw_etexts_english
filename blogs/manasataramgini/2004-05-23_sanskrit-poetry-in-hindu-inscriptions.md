@@ -1,5 +1,5 @@
 +++
-title = "Sanskrit poetry in Hinduxa0inscriptions"
+title = "Sanskrit poetry in Hindu inscriptions"
 
 +++
 Dr. BC Chabra provides several examples of exemplary Sanskrit poetry in

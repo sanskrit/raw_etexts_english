@@ -1,5 +1,5 @@
 +++
-title = "Brooding over Hinduxa0woes"
+title = "Brooding over Hindu woes"
 
 +++
 Though I have no personal liking for Malhotra nor agree with him in

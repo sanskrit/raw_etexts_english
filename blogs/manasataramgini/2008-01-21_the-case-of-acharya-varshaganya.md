@@ -1,5 +1,5 @@
 +++
-title = "The case of AchAryaxa0vArShagaNya"
+title = "The case of AchArya vArShagaNya"
 
 +++
 It is extremely common for ancient Indian AchArya-s to remain mere

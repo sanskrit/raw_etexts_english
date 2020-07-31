@@ -1,5 +1,5 @@
 +++
-title = "Quadrangular and circular shields inxa0iconography"
+title = "Quadrangular and circular shields in iconography"
 
 +++
 [![combined\_devya](https://i1.wp.com/farm4.static.flickr.com/3386/3331859475_58e7200995_o.png)](http://www.flickr.com/photos/24766652@N05/3331859475/ "combined_devya by somasushma, on Flickr")

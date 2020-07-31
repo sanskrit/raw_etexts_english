@@ -1,5 +1,5 @@
 +++
-title = "Notes on early pAncharAtraxa0vaiShNavism"
+title = "Notes on early pAncharAtra vaiShNavism"
 
 +++
 It is likely that in the later period the vaiShNavas were ignorant on

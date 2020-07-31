@@ -1,5 +1,5 @@
 +++
-title = "The signal inxa0saMdhyAbhASha"
+title = "The signal in saMdhyAbhASha"
 
 +++
 We invoked the wondrous yakShini ullAsamekhalA again. She appeared in

@@ -1,5 +1,5 @@
 +++
-title = "A zarathuShtrian exit at a Hinduxa0funeral"
+title = "A zarathuShtrian exit at a Hindu funeral"
 
 +++
 This note continues with the examples we have been providing on these

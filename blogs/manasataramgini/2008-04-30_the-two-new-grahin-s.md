@@ -1,5 +1,5 @@
 +++
-title = "The two newxa0grAhin-s"
+title = "The two new grAhin-s"
 
 +++
 Having evaded the vAmagrAhin we accomplished the immediate objective

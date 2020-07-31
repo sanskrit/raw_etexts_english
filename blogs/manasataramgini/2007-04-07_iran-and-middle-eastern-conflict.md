@@ -1,5 +1,5 @@
 +++
-title = "Iran and middle easternxa0conflict"
+title = "Iran and middle eastern conflict"
 
 +++
 “And so these men of Indostan  

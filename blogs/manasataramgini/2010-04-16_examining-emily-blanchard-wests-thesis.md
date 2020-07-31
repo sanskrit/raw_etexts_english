@@ -1,5 +1,5 @@
 +++
-title = "Examining Emily Blanchard West’sxa0thesis"
+title = "Examining Emily Blanchard West’s thesis"
 
 +++
 EBW, a classicist, published a paper presenting evidence for an

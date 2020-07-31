@@ -1,5 +1,5 @@
 +++
-title = "vedic mantra-s adapted for kaumAraxa0ritual"
+title = "vedic mantra-s adapted for kaumAra ritual"
 
 +++
 [![](https://i0.wp.com/photos1.blogger.com/blogger2/6438/855/320/kumAra_mantra_vedic.0.png)](http://photos1.blogger.com/blogger2/6438/855/1600/kumAra_mantra_vedic.0.gif)

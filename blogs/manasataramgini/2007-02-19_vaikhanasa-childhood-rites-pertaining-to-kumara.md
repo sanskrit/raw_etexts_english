@@ -1,5 +1,5 @@
 +++
-title = "vaikhAnasa childhood rites pertaining toxa0kumAra"
+title = "vaikhAnasa childhood rites pertaining to kumAra"
 
 +++
 Childhood rites in connection kumAra, ShaShThi and their gaNa-s are

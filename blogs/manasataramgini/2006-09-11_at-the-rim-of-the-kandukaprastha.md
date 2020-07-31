@@ -1,5 +1,5 @@
 +++
-title = "At the rim of thexa0kandukaprastha"
+title = "At the rim of the kandukaprastha"
 
 +++
 We stood accompanied by three others at the rim of the kandukaprastha.

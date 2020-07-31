@@ -1,5 +1,5 @@
 +++
-title = "Rudra’s portion of the ritual offering, the Kaṭha Āraṇyaka and the Atharvaśiras: a brief journey through early śaivaxa0thought"
+title = "Rudra’s portion of the ritual offering, the Kaṭha Āraṇyaka and the Atharvaśiras: a brief journey through early śaiva thought"
 
 +++
 A version of this article was published first at [India

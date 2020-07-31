@@ -1,5 +1,5 @@
 +++
-title = "The last flash of Sanskrit and the activities of thexa0Indologists"
+title = "The last flash of Sanskrit and the activities of the Indologists"
 
 +++
 When I was going through the erudite works of the illustrious scholar

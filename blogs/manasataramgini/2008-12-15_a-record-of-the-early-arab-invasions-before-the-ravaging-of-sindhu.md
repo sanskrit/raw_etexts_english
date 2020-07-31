@@ -1,5 +1,5 @@
 +++
-title = "A record of the early Arab invasions before the ravaging ofxa0sindhu"
+title = "A record of the early Arab invasions before the ravaging of sindhu"
 
 +++
 The kingdom of saindhava under its last Hindu ruler whose memory has

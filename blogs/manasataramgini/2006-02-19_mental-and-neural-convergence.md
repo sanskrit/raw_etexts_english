@@ -1,5 +1,5 @@
 +++
-title = "Mental and neuralxa0convergence"
+title = "Mental and neural convergence"
 
 +++
 Even though we and the little dinosaurs have evolved our brains

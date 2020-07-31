@@ -1,5 +1,5 @@
 +++
-title = "The Pauranic testimony and some time lines in Hinduxa0tradition"
+title = "The Pauranic testimony and some time lines in Hindu tradition"
 
 +++
 I believe that despite all the noise on the topics the purANas are at

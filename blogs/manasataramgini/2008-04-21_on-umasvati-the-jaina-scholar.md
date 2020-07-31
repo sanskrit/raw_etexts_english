@@ -1,5 +1,5 @@
 +++
-title = "On umAsvAti the jainaxa0scholar"
+title = "On umAsvAti the jaina scholar"
 
 +++
 Though the nAstIka mata-s in their reactionary fervor chose to keep away

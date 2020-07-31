@@ -1,5 +1,5 @@
 +++
-title = "Denisovans, Sherpas andxa0Tibetans"
+title = "Denisovans, Sherpas and Tibetans"
 
 +++
 [![](https://lh5.googleusercontent.com/-pROy10QSE7o/U7UACC9jxcI/AAAAAAAAC9M/2E9kS9PZztI/s800/tibetan_denisovan.jpg)](https://picasaweb.google.com/lh/photo/DN7tPzT-gCynZxe8qC1sDNMTjNZETYmyPJy0liipFm0?feat=embedwebsite)

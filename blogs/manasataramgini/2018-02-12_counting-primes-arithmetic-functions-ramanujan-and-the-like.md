@@ -1,5 +1,5 @@
 +++
-title = "Counting primes, arithmetic functions, Ramanujan and thexa0like"
+title = "Counting primes, arithmetic functions, Ramanujan and the like"
 
 +++
 We originally wished to have a tail-piece for [our previous

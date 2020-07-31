@@ -1,5 +1,5 @@
 +++
-title = "skanda prINanaM of the sAmavedicxa0tradition"
+title = "skanda prINanaM of the sAmavedic tradition"
 
 +++
 We had earlier see how the R^igvedic hymns have been [adapted for the

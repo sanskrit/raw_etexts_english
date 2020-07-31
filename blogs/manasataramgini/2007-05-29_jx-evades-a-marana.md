@@ -1,5 +1,5 @@
 +++
-title = "Jx evades axa0mAraNa"
+title = "Jx evades a mAraNa"
 
 +++
 Whenever we have executed that loop by instinct, thus far, some vighna

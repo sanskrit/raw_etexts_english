@@ -1,5 +1,5 @@
 +++
-title = "Some great men from otherxa0cultures"
+title = "Some great men from other cultures"
 
 +++
 Some great men transcend cultural boundaries and simply amaze you with

@@ -1,5 +1,5 @@
 +++
-title = "A rambling expatiation instigated by the self-interview of Robert Burnham,xa0Jr"
+title = "A rambling expatiation instigated by the self-interview of Robert Burnham, Jr"
 
 +++
 When we were young, the normally taciturn vaiśya-jyotiṣa once asked us

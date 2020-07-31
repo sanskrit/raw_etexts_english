@@ -1,5 +1,5 @@
 +++
-title = "Our lessons from the subversion ofxa0Russia"
+title = "Our lessons from the subversion of Russia"
 
 +++
 Begins

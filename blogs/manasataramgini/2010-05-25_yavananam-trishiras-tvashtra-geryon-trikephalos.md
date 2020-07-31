@@ -1,5 +1,5 @@
 +++
-title = "yavanAnAM trishirAs-tvAShTra: Geryonxa0Trikephalos"
+title = "yavanAnAM trishirAs-tvAShTra: Geryon Trikephalos"
 
 +++
 [![](https://i1.wp.com/lh5.ggpht.com/_hjuA1bE0hBw/S_taiQjo67I/AAAAAAAABdA/ENMFjF92UOs/s800/herakles_geryon.jpg)](http://picasaweb.google.com/lh/photo/3IKX7tGFi6sbcfIKczDTVA?feat=embedwebsite)

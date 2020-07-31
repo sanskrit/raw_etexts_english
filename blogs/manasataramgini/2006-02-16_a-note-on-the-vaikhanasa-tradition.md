@@ -1,5 +1,5 @@
 +++
-title = "A note on the vaikhAnasaxa0tradition"
+title = "A note on the vaikhAnasa tradition"
 
 +++
 The vaikhAnasas appear to represent an archaic branch of vaiShNavas who

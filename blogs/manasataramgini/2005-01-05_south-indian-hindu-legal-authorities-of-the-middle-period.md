@@ -1,5 +1,5 @@
 +++
-title = "South Indian Hindu legal authorities of the middlexa0period"
+title = "South Indian Hindu legal authorities of the middle period"
 
 +++
 \-700 CE bAlakrIDA a commentary on the yAGNYavAlkya smR^iti was composed

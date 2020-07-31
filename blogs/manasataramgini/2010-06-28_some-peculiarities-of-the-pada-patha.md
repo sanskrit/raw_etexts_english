@@ -1,5 +1,5 @@
 +++
-title = "Some peculiarities of the padaxa0paTha"
+title = "Some peculiarities of the pada paTha"
 
 +++
 Years ago while learning RV 2.12.13 I encountered a peculiarity of Vedic

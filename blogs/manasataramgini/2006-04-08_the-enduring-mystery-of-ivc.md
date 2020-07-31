@@ -1,5 +1,5 @@
 +++
-title = "The enduring mystery ofxa0IVC"
+title = "The enduring mystery of IVC"
 
 +++
 The IVC or the Sarasvati-Sindhu civilization(SSC) or the Harappan

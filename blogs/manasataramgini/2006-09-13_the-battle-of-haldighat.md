@@ -1,5 +1,5 @@
 +++
-title = "The battle ofxa0Haldighat"
+title = "The battle of Haldighat"
 
 +++
 One of the tragic battles that represents the epitome of the valiant

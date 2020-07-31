@@ -1,5 +1,5 @@
 +++
-title = "The guNa-s of sAMkhya as physicalxa0concepts"
+title = "The guNa-s of sAMkhya as physical concepts"
 
 +++
 See also:  

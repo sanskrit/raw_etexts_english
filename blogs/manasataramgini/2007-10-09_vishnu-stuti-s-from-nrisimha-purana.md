@@ -1,5 +1,5 @@
 +++
-title = "viShNu stuti-s from nR^isiMhaxa0purANa"
+title = "viShNu stuti-s from nR^isiMha purANa"
 
 +++
 [![](https://i2.wp.com/bp1.blogger.com/_ZhvcTTaaD_4/RwxhMMEvi5I/AAAAAAAAAPU/XjcdNMSRT7o/s320/nArAyaNa.jpg)](http://bp1.blogger.com/_ZhvcTTaaD_4/RwxhMMEvi5I/AAAAAAAAAPU/XjcdNMSRT7o/s1600-h/nArAyaNa.jpg)

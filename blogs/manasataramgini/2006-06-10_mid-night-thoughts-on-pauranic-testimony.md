@@ -1,5 +1,5 @@
 +++
-title = "mid-night thoughts on Pauranicxa0testimony"
+title = "mid-night thoughts on Pauranic testimony"
 
 +++
 “Hindus have no historical sense”; “India is a cul de sac”; “upaniShads

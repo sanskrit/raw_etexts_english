@@ -1,5 +1,5 @@
 +++
-title = "Notes on vaiShNava-shaiva sectarian competition in thexa0purANa-s"
+title = "Notes on vaiShNava-shaiva sectarian competition in the purANa-s"
 
 +++
 The appropriation and/or downgrading of each others ancient narratives

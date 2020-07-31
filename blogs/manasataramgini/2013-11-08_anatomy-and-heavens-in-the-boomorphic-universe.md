@@ -1,5 +1,5 @@
 +++
-title = "Anatomy and heavens in the boomorphicxa0universe"
+title = "Anatomy and heavens in the boomorphic universe"
 
 +++
 The bovine species lay at the center of the existence of the early

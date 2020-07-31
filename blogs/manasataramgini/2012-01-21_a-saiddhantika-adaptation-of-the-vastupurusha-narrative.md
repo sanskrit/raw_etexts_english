@@ -1,5 +1,5 @@
 +++
-title = "A saiddhAntika adaptation of the vAstupuruShaxa0narrative"
+title = "A saiddhAntika adaptation of the vAstupuruSha narrative"
 
 +++
 We had earlier pointed out that the [vAstupuruSha

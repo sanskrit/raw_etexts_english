@@ -1,5 +1,5 @@
 +++
-title = "The great facelessxa0man"
+title = "The great faceless man"
 
 +++
 In the late Yajurvaidika upaniṣat, the Śvetāśvatara, which is the

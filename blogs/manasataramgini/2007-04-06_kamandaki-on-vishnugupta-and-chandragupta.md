@@ -1,5 +1,5 @@
 +++
-title = "kAmandaki on viShNugupta andxa0chandragupta"
+title = "kAmandaki on viShNugupta and chandragupta"
 
 +++
 yasyaabhichAra-vajreNa vajra-jvalana-tejasaH |  

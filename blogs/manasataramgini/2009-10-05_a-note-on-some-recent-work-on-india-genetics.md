@@ -1,5 +1,5 @@
 +++
-title = "A note on some recent work on Indianxa0genetics"
+title = "A note on some recent work on Indian genetics"
 
 +++
 Recently the English scientific tabloid published an article on the

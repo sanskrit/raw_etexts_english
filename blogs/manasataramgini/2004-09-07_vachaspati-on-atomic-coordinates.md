@@ -1,5 +1,5 @@
 +++
-title = "vachaspati on atomicxa0coordinates"
+title = "vachaspati on atomic coordinates"
 
 +++
 The great brAhmaNa vAchaspati mishra, who was described as “sarva  

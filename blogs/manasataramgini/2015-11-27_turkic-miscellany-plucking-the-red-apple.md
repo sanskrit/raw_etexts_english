@@ -1,5 +1,5 @@
 +++
-title = "Turkic miscellany: plucking the redxa0apple"
+title = "Turkic miscellany: plucking the red apple"
 
 +++
 In 527 CE Justinian became the emperor at Constantinople. He is

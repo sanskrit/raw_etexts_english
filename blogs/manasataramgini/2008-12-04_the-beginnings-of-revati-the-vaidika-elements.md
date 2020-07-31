@@ -1,5 +1,5 @@
 +++
-title = "The beginnings of revatI: The vaidikaxa0elements"
+title = "The beginnings of revatI: The vaidika elements"
 
 +++
 *pathyA revatIr bahudhA virUpAH sarvAH sa\~Ngatya varivas te akran |  

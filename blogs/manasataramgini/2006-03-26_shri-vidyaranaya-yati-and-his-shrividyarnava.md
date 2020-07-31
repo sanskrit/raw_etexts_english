@@ -1,5 +1,5 @@
 +++
-title = "shrI vidyAraNaya yati and hisxa0shrIvidyArNava"
+title = "shrI vidyAraNaya yati and his shrIvidyArNava"
 
 +++
 The shrIvidyArNava is an excellent tAntric manual that was used as

@@ -1,5 +1,5 @@
 +++
-title = "Reading the downward turn of thexa0yuga-chakra"
+title = "Reading the downward turn of the yuga-chakra"
 
 +++
 A conversation, tinged with sorrow and pleasure at the same time,

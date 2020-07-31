@@ -1,5 +1,5 @@
 +++
-title = "sarasvatI the devI and the sarasvatI thexa0nadI"
+title = "sarasvatI the devI and the sarasvatI the nadI"
 
 +++
 masitãm dûrât frasrûtãm ýâ asti avavaiti   

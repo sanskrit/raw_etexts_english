@@ -1,5 +1,5 @@
 +++
-title = "The defense ofxa0oDDiyAna"
+title = "The defense of oDDiyAna"
 
 +++
 The famed pITha of oDDiyAna on the earthly plane, was the in kingdom of

@@ -1,5 +1,5 @@
 +++
-title = "Leaves from thexa0scrapbook-2"
+title = "Leaves from the scrapbook-2"
 
 +++
 As described

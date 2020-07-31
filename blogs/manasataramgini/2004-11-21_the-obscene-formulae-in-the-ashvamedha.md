@@ -1,5 +1,5 @@
 +++
-title = "The obscene formulae in thexa0ashvamedha"
+title = "The obscene formulae in the ashvamedha"
 
 +++
 The male participants (the priests and the bard) say:  

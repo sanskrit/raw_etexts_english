@@ -1,5 +1,5 @@
 +++
-title = "The death ofxa0reNukA"
+title = "The death of reNukA"
 
 +++
 Our ancestress reNukA, the ikShvAku princess and wife of jamadagni, is

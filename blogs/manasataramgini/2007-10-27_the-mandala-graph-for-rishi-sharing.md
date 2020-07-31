@@ -1,5 +1,5 @@
 +++
-title = "The maNDala graph forxa0R^iShi-sharing"
+title = "The maNDala graph for R^iShi-sharing"
 
 +++
 The strict R^ishi-sharing graph between the 10 RV maNDalas (click on

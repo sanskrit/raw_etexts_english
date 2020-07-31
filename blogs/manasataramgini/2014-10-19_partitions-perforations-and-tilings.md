@@ -1,5 +1,5 @@
 +++
-title = "Partitions, perforations andxa0tilings"
+title = "Partitions, perforations and tilings"
 
 +++
 We are “geometric” in our thinking – perhaps, we are hence a little more

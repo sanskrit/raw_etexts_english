@@ -1,5 +1,5 @@
 +++
-title = "The discourse on cat’sxa0tastes"
+title = "The discourse on cat’s tastes"
 
 +++
 As I was in the embrace of the yakShini she asked what is so funny about

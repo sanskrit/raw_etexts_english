@@ -1,5 +1,5 @@
 +++
-title = "śūlapuruṣa-catvārakam-3: A method for the analysis ofxa0history"
+title = "śūlapuruṣa-catvārakam-3: A method for the analysis of history"
 
 +++
 Somakhya, standing beside a pillar outside his university department,

@@ -1,5 +1,5 @@
 +++
-title = "The mystery of thexa0pANDava-s"
+title = "The mystery of the pANDava-s"
 
 +++
 While the bhArata epic is a central to understanding the rise of the

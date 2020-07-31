@@ -1,5 +1,5 @@
 +++
-title = "An early shaivaxa0formula"
+title = "An early shaiva formula"
 
 +++
 Very little is preserved of the ancestral tantric shaiva lineage prior

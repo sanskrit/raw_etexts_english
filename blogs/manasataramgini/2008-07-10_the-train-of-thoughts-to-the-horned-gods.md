@@ -1,5 +1,5 @@
 +++
-title = "The train of thoughts to the hornedxa0gods"
+title = "The train of thoughts to the horned gods"
 
 +++
 Our aim was to finish the next installment on the potential medical

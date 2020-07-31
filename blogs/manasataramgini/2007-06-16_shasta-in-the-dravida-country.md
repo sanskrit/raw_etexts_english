@@ -1,5 +1,5 @@
 +++
-title = "shAstA in the drAviDaxa0country"
+title = "shAstA in the drAviDa country"
 
 +++
 [![](https://i2.wp.com/bp2.blogger.com/_ZhvcTTaaD_4/RnOEoE5tW-I/AAAAAAAAAK8/f3bbD4QEByM/s320/ayyanar1.jpg)](http://bp2.blogger.com/_ZhvcTTaaD_4/RnOEoE5tW-I/AAAAAAAAAK8/f3bbD4QEByM/s1600-h/ayyanar1.jpg)Unlike

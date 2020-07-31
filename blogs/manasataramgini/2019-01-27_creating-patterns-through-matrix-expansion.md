@@ -1,5 +1,5 @@
 +++
-title = "Creating patterns through matrixxa0expansion"
+title = "Creating patterns through matrix expansion"
 
 +++
 People who are seriously interested in emergent complexity and pattern

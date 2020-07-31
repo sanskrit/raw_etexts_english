@@ -1,5 +1,5 @@
 +++
-title = "The annihilation ofxa0Iraq"
+title = "The annihilation of Iraq"
 
 +++
 Iraq and Azerbaijan had towards the end of the 1300s came under the rule

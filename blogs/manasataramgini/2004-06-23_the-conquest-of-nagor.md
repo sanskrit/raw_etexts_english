@@ -1,5 +1,5 @@
 +++
-title = "The conquest ofxa0Nagor"
+title = "The conquest of Nagor"
 
 +++
 Nagor had been occupied by the Mohammedans after Khalji’s dreaded acts

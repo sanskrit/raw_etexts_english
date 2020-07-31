@@ -1,5 +1,5 @@
 +++
-title = "Some maxims ofxa0ve~NkaTAdhvarin"
+title = "Some maxims of ve~NkaTAdhvarin"
 
 +++
 Our medieval coethnic, ve\~NkaTAdhvarin (1600s of the common era), was a

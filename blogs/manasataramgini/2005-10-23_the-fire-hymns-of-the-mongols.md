@@ -1,5 +1,5 @@
 +++
-title = "The fire hymns of thexa0Mongols"
+title = "The fire hymns of the Mongols"
 
 +++
 The fire worship of the Hindus is an ancient Indo-European trait that

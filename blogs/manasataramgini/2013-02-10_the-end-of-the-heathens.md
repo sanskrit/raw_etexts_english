@@ -1,5 +1,5 @@
 +++
-title = "The end of thexa0heathens"
+title = "The end of the heathens"
 
 +++
 In 438 BCE the 12 meter image of the great goddess Athena made by the

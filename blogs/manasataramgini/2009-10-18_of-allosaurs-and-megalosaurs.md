@@ -1,5 +1,5 @@
 +++
-title = "Of allosaurs andxa0megalosaurs"
+title = "Of allosaurs and megalosaurs"
 
 +++
 It was a cold and wet day, hardly inspiring to anyone. Rambling to our

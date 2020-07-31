@@ -1,5 +1,5 @@
 +++
-title = "Some considerations on the tantricxa0path"
+title = "Some considerations on the tantric path"
 
 +++
 I decided to put down some matters arising in the discourse with R

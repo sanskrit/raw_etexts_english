@@ -1,5 +1,5 @@
 +++
-title = "The full moonxa0rambling"
+title = "The full moon rambling"
 
 +++
 On the past fullmoon several years ago when we were still young we were

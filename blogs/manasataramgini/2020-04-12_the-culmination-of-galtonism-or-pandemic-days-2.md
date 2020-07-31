@@ -1,5 +1,5 @@
 +++
-title = "The culmination of Galtonism or pandemicxa0days-2"
+title = "The culmination of Galtonism or pandemic days-2"
 
 +++
 Ensconced in the apparent safety of the 4 walls the mind looks out into

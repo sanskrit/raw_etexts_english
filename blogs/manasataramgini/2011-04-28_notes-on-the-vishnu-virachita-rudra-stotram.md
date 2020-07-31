@@ -1,5 +1,5 @@
 +++
-title = "Notes on the viShNu-virachita rudraxa0stotram"
+title = "Notes on the viShNu-virachita rudra stotram"
 
 +++
 The early history of the imagery of rudra within the Indo-Aryan

@@ -1,5 +1,5 @@
 +++
-title = "Cows, horses, sheep andxa0goats"
+title = "Cows, horses, sheep and goats"
 
 +++
 It goes without saying that humans are what they are today because of

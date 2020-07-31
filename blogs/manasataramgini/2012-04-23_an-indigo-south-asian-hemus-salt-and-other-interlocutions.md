@@ -1,5 +1,5 @@
 +++
-title = "An indigo South Asian, hemu’s salt and otherxa0interlocutions"
+title = "An indigo South Asian, hemu’s salt and other interlocutions"
 
 +++
 For a while Mn has been keeping only Ivy league company – as he would

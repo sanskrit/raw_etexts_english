@@ -1,5 +1,5 @@
 +++
-title = "Fraudulent science by Indians: some really badxa0news"
+title = "Fraudulent science by Indians: some really bad news"
 
 +++
 Around 2011 we were approached by a researcher of Indian origin for a

@@ -1,5 +1,5 @@
 +++
-title = "Triangles, Hexes andxa0Cubes"
+title = "Triangles, Hexes and Cubes"
 
 +++
 One philosophical question which we have often ponder about is: Are

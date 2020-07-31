@@ -1,5 +1,5 @@
 +++
-title = "The lineage of the viShNuxa0tantras"
+title = "The lineage of the viShNu tantras"
 
 +++
 oM ugraM vIraM mahAviShNuM jvalantaM sarvatomukhaM |  

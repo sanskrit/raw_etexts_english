@@ -1,5 +1,5 @@
 +++
-title = "The songs of shunaHshepa andxa0nArada"
+title = "The songs of shunaHshepa and nArada"
 
 +++
 In the nocturnal ritual of the soma rite 27th and 28th sAmavedic stuti-s

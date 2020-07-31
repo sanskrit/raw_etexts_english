@@ -1,5 +1,5 @@
 +++
-title = "Law and order in mlechChaxa0desha"
+title = "Law and order in mlechCha desha"
 
 +++
 The land of the mlechChas is in krau\~ncha dvIpa is renowned for its

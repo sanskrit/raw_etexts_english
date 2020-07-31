@@ -1,5 +1,5 @@
 +++
-title = "sugrIva and the prince ofxa0B’lore"
+title = "sugrIva and the prince of B’lore"
 
 +++
 [![](https://i1.wp.com/photos1.blogger.com/blogger/2010/410/320/sugrIva.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/sugrIva.jpg)[![](https://i1.wp.com/photos1.blogger.com/blogger/2010/410/320/dravida.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/dravida.jpg)

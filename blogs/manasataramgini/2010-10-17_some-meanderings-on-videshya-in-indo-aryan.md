@@ -1,5 +1,5 @@
 +++
-title = "Some meanderings on videshya inxa0Indo-Aryan"
+title = "Some meanderings on videshya in Indo-Aryan"
 
 +++
 The traditional thought of the Arya-s described a class of words termed

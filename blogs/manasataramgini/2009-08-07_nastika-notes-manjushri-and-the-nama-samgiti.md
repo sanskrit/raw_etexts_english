@@ -1,5 +1,5 @@
 +++
-title = "nAstika notes: ma~njushrI and thexa0nAma-saMgIti"
+title = "nAstika notes: ma~njushrI and the nAma-saMgIti"
 
 +++
 The meteoric rise of ma\~njushrI in the bauddha realm is not immediately

@@ -1,5 +1,5 @@
 +++
-title = "A problem from 600 CE and some curiosities of Āryabhaṭa’s kuṭṭakaxa0algorithm"
+title = "A problem from 600 CE and some curiosities of Āryabhaṭa’s kuṭṭaka algorithm"
 
 +++
 Around 600 CE in the examinations of one of the Hindu schools of

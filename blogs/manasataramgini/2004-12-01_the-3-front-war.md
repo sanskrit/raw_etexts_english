@@ -1,5 +1,5 @@
 +++
-title = "The 3 frontxa0war"
+title = "The 3 front war"
 
 +++
 We completed the fortifications on various crags and they stood

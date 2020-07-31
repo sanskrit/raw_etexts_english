@@ -1,5 +1,5 @@
 +++
-title = "The erotic, the warlike and the imperial in the tantraxa0age"
+title = "The erotic, the warlike and the imperial in the tantra age"
 
 +++
 The primary paurANika text of the shrI-kula tradition is the famed

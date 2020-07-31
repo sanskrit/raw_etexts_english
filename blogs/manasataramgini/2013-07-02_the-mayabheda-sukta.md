@@ -1,5 +1,5 @@
 +++
-title = "The mayAbheda sUkta: axa0discursion"
+title = "The mayAbheda sUkta: a discursion"
 
 +++
 In the great pravargya ritual the mAhAvIra pot containing the milk of a

@@ -1,5 +1,5 @@
 +++
-title = "Mantriform incantations in otherxa0cultures"
+title = "Mantriform incantations in other cultures"
 
 +++
 A part of the study of the development of mantra-shAstra is a

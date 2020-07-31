@@ -1,5 +1,5 @@
 +++
-title = "The richness ofxa0meaning"
+title = "The richness of meaning"
 
 +++
 After years of fruitless pursuit R felt that she had finally engaged

@@ -1,5 +1,5 @@
 +++
-title = "A geopolitical round up: last week of Novxa02015"
+title = "A geopolitical round up: last week of Nov 2015"
 
 +++
 Many turns of the sun ago, when we were still a kid in school, we had

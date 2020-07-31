@@ -1,5 +1,5 @@
 +++
-title = "The mystery ofxa0marsupials"
+title = "The mystery of marsupials"
 
 +++
 [![marsupial\_skulls](https://i0.wp.com/farm4.static.flickr.com/3075/2888697485_c670521c0a_o.jpg)](http://www.flickr.com/photos/24766652@N05/2888697485/ "marsupial_skulls by somasushma, on Flickr")

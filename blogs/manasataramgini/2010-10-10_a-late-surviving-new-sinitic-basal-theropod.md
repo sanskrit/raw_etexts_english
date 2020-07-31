@@ -1,5 +1,5 @@
 +++
-title = "A late-surviving new Sinitic basalxa0theropod"
+title = "A late-surviving new Sinitic basal theropod"
 
 +++
 We must state upfront that the below is based on a news report and not a

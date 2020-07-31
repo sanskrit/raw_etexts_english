@@ -1,5 +1,5 @@
 +++
-title = "The thought train of cephalopodxa0intelligence"
+title = "The thought train of cephalopod intelligence"
 
 +++
 [![octopi](https://i2.wp.com/farm4.static.flickr.com/3035/3017917925_44a58ed3c2.jpg)](http://www.flickr.com/photos/24766652@N05/3017917925/ "octopi by somasushma, on Flickr")

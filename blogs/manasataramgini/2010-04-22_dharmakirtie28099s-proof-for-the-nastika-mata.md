@@ -1,5 +1,5 @@
 +++
-title = "dharmakIrti’s proof for the nAstikaxa0mata"
+title = "dharmakIrti’s proof for the nAstika mata"
 
 +++
 That learned pAShaNDa among the brAhmaNa-s, AchArya dharmakIrti, is said

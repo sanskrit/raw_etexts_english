@@ -1,5 +1,5 @@
 +++
-title = "The incredible beauty of certain Hamiltonianxa0mappings"
+title = "The incredible beauty of certain Hamiltonian mappings"
 
 +++
 In our teens we studied Hamiltonian functions a little bit as part of

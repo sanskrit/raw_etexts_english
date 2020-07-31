@@ -1,5 +1,5 @@
 +++
-title = "The makings of \"Islamicxa0Science\""
+title = "The makings of \"Islamic Science\""
 
 +++
 “In the time of the Hellenes and during the early days of the empire of

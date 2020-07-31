@@ -1,5 +1,5 @@
 +++
-title = "The grass on Jx’sxa0pasture"
+title = "The grass on Jx’s pasture"
 
 +++
 “svargeNa svargaM”

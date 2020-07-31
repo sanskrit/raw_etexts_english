@@ -1,5 +1,5 @@
 +++
-title = "The Aśvin-s andxa0Rudra"
+title = "The Aśvin-s and Rudra"
 
 +++
 The twin Aśvin-s and Rudra are both Indo-Aryan reflexes of two

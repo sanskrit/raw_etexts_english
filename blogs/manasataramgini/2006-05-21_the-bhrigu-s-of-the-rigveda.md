@@ -1,5 +1,5 @@
 +++
-title = "The bhR^igu-s of thexa0R^igveda"
+title = "The bhR^igu-s of the R^igveda"
 
 +++
 From the accounts of vedic tradition the bhR^igu-s were the foremost of

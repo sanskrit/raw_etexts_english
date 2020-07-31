@@ -1,5 +1,5 @@
 +++
-title = "The base ofxa0Artiodactyla"
+title = "The base of Artiodactyla"
 
 +++
 Notable aspect of our divergence from our cousins, the chimpanzees, has

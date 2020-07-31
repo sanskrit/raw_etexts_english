@@ -1,5 +1,5 @@
 +++
-title = "The vinAyaka saubhAgyaxa0krama"
+title = "The vinAyaka saubhAgya krama"
 
 +++
 vighnas may be crushed with the vidhi of the terrible vinAyaka. It is

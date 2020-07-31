@@ -1,5 +1,5 @@
 +++
-title = "The purANa of the Maharatta ruler, the paTTisha and otherxa0issues"
+title = "The purANa of the Maharatta ruler, the paTTisha and other issues"
 
 +++
 The Hindu paurANic style never died out. We know of the many responses

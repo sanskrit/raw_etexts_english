@@ -1,5 +1,5 @@
 +++
-title = "Rathva tribe: surprising survival of Vedicxa0traits"
+title = "Rathva tribe: surprising survival of Vedic traits"
 
 +++
 The Rathvas are a peculiar tribe in Gujarat whose art was studied by

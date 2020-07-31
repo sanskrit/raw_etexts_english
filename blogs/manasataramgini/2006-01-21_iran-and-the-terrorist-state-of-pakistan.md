@@ -1,5 +1,5 @@
 +++
-title = "Iran and the Terrorist state ofxa0Pakistan"
+title = "Iran and the Terrorist state of Pakistan"
 
 +++
 The ascendency of USA came as a result of it literally being the “New

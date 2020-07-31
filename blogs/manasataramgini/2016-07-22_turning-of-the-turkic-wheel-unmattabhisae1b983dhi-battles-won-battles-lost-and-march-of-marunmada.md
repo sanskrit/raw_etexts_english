@@ -1,5 +1,5 @@
 +++
-title = "Turning of the Turkic wheel: unmattābhisaṃdhi, battles won, battles lost and march ofxa0marūnmāda"
+title = "Turning of the Turkic wheel: unmattābhisaṃdhi, battles won, battles lost and march of marūnmāda"
 
 +++
 When the Mamluqs controlled the rākṣasālaya-s of Mecca and Medina they

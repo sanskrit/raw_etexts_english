@@ -1,5 +1,5 @@
 +++
-title = "Turtle origins: A flawed return to the parareptile theory by thexa0morphologists"
+title = "Turtle origins: A flawed return to the parareptile theory by the morphologists"
 
 +++
 We have repeatedly discussed on these pages how molecular phylogenies

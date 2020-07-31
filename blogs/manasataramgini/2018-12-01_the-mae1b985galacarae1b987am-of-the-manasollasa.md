@@ -1,5 +1,5 @@
 +++
-title = "The maṅgalācaraṇam of thexa0Mānasollāsa"
+title = "The maṅgalācaraṇam of the Mānasollāsa"
 
 +++
 [In PDF

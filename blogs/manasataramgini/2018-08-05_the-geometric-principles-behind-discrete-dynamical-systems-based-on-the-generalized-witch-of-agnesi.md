@@ -1,5 +1,5 @@
 +++
-title = "The geometric principles behind discrete dynamical systems based on the generalized Witch ofxa0Agnesi"
+title = "The geometric principles behind discrete dynamical systems based on the generalized Witch of Agnesi"
 
 +++
 Consider the family of curves defined by the equation following

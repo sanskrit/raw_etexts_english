@@ -1,5 +1,5 @@
 +++
-title = "The Malhotran theory ofxa0U-turns"
+title = "The Malhotran theory of U-turns"
 
 +++
 Malhotra, proposed a theory that the Westerners or members of the

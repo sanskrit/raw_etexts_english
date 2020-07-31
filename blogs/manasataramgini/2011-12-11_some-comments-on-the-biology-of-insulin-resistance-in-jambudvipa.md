@@ -1,5 +1,5 @@
 +++
-title = "Some comments on the biology of insulin resistance inxa0jaMbudvIpa"
+title = "Some comments on the biology of insulin resistance in jaMbudvIpa"
 
 +++
 A recent paper by Metspalu et al in AHJG adds additional data to the

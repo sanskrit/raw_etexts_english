@@ -1,5 +1,5 @@
 +++
-title = "A note on the least prime divisor sequences of 2p plus or minusxa01"
+title = "A note on the least prime divisor sequences of 2p plus or minus 1"
 
 +++
 Let ![p](https://s0.wp.com/latex.php?latex=p&bg=ffffff&fg=333333&s=0

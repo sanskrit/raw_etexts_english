@@ -1,5 +1,5 @@
 +++
-title = "Rajita’s account of shrIvidyA’s imprint on the topography ofxa0Himachal"
+title = "Rajita’s account of shrIvidyA’s imprint on the topography of Himachal"
 
 +++
 R was telling us of how the holy configurations of shrIvidyA are

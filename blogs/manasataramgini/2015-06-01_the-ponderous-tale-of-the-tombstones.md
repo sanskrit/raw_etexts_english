@@ -1,5 +1,5 @@
 +++
-title = "The ponderous tale of thexa0tombstones"
+title = "The ponderous tale of the tombstones"
 
 +++
 “Since you are recording the diverse Vaidruma-s would you record the

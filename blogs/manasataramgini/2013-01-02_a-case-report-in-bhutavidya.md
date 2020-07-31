@@ -1,5 +1,5 @@
 +++
-title = "A case report inxa0bhUtavidyA"
+title = "A case report in bhUtavidyA"
 
 +++
 S has a remarkable collection of tales concerning her observations at

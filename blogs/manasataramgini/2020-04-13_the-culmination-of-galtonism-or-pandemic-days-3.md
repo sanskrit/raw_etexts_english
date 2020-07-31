@@ -1,5 +1,5 @@
 +++
-title = "The culmination of Galtonism or pandemicxa0days-3"
+title = "The culmination of Galtonism or pandemic days-3"
 
 +++
 We saw a list of famous elderly people whom the virus has already placed

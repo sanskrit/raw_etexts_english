@@ -1,5 +1,5 @@
 +++
-title = "The doctor and the speech at the right-wingxa0think-tank"
+title = "The doctor and the speech at the right-wing think-tank"
 
 +++
 It was a late Friday afternoon and Vidrum had returned home early from

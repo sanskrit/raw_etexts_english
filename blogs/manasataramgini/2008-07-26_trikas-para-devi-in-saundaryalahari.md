@@ -1,5 +1,5 @@
 +++
-title = "trika’s parA-devI inxa0saundaryalaharI"
+title = "trika’s parA-devI in saundaryalaharI"
 
 +++
 R had asked me if trika’s devI is encoded in the saundaryalaharI. Just

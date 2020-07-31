@@ -1,5 +1,5 @@
 +++
-title = "The 4 incarnations ofxa0gaNapati"
+title = "The 4 incarnations of gaNapati"
 
 +++
 The gaNesha purANa has the 4 fold incarnations of gaNapati. They are:  

@@ -1,5 +1,5 @@
 +++
-title = "Lama tAranAtha’s account of the nAstika virUpA thexa0younger"
+title = "Lama tAranAtha’s account of the nAstika virUpA the younger"
 
 +++
 In the kaccha country in the west lived a king named vibharaTTa during

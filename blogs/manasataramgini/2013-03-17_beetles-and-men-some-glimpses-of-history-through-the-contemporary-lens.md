@@ -1,5 +1,5 @@
 +++
-title = "Beetles and men: some glimpses of history through the contemporaryxa0lens"
+title = "Beetles and men: some glimpses of history through the contemporary lens"
 
 +++
 ***The tale of poisoned arrows***  

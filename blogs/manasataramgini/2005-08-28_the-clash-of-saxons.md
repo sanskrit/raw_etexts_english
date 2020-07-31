@@ -1,5 +1,5 @@
 +++
-title = "The clash ofxa0Saxons"
+title = "The clash of Saxons"
 
 +++
 The great leader of the Southern Saxon, Pirate king Slit-Eyes had died

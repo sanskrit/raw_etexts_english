@@ -1,5 +1,5 @@
 +++
-title = "The mystery goddess of the shu~Ngaxa0period"
+title = "The mystery goddess of the shu~Nga period"
 
 +++
 [![](https://i2.wp.com/lh4.ggpht.com/_hjuA1bE0hBw/S11JyYMhMsI/AAAAAAAABPM/SpnM5r47ml4/s400/camera1.jpg)](http://picasaweb.google.com/lh/photo/ipRtDgH6FJQ5sG5OaZxliA?feat=embedwebsite)

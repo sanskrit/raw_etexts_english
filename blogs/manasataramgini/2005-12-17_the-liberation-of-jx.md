@@ -1,5 +1,5 @@
 +++
-title = "The Liberation ofxa0Jx"
+title = "The Liberation of Jx"
 
 +++
 The clansmen got to gether to take stock of the proceedings. The case of

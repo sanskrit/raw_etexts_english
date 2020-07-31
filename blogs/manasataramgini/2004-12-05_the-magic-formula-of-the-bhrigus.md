@@ -1,5 +1,5 @@
 +++
-title = "The magic formula of thexa0bhR^igus"
+title = "The magic formula of the bhR^igus"
 
 +++
 pra suvAnaH soma R^itayush chiketendrAya brahMa jamadagnir archan /  

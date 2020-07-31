@@ -1,5 +1,5 @@
 +++
-title = "The prelude to the philosophicalxa0penetration"
+title = "The prelude to the philosophical penetration"
 
 +++
 It was a couple of months after dvAdashAnta. We were wandering on our

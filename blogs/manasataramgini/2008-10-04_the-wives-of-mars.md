@@ -1,5 +1,5 @@
 +++
-title = "The wives of Mars and the Carmenxa0Arvale"
+title = "The wives of Mars and the Carmen Arvale"
 
 +++
 In our earlier discussion we had argued based on structural homologies

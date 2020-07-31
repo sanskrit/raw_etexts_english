@@ -1,5 +1,5 @@
 +++
-title = "The anti-shaiva rants of thexa0nAstika-s"
+title = "The anti-shaiva rants of the nAstika-s"
 
 +++
 The below may offend Hindus; Hence viewer discretion is advised.

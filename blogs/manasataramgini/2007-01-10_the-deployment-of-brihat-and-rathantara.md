@@ -1,5 +1,5 @@
 +++
-title = "The deployment of bR^ihat andxa0rathantara"
+title = "The deployment of bR^ihat and rathantara"
 
 +++
 The ancient bhArgava ushanA kAvya has declared how the bR^ihat and

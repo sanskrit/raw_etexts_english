@@ -1,5 +1,5 @@
 +++
-title = "The Indian republic and the microcosm of socialxa0media"
+title = "The Indian republic and the microcosm of social media"
 
 +++
 We have spent most of our adult life in a world connected by the

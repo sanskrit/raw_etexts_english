@@ -78,8 +78,7 @@ enemies of the immortal gods. Therefore persuade them, if they claim my
 patronage, that the whole community must become suppliants of the Mother
 of the Gods.*”
 
-::::::::::::::::::::::::::::::::::::::  
-**Notes**  
+## Notes  
 ● Adrasteia: The Loeb translation says that Adrasteia is Nemesis.
 However, it should be noted that in the account of the birth of the
 great god Zeus Adrasteia is also termed Themis. The epithet is also used

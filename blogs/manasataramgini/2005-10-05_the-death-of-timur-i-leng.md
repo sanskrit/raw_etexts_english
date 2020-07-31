@@ -1,5 +1,5 @@
 +++
-title = "The death ofxa0Timur-i-leng"
+title = "The death of Timur-i-leng"
 
 +++
 This year marks the 600th anniversary of the death of the great Islamic

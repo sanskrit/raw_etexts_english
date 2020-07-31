@@ -1,5 +1,5 @@
 +++
-title = "The subversion ofxa0Russia"
+title = "The subversion of Russia"
 
 +++
 In school we were taught of the Russian revolution in history. It was

@@ -1,5 +1,5 @@
 +++
-title = "The kingdom inxa0danger"
+title = "The kingdom in danger"
 
 +++
 For the first time in our reign did we find the kingdom in such an

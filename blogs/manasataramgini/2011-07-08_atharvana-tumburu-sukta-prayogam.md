@@ -1,5 +1,5 @@
 +++
-title = "AtharvaNa tumburu sUktaxa0prayogaM"
+title = "AtharvaNa tumburu sUkta prayogaM"
 
 +++
 In the AtharvaNa tradition after having learned the mantra-s of the

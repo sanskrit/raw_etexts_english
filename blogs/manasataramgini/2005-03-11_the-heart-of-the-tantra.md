@@ -1,5 +1,5 @@
 +++
-title = "The heart of thexa0tantra"
+title = "The heart of the tantra"
 
 +++
 The very word tantra conveys that deep meaning to the “knowers”. That

@@ -1,5 +1,5 @@
 +++
-title = "The shUdra fromxa0parvatapAda"
+title = "The shUdra from parvatapAda"
 
 +++
 In the distant past we had little knowledge of the future that awaited

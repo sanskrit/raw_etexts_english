@@ -1,5 +1,5 @@
 +++
-title = "The odd Cambodian inscription ofxa0vinAyaka"
+title = "The odd Cambodian inscription of vinAyaka"
 
 +++
 Among the old inscriptions of the vinAyaka temples in the far-East are

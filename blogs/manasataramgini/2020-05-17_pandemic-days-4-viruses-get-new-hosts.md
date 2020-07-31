@@ -1,5 +1,5 @@
 +++
-title = "Pandemic days-4: viruses get newxa0hosts"
+title = "Pandemic days-4: viruses get new hosts"
 
 +++
 That we have come to be in these pandemic days evokes some wonderment or

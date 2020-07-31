@@ -1,5 +1,5 @@
 +++
-title = "Mongolica: Chingiz Khan and thexa0rest"
+title = "Mongolica: Chingiz Khan and the rest"
 
 +++
 As we have remarked [many

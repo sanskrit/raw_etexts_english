@@ -1,5 +1,5 @@
 +++
-title = "The snake ofxa0viShNu"
+title = "The snake of viShNu"
 
 +++
 Upon the great snake shesha sleeps the great god viShNu, even as the the

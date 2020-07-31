@@ -1,5 +1,5 @@
 +++
-title = "A meditational aid for parAxa0sAdhana"
+title = "A meditational aid for parA sAdhana"
 
 +++
 [![](https://i1.wp.com/farm4.static.flickr.com/3159/2773049695_013b3d6376_b.jpg)](http://farm4.static.flickr.com/3159/2773049695_013b3d6376_b.jpg)

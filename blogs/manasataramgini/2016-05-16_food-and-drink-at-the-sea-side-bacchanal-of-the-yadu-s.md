@@ -1,5 +1,5 @@
 +++
-title = "Food and drink at the sea-side bacchanal of thexa0yadu-s"
+title = "Food and drink at the sea-side bacchanal of the yadu-s"
 
 +++
 Sections 2.88-89 of the Harivaṃśa (Viṣṇuparvan) gives a graphic

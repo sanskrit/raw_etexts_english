@@ -1,5 +1,5 @@
 +++
-title = "The circle ofxa0yakShiNI-s"
+title = "The circle of yakShiNI-s"
 
 +++
 We bow to the great goddess of the trotalottaraM and pay worship to the

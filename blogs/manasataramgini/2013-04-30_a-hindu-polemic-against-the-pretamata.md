@@ -1,5 +1,5 @@
 +++
-title = "A Hindu polemic against thexa0pretamata"
+title = "A Hindu polemic against the pretamata"
 
 +++
 When the English gained ascendancy after the defeat of the marATha-s and

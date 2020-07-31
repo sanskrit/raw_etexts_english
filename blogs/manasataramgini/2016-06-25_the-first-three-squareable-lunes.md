@@ -1,5 +1,5 @@
 +++
-title = "The first three squareablexa0Lunes"
+title = "The first three squareable Lunes"
 
 +++
 For the sake of some readers we shall first define a lune: A lune is a

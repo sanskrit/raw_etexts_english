@@ -1,5 +1,5 @@
 +++
-title = "The lesson ofxa0arjuna"
+title = "The lesson of arjuna"
 
 +++
 The third paNDava, as an impetuous warrior, the embodiment of the great

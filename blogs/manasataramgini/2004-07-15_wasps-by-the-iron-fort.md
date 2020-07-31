@@ -1,5 +1,5 @@
 +++
-title = "Wasps by the ironxa0fort"
+title = "Wasps by the iron fort"
 
 +++
 In the early 90s we decided to scale to the great cliff of Lohagad where

@@ -1,5 +1,5 @@
 +++
-title = "The AmnAya-krama for the dual worship of shArikA andxa0tripurA"
+title = "The AmnAya-krama for the dual worship of shArikA and tripurA"
 
 +++
 R and I finally got to moving ahead with the initial part of laying out

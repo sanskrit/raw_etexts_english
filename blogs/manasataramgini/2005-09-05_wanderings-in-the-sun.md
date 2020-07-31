@@ -1,5 +1,5 @@
 +++
-title = "Wanderings in thexa0sun"
+title = "Wanderings in the sun"
 
 +++
 They say it is galanin. It had triggered the waves in the rasArNava. The

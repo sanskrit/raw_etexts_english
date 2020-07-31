@@ -1,5 +1,5 @@
 +++
-title = "More atrocities in the name of artxa0:-)"
+title = "More atrocities in the name of art :-)"
 
 +++
 *gada’s child*  

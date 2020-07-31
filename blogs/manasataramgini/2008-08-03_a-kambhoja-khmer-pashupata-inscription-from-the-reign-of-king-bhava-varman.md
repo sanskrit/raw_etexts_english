@@ -1,5 +1,5 @@
 +++
-title = "A Kambhoja (Khmer) pAshupata inscription from the reign of kingxa0bhava-varman"
+title = "A Kambhoja (Khmer) pAshupata inscription from the reign of king bhava-varman"
 
 +++
 A Sanskrit inscription from the Phnom Prah Vihar hillock in Cambodia,

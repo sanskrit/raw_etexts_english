@@ -1,5 +1,5 @@
 +++
-title = "Will the veil of the pelagornithids bexa0pierced?"
+title = "Will the veil of the pelagornithids be pierced?"
 
 +++
 [![pelagornithid](https://i1.wp.com/farm4.static.flickr.com/3590/3325302488_bfbe023afd.jpg)](http://www.flickr.com/photos/24766652@N05/3325302488/ "pelagornithid by somasushma, on Flickr")

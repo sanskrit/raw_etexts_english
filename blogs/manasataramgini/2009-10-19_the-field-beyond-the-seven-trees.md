@@ -1,5 +1,5 @@
 +++
-title = "The field beyond the sevenxa0trees"
+title = "The field beyond the seven trees"
 
 +++
 Sporting with the dUtI we reached the spot where seven trees stood in a

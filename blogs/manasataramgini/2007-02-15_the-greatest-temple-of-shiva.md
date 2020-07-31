@@ -1,5 +1,5 @@
 +++
-title = "The greatest temple ofxa0shiva"
+title = "The greatest temple of shiva"
 
 +++
 [![](https://i1.wp.com/bp0.blogger.com/_ZhvcTTaaD_4/RdQNa-8rbvI/AAAAAAAAAEA/c-oohFLsEEw/s320/elephanta_03_0001.jpg)](http://bp0.blogger.com/_ZhvcTTaaD_4/RdQNa-8rbvI/AAAAAAAAAEA/c-oohFLsEEw/s1600-h/elephanta_03_0001.jpg)

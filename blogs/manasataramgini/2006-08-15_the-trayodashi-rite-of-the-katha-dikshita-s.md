@@ -1,5 +1,5 @@
 +++
-title = "The trayodashi rite of the kaThaxa0dIkShita-s"
+title = "The trayodashi rite of the kaTha dIkShita-s"
 
 +++
 The following is courtesy of Rajita, whom the deva-s have given me the

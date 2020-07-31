@@ -1,5 +1,5 @@
 +++
-title = "The battle with thexa0AkrAnta"
+title = "The battle with the AkrAnta"
 
 +++
 The ari-s had always wished evil to befall us and tried a dreadful

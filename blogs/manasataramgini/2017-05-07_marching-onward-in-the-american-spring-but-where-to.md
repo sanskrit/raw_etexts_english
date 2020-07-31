@@ -1,5 +1,5 @@
 +++
-title = "Marching onward in the American spring but wherexa0to?"
+title = "Marching onward in the American spring but where to?"
 
 +++
 We hear in the news that the students (and whoever else) at the

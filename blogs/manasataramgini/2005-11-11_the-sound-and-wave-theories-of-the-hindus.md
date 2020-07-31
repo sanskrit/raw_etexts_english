@@ -1,5 +1,5 @@
 +++
-title = "The sound and wave theories of thexa0Hindus"
+title = "The sound and wave theories of the Hindus"
 
 +++
 The achievements early Hindu science are hardly known in an objective

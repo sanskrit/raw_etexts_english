@@ -1,5 +1,5 @@
 +++
-title = "The pain of the cellxa0phones"
+title = "The pain of the cell phones"
 
 +++
 We saw the wonderous charms of Hayastanika fade behind the impenetrable

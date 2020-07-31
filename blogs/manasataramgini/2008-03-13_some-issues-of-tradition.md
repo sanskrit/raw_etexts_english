@@ -1,5 +1,5 @@
 +++
-title = "Some issues ofxa0tradition"
+title = "Some issues of tradition"
 
 +++
 In discussions with R and some others a few topics have repeatedly come

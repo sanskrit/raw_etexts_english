@@ -1,5 +1,5 @@
 +++
-title = "Erketu and thexa0titanosaurs"
+title = "Erketu and the titanosaurs"
 
 +++
 The titanosaurs were the last great radiation of the sauropods. Earlier

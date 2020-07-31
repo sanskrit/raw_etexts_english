@@ -1,5 +1,5 @@
 +++
-title = "The giants among thexa0lilliputs"
+title = "The giants among the lilliputs"
 
 +++
 For long despite protestations and assertions to the contrary men have

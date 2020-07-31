@@ -1,5 +1,5 @@
 +++
-title = "The rise ofxa0Timur-i-Leng"
+title = "The rise of Timur-i-Leng"
 
 +++
 As I stated before I have begun my compilation of the history of the

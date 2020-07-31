@@ -1,5 +1,5 @@
 +++
-title = "Some notes on khecharIxa0mudra"
+title = "Some notes on khecharI mudra"
 
 +++
 [![head\_khecharI](https://i1.wp.com/farm3.static.flickr.com/2452/3700634334_9854185ac8.jpg)](http://www.flickr.com/photos/24766652@N05/3700634334/ "head_khecharI by somasushma, on Flickr")  

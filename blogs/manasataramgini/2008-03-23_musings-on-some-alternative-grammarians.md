@@ -1,5 +1,5 @@
 +++
-title = "Musings on some alternativexa0grammarians"
+title = "Musings on some alternative grammarians"
 
 +++
 durgasiMha the commentator on the nirukta of yAska states:  

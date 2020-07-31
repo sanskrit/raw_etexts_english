@@ -1,5 +1,5 @@
 +++
-title = "The two lakulin-s: Arya andxa0yavana"
+title = "The two lakulin-s: Arya and yavana"
 
 +++
 [![lakulIsha\_heraKles](https://i1.wp.com/farm4.static.flickr.com/3401/3600576095_103d678383_o.png)](http://www.flickr.com/photos/24766652@N05/3600576095/ "lakulIsha_heraKles by somasushma, on Flickr")

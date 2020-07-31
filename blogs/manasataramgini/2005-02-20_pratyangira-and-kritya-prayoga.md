@@ -1,5 +1,5 @@
 +++
-title = "pratya~NgirA and kR^ityAxa0prayoga"
+title = "pratya~NgirA and kR^ityA prayoga"
 
 +++
 There was more than one discussion recently as to whether the tantric

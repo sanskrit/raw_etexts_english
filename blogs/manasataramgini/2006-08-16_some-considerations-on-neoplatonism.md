@@ -1,5 +1,5 @@
 +++
-title = "Some considerations onxa0Neoplatonism"
+title = "Some considerations on Neoplatonism"
 
 +++
 I have always believed, since I was probably 11 years old, that it was

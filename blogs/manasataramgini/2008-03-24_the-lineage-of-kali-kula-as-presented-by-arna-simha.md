@@ -1,5 +1,5 @@
 +++
-title = "The lineage of kAli-kula as presented byxa0arNa-siMha"
+title = "The lineage of kAli-kula as presented by arNa-siMha"
 
 +++
 paNDita arNa-siMha is today a poorly known teacher. From his two works

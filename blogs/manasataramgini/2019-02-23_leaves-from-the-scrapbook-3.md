@@ -1,5 +1,5 @@
 +++
-title = "Leaves from thexa0scrapbook-3"
+title = "Leaves from the scrapbook-3"
 
 +++
 As described here these entries are from the [scrapbook of

@@ -1,5 +1,5 @@
 +++
-title = "Hindu Armies: the forgotten struggle against thexa0Moslems"
+title = "Hindu Armies: the forgotten struggle against the Moslems"
 
 +++
 The Indian text books written by secular historians, have often

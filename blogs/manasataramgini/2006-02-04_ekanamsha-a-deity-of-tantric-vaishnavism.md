@@ -1,5 +1,5 @@
 +++
-title = "ekAnamshA: a deity of tantricxa0vaiShNavism"
+title = "ekAnamshA: a deity of tantric vaiShNavism"
 
 +++
 [![](https://i1.wp.com/photos1.blogger.com/blogger/2010/410/320/ekAnamshA.0.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/ekAnamshA.0.jpg)

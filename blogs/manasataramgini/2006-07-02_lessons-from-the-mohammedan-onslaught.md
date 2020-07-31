@@ -1,5 +1,5 @@
 +++
-title = "Lessons from the Mohammedanxa0onslaught"
+title = "Lessons from the Mohammedan onslaught"
 
 +++
 The battle raging in the Middle East between the Jews and their

@@ -1,5 +1,5 @@
 +++
-title = "von Nopsca’s Jurassic dejaxa0vu"
+title = "von Nopsca’s Jurassic deja vu"
 
 +++
 [![](https://i2.wp.com/photos1.blogger.com/blogger/2010/410/320/Nopsca.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/Nopsca.jpg)

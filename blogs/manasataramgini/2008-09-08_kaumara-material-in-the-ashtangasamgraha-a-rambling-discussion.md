@@ -1,5 +1,5 @@
 +++
-title = "kaumAra material in the aShTA~NgasaMgraha: a ramblingxa0discussion"
+title = "kaumAra material in the aShTA~NgasaMgraha: a rambling discussion"
 
 +++
 **The provenance of the aShTA\~NgasaMgraha**  

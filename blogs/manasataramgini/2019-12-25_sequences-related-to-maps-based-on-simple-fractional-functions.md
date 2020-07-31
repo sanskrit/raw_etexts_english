@@ -1,5 +1,5 @@
 +++
-title = "Sequences related to maps based on simple fractionalxa0functions"
+title = "Sequences related to maps based on simple fractional functions"
 
 +++
 One of the pleasures of an unstructured youth in the pre-computer era

@@ -1,5 +1,5 @@
 +++
-title = "The herb grids of the kubjikAxa0mata"
+title = "The herb grids of the kubjikA mata"
 
 +++
 [![](https://i2.wp.com/photos1.blogger.com/hello/133/1300/400/oShadhi_grid.jpg)](http://photos1.blogger.com/hello/133/1300/640/oShadhi_grid.jpg)

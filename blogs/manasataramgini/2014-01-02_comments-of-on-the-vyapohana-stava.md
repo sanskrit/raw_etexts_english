@@ -1,5 +1,5 @@
 +++
-title = "Some comments of on the vyapohana stava and itsxa0pantheon"
+title = "Some comments of on the vyapohana stava and its pantheon"
 
 +++
 The vyapohana stava is an important saiddhAntika purificatory

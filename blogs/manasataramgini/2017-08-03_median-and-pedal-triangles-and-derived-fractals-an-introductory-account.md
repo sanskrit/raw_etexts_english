@@ -1,5 +1,5 @@
 +++
-title = "Median and pedal triangles and derived fractals: an introductoryxa0account"
+title = "Median and pedal triangles and derived fractals: an introductory account"
 
 +++
 It is rather easily seen that joining the midpoints of the sides of a

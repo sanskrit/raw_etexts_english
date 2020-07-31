@@ -1,5 +1,5 @@
 +++
-title = "In the sea ofxa0thought"
+title = "In the sea of thought"
 
 +++
 We spent a lot of time in mirth with the whole assembly. The nice

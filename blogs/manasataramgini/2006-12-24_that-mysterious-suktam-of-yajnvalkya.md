@@ -1,5 +1,5 @@
 +++
-title = "That mysterious sUktaM ofxa0yAj~nvalkya"
+title = "That mysterious sUktaM of yAj~nvalkya"
 
 +++
 One of the most towering of the colossi of arcane Hindu thought is

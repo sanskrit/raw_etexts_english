@@ -1,5 +1,5 @@
 +++
-title = "Śiva-gaṇa-s and Andhakāsura-vadha in thexa0Vāmana-purāṇa"
+title = "Śiva-gaṇa-s and Andhakāsura-vadha in the Vāmana-purāṇa"
 
 +++
 On Twitter, one of our acquaintances going by the name @GhorAngirasa had

@@ -1,5 +1,5 @@
 +++
-title = "War in thexa0Konkan"
+title = "War in the Konkan"
 
 +++
 Very little has been recorded of the valiant freedom struggle in the

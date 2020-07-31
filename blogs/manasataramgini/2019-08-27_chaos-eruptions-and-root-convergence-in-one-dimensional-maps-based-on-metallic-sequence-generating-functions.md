@@ -1,5 +1,5 @@
 +++
-title = "Chaos, eruptions and root-convergence in one-dimensional maps based on metallic-sequence generatingxa0functions"
+title = "Chaos, eruptions and root-convergence in one-dimensional maps based on metallic-sequence generating functions"
 
 +++
 [bronze\_bouncer](https://manasataramgini.files.wordpress.com/2019/08/bronze_bouncer.pdf "bronze_bouncer")

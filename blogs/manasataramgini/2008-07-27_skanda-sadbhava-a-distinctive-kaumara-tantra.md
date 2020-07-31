@@ -1,5 +1,5 @@
 +++
-title = "skanda sadbhAva: A distinctive kaumAraxa0tantra?"
+title = "skanda sadbhAva: A distinctive kaumAra tantra?"
 
 +++
 Even though there are kumAra shrines ranking amongst the richest of the

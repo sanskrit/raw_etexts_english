@@ -1,5 +1,5 @@
 +++
-title = "The sacrifice of the Horse in thexa0ashvamedha"
+title = "The sacrifice of the Horse in the ashvamedha"
 
 +++
 1\) The adhvaryu takes the last drink of water to the horse and offers

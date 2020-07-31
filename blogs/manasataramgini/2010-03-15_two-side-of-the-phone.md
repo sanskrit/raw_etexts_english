@@ -1,5 +1,5 @@
 +++
-title = "Two sides of thexa0phone"
+title = "Two sides of the phone"
 
 +++
 ST was describing her readings of a chIna authoress (I totally forgot

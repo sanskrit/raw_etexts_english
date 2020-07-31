@@ -1,5 +1,5 @@
 +++
-title = "The roguish Karttikeya and the wives of thexa0gods"
+title = "The roguish Karttikeya and the wives of the gods"
 
 +++
 **We worship the roguish deity kumAra with offerings as ordained by the

@@ -1,5 +1,5 @@
 +++
-title = "The successors of the kaunteya-s in the national memory of bhArata-s and bhoTa-s and relatedxa0discursions"
+title = "The successors of the kaunteya-s in the national memory of bhArata-s and bhoTa-s and related discursions"
 
 +++
 [![](https://lh6.googleusercontent.com/-poL9YmtTfgs/Uru9g_7rdSI/AAAAAAAACzY/6JeMO_NO2VY/s640/pandavas.jpg)](https://picasaweb.google.com/lh/photo/9CJ5Vhx1oEWbxbYLqklAlNMTjNZETYmyPJy0liipFm0?feat=embedwebsite)

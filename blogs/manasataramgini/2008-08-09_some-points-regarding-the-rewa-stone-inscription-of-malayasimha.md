@@ -1,5 +1,5 @@
 +++
-title = "Some points regarding the Rewa stone inscription ofxa0malayasiMha"
+title = "Some points regarding the Rewa stone inscription of malayasiMha"
 
 +++
 The inscription was made for malaya-siMha, a general of the Tripuri

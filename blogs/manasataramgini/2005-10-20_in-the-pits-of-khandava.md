@@ -1,5 +1,5 @@
 +++
-title = "In the pits ofxa0khANDava"
+title = "In the pits of khANDava"
 
 +++
 The amAtya’s spells had provided a temporary respite by completely

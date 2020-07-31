@@ -1,5 +1,5 @@
 +++
-title = "Strange memories of Germanxa0poems"
+title = "Strange memories of German poems"
 
 +++
 R was pretty excited at having procured the kapphiNa-abhyudaya for only

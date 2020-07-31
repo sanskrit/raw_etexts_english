@@ -1,5 +1,5 @@
 +++
-title = "Some artwork by mAtAshrI in connection to recentxa0vrata-s"
+title = "Some artwork by mAtAshrI in connection to recent vrata-s"
 
 +++
 Some of the family images in display

@@ -1,5 +1,5 @@
 +++
-title = "The kea – the foremost of thexa0dinosaurs"
+title = "The kea – the foremost of the dinosaurs"
 
 +++
 [![](https://i2.wp.com/bp3.blogger.com/_ZhvcTTaaD_4/RmTyiE5tW0I/AAAAAAAAAJs/8uAzXlH7Vo8/s320/kea.jpg)](http://bp3.blogger.com/_ZhvcTTaaD_4/RmTyiE5tW0I/AAAAAAAAAJs/8uAzXlH7Vo8/s1600-h/kea.jpg)

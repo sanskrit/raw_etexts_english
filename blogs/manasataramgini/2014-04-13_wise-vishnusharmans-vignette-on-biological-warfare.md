@@ -1,5 +1,5 @@
 +++
-title = "Wise viShNusharman’s vignette on biologicalxa0warfare"
+title = "Wise viShNusharman’s vignette on biological warfare"
 
 +++
 brahmA rudraH kumAro hari-varuNa-yamA vahnir indraH kuberash  

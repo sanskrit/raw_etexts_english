@@ -1,5 +1,5 @@
 +++
-title = "A narrative on the kAlAmukha-s: implications for thexa0bhairava-srotas"
+title = "A narrative on the kAlAmukha-s: implications for the bhairava-srotas"
 
 +++
 We had earlier briefly considered the kAlAmukha-s on these pages. While

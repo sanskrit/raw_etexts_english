@@ -1,5 +1,5 @@
 +++
-title = "The battle ofxa0chatur-iShavaH"
+title = "The battle of chatur-iShavaH"
 
 +++
 Our powerful and vicious bhrAtR^ivya-s were bearing down on us in the

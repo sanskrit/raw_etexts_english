@@ -1,5 +1,5 @@
 +++
-title = "A nR^isiMha for obtainingxa0siddhi-s"
+title = "A nR^isiMha for obtaining siddhi-s"
 
 +++
 R1’s father had been lead by a descendant of the famous medieval

@@ -1,5 +1,5 @@
 +++
-title = "The seven-fold agni and the seven-fold troops of thexa0maruts"
+title = "The seven-fold agni and the seven-fold troops of the maruts"
 
 +++
 In the agnichayana/agniShToma the following sequence of rituals are

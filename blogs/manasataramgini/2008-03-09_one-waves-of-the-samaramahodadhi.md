@@ -1,5 +1,5 @@
 +++
-title = "One waves of thexa0samaramahodadhi"
+title = "One waves of the samaramahodadhi"
 
 +++
 On the darsha day we sat to perform our kratu. But we noticed that there

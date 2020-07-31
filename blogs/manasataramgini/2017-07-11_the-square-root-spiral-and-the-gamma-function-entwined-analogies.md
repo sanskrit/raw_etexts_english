@@ -1,5 +1,5 @@
 +++
-title = "The square root spiral and the Gamma function: entwinedxa0analogies"
+title = "The square root spiral and the Gamma function: entwined analogies"
 
 +++
 The topic discussed here is something on which considerable serious

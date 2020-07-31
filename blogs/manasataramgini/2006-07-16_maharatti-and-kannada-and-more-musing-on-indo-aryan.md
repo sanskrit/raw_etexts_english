@@ -1,5 +1,5 @@
 +++
-title = "Maharatti and Kannada and more musing onxa0Indo-Aryan"
+title = "Maharatti and Kannada and more musing on Indo-Aryan"
 
 +++
 Obivously, Indo-Aryan and Dravidian have been at the center of my

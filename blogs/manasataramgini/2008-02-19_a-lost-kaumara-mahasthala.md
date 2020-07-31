@@ -1,5 +1,5 @@
 +++
-title = "A lost kaumAraxa0mahAsthala"
+title = "A lost kaumAra mahAsthala"
 
 +++
 In the late 1800s our predecessor was returning to his home base after

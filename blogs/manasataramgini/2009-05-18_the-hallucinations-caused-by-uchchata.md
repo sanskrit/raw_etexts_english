@@ -1,5 +1,5 @@
 +++
-title = "The hallucinations caused byxa0uchchaTA"
+title = "The hallucinations caused by uchchaTA"
 
 +++
 The history of the rasatantra branch of the kaula system is a vast topic

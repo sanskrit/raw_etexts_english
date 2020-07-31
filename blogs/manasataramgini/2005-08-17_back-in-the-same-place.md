@@ -1,5 +1,5 @@
 +++
-title = "Back in the samexa0place"
+title = "Back in the same place"
 
 +++
 We were set to return to the same battlefield where we had last year

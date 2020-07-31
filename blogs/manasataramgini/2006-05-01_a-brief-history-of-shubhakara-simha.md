@@ -1,5 +1,5 @@
 +++
-title = "A brief history of shubhakaraxa0siMha"
+title = "A brief history of shubhakara siMha"
 
 +++
 The mahA-chInAchArya, shubhakara siMha, a nAstIka of the second varNa,

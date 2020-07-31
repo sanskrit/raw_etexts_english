@@ -1,5 +1,5 @@
 +++
-title = "Bajirao-I, 1737, tulughama and thexa0like"
+title = "Bajirao-I, 1737, tulughama and the like"
 
 +++
 The collections of unedited and unpublished bakhars from the Shaniwar

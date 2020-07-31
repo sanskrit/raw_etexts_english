@@ -1,5 +1,5 @@
 +++
-title = "Neuregulins, serotonin transporter andxa0creativity"
+title = "Neuregulins, serotonin transporter and creativity"
 
 +++
 That the line between genius and madness can be thin one — this reality

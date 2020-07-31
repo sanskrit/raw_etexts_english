@@ -1,5 +1,5 @@
 +++
-title = "The actions of thexa0vairi-s"
+title = "The actions of the vairi-s"
 
 +++
 On the 8th of the month the vairi sent the little imp, a cheTaka, to

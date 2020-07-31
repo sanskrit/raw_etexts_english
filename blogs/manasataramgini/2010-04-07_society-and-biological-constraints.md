@@ -1,5 +1,5 @@
 +++
-title = "Society and biologicalxa0constraints"
+title = "Society and biological constraints"
 
 +++
 For long we have remained a sAkShI on the ethology of Homo sapiens. We

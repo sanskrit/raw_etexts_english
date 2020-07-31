@@ -1,5 +1,5 @@
 +++
-title = "siddhAnta tantrics and the mainstream brahminicalxa0path"
+title = "siddhAnta tantrics and the mainstream brahminical path"
 
 +++
 I have yarned a lot on this topic from different angles: [1) The

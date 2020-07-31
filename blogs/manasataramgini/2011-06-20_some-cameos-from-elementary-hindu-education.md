@@ -1,5 +1,5 @@
 +++
-title = "Some cameos from elementary Hinduxa0education"
+title = "Some cameos from elementary Hindu education"
 
 +++
 An ancient anonymous textbook from my grandparents’ time used by my aunt

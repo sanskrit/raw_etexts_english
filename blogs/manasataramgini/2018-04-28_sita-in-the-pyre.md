@@ -1,5 +1,5 @@
 +++
-title = "Sītā in thexa0pyre"
+title = "Sītā in the pyre"
 
 +++
 It was quiet, early Saturday evening. Vidrum, Jukuta, Sharvamanyu and

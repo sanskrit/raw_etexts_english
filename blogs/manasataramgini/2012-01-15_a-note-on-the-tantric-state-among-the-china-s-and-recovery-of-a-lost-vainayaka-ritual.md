@@ -1,5 +1,5 @@
 +++
-title = "A note on the Tantric state among the chIna-s and recovery of a lost vainAyakaxa0ritual"
+title = "A note on the Tantric state among the chIna-s and recovery of a lost vainAyaka ritual"
 
 +++
 [![](https://lh3.googleusercontent.com/-sRPqhOm8Rbk/TxKOz3BdQZI/AAAAAAAACVI/NHufe1zHmVo/s400/chIna_vinAyaka.jpg)](https://picasaweb.google.com/lh/photo/3a5WTBNu06MxSHCjgkAI89MTjNZETYmyPJy0liipFm0?feat=embedwebsite)

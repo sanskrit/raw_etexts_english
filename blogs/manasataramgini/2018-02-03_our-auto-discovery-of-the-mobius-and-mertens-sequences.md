@@ -1,5 +1,5 @@
 +++
-title = "Our auto-discovery of the Möbius and Mertensxa0sequences"
+title = "Our auto-discovery of the Möbius and Mertens sequences"
 
 +++
 Recently, we were explaining to our friend the Möbius and the Mertens

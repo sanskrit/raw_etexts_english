@@ -1,5 +1,5 @@
 +++
-title = "Fermat’s little theorem and the periods of the reciprocals ofxa0primes"
+title = "Fermat’s little theorem and the periods of the reciprocals of primes"
 
 +++
 **From the genetic code to the proof of Fermat’s little theorem**  

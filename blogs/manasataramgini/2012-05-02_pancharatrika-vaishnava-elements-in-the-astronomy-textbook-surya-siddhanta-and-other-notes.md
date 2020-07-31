@@ -1,5 +1,5 @@
 +++
-title = "pA~ncharAtrika vaiShNava elements in the astronomy textbook sUrya-siddhanta and otherxa0notes"
+title = "pA~ncharAtrika vaiShNava elements in the astronomy textbook sUrya-siddhanta and other notes"
 
 +++
 When it comes to astronomy, more than any other field, the white

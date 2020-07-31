@@ -1,5 +1,5 @@
 +++
-title = "Why did youxa0lose?"
+title = "Why did you lose?"
 
 +++
 What is it that lies hidden in you they spot?  

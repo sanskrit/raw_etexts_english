@@ -1,5 +1,5 @@
 +++
-title = "Some discursion on skanda tantra-s andxa0bAlagraha-s"
+title = "Some discursion on skanda tantra-s and bAlagraha-s"
 
 +++
 [![](https://i2.wp.com/farm4.static.flickr.com/3184/2828977611_2ea439e712_o.jpg

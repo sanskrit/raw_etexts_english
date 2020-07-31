@@ -1,5 +1,5 @@
 +++
-title = "The akShara puruSha maNDala of the pUrvaxa0srotas"
+title = "The akShara puruSha maNDala of the pUrva srotas"
 
 +++
 [![](https://i0.wp.com/photos1.blogger.com/blogger/2010/410/320/shiva_puruSha.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/shiva_puruSha.jpg)

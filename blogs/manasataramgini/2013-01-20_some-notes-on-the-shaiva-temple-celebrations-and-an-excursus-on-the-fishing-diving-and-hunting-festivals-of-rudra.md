@@ -1,5 +1,5 @@
 +++
-title = "Some notes on the shaiva temple celebrations and an excursus on the fishing, diving and hunting festivals ofxa0rudra"
+title = "Some notes on the shaiva temple celebrations and an excursus on the fishing, diving and hunting festivals of rudra"
 
 +++
 An integral aspect of the life of the post-Vedic Hindu community was

@@ -1,5 +1,5 @@
 +++
-title = "Theories for the bhArataxa0conundrum"
+title = "Theories for the bhArata conundrum"
 
 +++
 We earlier described the major problem termed the bhArata conundrum,

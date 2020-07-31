@@ -1,5 +1,5 @@
 +++
-title = "A pan-Indian tale of the nAthaxa0yogin-s"
+title = "A pan-Indian tale of the nAtha yogin-s"
 
 +++
 The lore of the nAtha siddha-s is of pan-Indian distribution. Its

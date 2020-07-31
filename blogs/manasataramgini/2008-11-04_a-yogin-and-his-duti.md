@@ -1,5 +1,5 @@
 +++
-title = "A yogin and hisxa0dUtI"
+title = "A yogin and his dUtI"
 
 +++
 Being fooled by the outward appearance of a prescription in a tantra, or

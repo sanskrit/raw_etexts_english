@@ -1,5 +1,5 @@
 +++
-title = "The end ofxa0Sambhaji"
+title = "The end of Sambhaji"
 
 +++
 After the death of [Hambirrao

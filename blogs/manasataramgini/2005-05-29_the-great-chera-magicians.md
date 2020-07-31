@@ -1,5 +1,5 @@
 +++
-title = "The great cheraxa0magicians"
+title = "The great chera magicians"
 
 +++
 The nambUthiri brahmins of the chera country are representatives of the

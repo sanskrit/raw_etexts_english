@@ -1,5 +1,5 @@
 +++
-title = "The story of the nAstIka attack onxa0rAmeshvaraM"
+title = "The story of the nAstIka attack on rAmeshvaraM"
 
 +++
 An exchange with my acquaintance SRA on apotropaic rites related to

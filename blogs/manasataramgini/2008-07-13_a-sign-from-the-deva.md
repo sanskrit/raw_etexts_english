@@ -1,5 +1,5 @@
 +++
-title = "A sign from thexa0deva"
+title = "A sign from the deva"
 
 +++
 [![](https://manasataramgini.files.wordpress.com/2008/07/collage.jpg?w=300&h=300)](https://manasataramgini.files.wordpress.com/2008/07/collage.jpg)

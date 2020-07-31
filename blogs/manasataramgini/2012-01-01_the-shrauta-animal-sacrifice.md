@@ -1,5 +1,5 @@
 +++
-title = "The shrauta animalxa0sacrifice"
+title = "The shrauta animal sacrifice"
 
 +++
 The shrauta animal sacrifice is a tradition of great importance in the

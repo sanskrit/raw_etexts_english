@@ -1,5 +1,5 @@
 +++
-title = "Some dohA-s of mahAbrAhmaNaxa0sarahapAda"
+title = "Some dohA-s of mahAbrAhmaNa sarahapAda"
 
 +++
 [![saroruha](https://i2.wp.com/farm4.static.flickr.com/3210/3049815678_d75898bb43_o.jpg)](http://www.flickr.com/photos/24766652@N05/3049815678/ "saroruha by somasushma, on Flickr")

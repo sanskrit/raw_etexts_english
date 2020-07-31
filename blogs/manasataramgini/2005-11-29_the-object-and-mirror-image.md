@@ -1,5 +1,5 @@
 +++
-title = "The object and mirrorxa0image"
+title = "The object and mirror image"
 
 +++
 We had assembled for the gathering- me, durmukha, maireyapayin,

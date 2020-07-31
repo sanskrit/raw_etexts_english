@@ -1,5 +1,5 @@
 +++
-title = "Tracked by the 3xa0kR^ityA-s"
+title = "Tracked by the 3 kR^ityA-s"
 
 +++
 Mn, Jx and me assembled for the long awaited Kuriltai of the clan on the

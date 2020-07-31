@@ -1,5 +1,5 @@
 +++
-title = "The crossing ofxa0ashmanvatI"
+title = "The crossing of ashmanvatI"
 
 +++
 [![](https://i2.wp.com/photos1.blogger.com/x/blogger2/6438/855/320/606078/ashmanvatI.jpg)](http://photos1.blogger.com/x/blogger2/6438/855/1600/606089/ashmanvatI.jpg)

@@ -1,5 +1,5 @@
 +++
-title = "A discourse on a shiva mantra and ArSha usage inxa0it"
+title = "A discourse on a shiva mantra and ArSha usage in it"
 
 +++
 stomaM vo adya rudrAya shikvase kShayadvIrAya namasA didiShTana |  

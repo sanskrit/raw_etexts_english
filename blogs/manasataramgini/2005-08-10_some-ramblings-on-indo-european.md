@@ -1,5 +1,5 @@
 +++
-title = "Some ramblings onxa0Indo-European"
+title = "Some ramblings on Indo-European"
 
 +++
 Due to a late night encounter back from work we got rambling about one

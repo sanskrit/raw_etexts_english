@@ -1,5 +1,5 @@
 +++
-title = "yuddha-vyUha-s, mlechCha-s and vaNija-nIti in the last Hinduxa0empire"
+title = "yuddha-vyUha-s, mlechCha-s and vaNija-nIti in the last Hindu empire"
 
 +++
 The narrative of the final stages of premodern bhAratavarSha remains in

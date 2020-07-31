@@ -1,5 +1,5 @@
 +++
-title = "Same place same time phasexa0shifted"
+title = "Same place same time phase shifted"
 
 +++
 Phase shifted by an year we were there forced to spend time with the

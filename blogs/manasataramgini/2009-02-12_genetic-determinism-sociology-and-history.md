@@ -1,5 +1,5 @@
 +++
-title = "Genetic determinism, sociology andxa0history"
+title = "Genetic determinism, sociology and history"
 
 +++
 The exuberantly prolix leftist wordsmith SJ Gould who churned out many a

@@ -1,5 +1,5 @@
 +++
-title = "On the vedic sacrificial ritual and its Babylonianxa0parallels"
+title = "On the vedic sacrificial ritual and its Babylonian parallels"
 
 +++
 The mlechCha orientalists Dumont and Albright pointed to certain

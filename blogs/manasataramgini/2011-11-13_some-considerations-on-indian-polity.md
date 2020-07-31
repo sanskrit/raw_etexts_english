@@ -1,5 +1,5 @@
 +++
-title = "Some considerations on Indianxa0polity"
+title = "Some considerations on Indian polity"
 
 +++
 Along with the failure to restore saMskR^ita, one of the congenital
@@ -235,7 +235,7 @@ Hindu state.
 
 \~oOo\~
 
-***Vedic election of the rAjan and the samiti***  
+## Vedic election of the rAjan and the samiti  
 In the last part of this epistle we shall examine the validity of ideas
 first presented by Jayaswal on one of the oldest political institutions
 of the Arya-s – the Vedic samiti. Jayaswal saw the samiti as an assembly

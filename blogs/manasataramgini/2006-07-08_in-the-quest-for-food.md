@@ -1,5 +1,5 @@
 +++
-title = "In the quest forxa0food"
+title = "In the quest for food"
 
 +++
 bhR^igu, the founder of our race, had said that food was brahman. In

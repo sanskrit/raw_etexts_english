@@ -1,5 +1,5 @@
 +++
-title = "Lost R^ik-s, the shruti andxa0shUdra-s"
+title = "Lost R^ik-s, the shruti and shUdra-s"
 
 +++
 A chaturtha asked me if mantra-s in the shruti were entirely

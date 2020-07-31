@@ -1,5 +1,5 @@
 +++
-title = "Deeds of the Bahmanidxa0Sultans-II"
+title = "Deeds of the Bahmanid Sultans-II"
 
 +++
 Continues from

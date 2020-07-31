@@ -1,5 +1,5 @@
 +++
-title = "A brief summary of the state of early Indianxa0history"
+title = "A brief summary of the state of early Indian history"
 
 +++
 For a moment let us set archaeology aside and examine what textual

@@ -1,5 +1,5 @@
 +++
-title = "Babek Khoremi (andxa0Mahizadyar)"
+title = "Babek Khoremi (and Mahizadyar)"
 
 +++
 A while back in our youth we read the tale of Babek Khoremi’s rebellion

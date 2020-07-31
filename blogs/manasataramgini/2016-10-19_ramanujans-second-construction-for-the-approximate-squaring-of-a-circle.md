@@ -1,5 +1,5 @@
 +++
-title = "Ramanujan’s second construction for the approximate squaring of axa0circle"
+title = "Ramanujan’s second construction for the approximate squaring of a circle"
 
 +++
 To experience the greatness of great men one has to relive or redo some

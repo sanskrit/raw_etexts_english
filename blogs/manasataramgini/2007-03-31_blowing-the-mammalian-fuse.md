@@ -1,5 +1,5 @@
 +++
-title = "Blowing the mammalianxa0fuse"
+title = "Blowing the mammalian fuse"
 
 +++
 Since the time of manu we have tried to understand the relationships

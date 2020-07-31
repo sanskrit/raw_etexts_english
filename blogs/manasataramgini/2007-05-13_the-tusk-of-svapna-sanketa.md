@@ -1,5 +1,5 @@
 +++
-title = "The tusk ofxa0svapna-sa~NketA"
+title = "The tusk of svapna-sa~NketA"
 
 +++
 After the third vIra had broken forth the vairi-s turned their attention

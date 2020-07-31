@@ -1,5 +1,5 @@
 +++
-title = "Towards the battle ofxa0kAla-nirNaya"
+title = "Towards the battle of kAla-nirNaya"
 
 +++
 Our spies provided us with speculative intelligence that the hostile

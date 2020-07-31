@@ -1,5 +1,5 @@
 +++
-title = "The rise of the Kirghizxa0Khaganate"
+title = "The rise of the Kirghiz Khaganate"
 
 +++
 The Kirghiz Khaganate came to the fore after Uighurs were destroyed by

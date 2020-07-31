@@ -1,5 +1,5 @@
 +++
-title = "A case of Gaṅgā as a negative example and a lesson inxa0discernment"
+title = "A case of Gaṅgā as a negative example and a lesson in discernment"
 
 +++
 A version of this article was originally published on

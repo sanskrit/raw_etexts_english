@@ -1,5 +1,5 @@
 +++
-title = "The invocation ofxa0Ananda-bhairava"
+title = "The invocation of Ananda-bhairava"
 
 +++
 *h-s-kSh-m-l-v-r-yUM AnandabhairavAya vaShaT ||  

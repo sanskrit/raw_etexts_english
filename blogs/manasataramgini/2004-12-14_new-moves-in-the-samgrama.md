@@ -1,5 +1,5 @@
 +++
-title = "New moves in thexa0saMgrAma"
+title = "New moves in the saMgrAma"
 
 +++
 We had beaten back the fierce thrust launched by our foes on our fort.

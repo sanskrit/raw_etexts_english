@@ -1,5 +1,5 @@
 +++
-title = "The substrate in Oldxa0Indo-Aryan"
+title = "The substrate in Old Indo-Aryan"
 
 +++
 Over the past century Western as well as Hindu investigators have noted

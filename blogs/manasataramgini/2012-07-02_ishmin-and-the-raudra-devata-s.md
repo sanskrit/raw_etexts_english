@@ -1,5 +1,5 @@
 +++
-title = "iShmin and the raudraxa0devatA-s"
+title = "iShmin and the raudra devatA-s"
 
 +++
 \[disclaimer: I tend to use Indicized spellings in most cases, which do

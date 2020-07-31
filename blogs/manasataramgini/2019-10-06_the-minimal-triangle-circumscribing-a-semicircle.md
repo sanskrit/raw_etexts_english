@@ -1,5 +1,5 @@
 +++
-title = "The minimal triangle circumscribing axa0semicircle"
+title = "The minimal triangle circumscribing a semicircle"
 
 +++
 Consider a fixed semicircle with center at

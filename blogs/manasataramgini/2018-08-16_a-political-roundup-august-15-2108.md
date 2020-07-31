@@ -1,5 +1,5 @@
 +++
-title = "A Political roundup August 15xa02018"
+title = "A Political roundup August 15 2018"
 
 +++
 As I remarked to a friend, much of the stuff in (geo)politics which is

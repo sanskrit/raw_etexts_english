@@ -1,5 +1,5 @@
 +++
-title = "A day atxa0school"
+title = "A day at school"
 
 +++
 It was the English class in school. The teacher, a swarthy man with

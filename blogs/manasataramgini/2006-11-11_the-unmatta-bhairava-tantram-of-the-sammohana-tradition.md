@@ -1,5 +1,5 @@
 +++
-title = "The unmatta bhairava tantraM of the saMmohanaxa0tradition"
+title = "The unmatta bhairava tantraM of the saMmohana tradition"
 
 +++
 dAnavendra realized that if he could get hold of the amR^ita of the

@@ -1,5 +1,5 @@
 +++
-title = "Eunotosaurus, Pappochelys and the crisis in reptilianxa0phylogeny"
+title = "Eunotosaurus, Pappochelys and the crisis in reptilian phylogeny"
 
 +++
 [![](https://lh3.googleusercontent.com/-pKtv_NX5jMU/VgeBztnle5I/AAAAAAAADYE/L4Ow2QvSHBE/s800-Ic42/eunotosaurus1.jpg)](https://picasaweb.google.com/lh/photo/S2ysojDwCWL4R21rd4vj2tMTjNZETYmyPJy0liipFm0?feat=embedwebsite)

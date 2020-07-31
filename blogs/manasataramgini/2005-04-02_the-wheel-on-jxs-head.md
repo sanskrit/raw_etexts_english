@@ -1,5 +1,5 @@
 +++
-title = "The wheel on Jx’sxa0head"
+title = "The wheel on Jx’s head"
 
 +++
 The last wick of bhairavAnanda does not fall before one goes under the

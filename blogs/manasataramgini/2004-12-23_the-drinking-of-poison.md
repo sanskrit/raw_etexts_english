@@ -1,5 +1,5 @@
 +++
-title = "The drinking ofxa0poison"
+title = "The drinking of poison"
 
 +++
 While the bhAgavataM is considered a vaiShNava text, it contains an

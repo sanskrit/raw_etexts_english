@@ -1,5 +1,5 @@
 +++
-title = "Pheromones of humans and otherxa0vertebrates"
+title = "Pheromones of humans and other vertebrates"
 
 +++
 [![](https://i1.wp.com/bp0.blogger.com/_ZhvcTTaaD_4/Rc0Svu8rbqI/AAAAAAAAADE/lN8KDTrz83M/s320/pheromones.png)](http://bp0.blogger.com/_ZhvcTTaaD_4/Rc0Svu8rbqI/AAAAAAAAADE/lN8KDTrz83M/s1600-h/pheromones.png)

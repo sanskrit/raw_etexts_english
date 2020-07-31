@@ -1,5 +1,5 @@
 +++
-title = "Some further notes on the Mongolxa0religion"
+title = "Some further notes on the Mongol religion"
 
 +++
 The young Mongol scholar Dorje Banzar, published a book in 1846 in

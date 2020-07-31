@@ -1,5 +1,5 @@
 +++
-title = "The madman, the seeker of knowledge and the sociology ofxa0science"
+title = "The madman, the seeker of knowledge and the sociology of science"
 
 +++
 I read parts of an engagingly written book by a Russian authoress Masha

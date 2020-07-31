@@ -1,5 +1,5 @@
 +++
-title = "The deadly foe-destroying yoga of brahmaNyaxa0deva"
+title = "The deadly foe-destroying yoga of brahmaNya deva"
 
 +++
 **“We pacify the six-headed being, of fiery birth, who is lost in the

@@ -1,5 +1,5 @@
 +++
-title = "Difference of consecutive cubes, conics and a Japanese templexa0tablet"
+title = "Difference of consecutive cubes, conics and a Japanese temple tablet"
 
 +++
 **Introduction**  

@@ -1,5 +1,5 @@
 +++
-title = "Hindutva ko fekxa0do"
+title = "Hindutva ko fek do"
 
 +++
 Some years ago, VS Naipaul correctly saw that Hindutva as a real and

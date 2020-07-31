@@ -1,5 +1,5 @@
 +++
-title = "Western generalizations ofxa0religiosity"
+title = "Western generalizations of religiosity"
 
 +++
 The Anglospheric (Leukospheric) arrogance coming from their military

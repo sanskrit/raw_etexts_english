@@ -1,5 +1,5 @@
 +++
-title = "The dark hero of thexa0yadus"
+title = "The dark hero of the yadus"
 
 +++
 The birth anniversary of the dark hero of the yadus dawned. We decided

@@ -1,5 +1,5 @@
 +++
-title = "Earthly heroes andxa0divinities"
+title = "Earthly heroes and divinities"
 
 +++
 [![peshva](https://i1.wp.com/farm5.static.flickr.com/4019/4278486398_992a75b7a1.jpg)](http://www.flickr.com/photos/24766652@N05/4278486398/ "peshva by somasushma, on Flickr")

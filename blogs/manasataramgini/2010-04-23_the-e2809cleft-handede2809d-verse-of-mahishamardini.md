@@ -1,5 +1,5 @@
 +++
-title = "The “left-handed” verse ofxa0mahiShamardinI"
+title = "The “left-handed” verse of mahiShamardinI"
 
 +++
 The Kashmirian tAntrika gonanda was in the lineage of a now largely lost

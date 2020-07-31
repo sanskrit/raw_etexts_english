@@ -1,5 +1,5 @@
 +++
-title = "The atharvashiras preserved in the purANicxa0texts"
+title = "The atharvashiras preserved in the purANic texts"
 
 +++
 I just decided to record this note even though I did not complete the

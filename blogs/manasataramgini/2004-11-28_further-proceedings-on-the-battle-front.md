@@ -1,5 +1,5 @@
 +++
-title = "Further proceedings on the battlexa0front"
+title = "Further proceedings on the battle front"
 
 +++
 We invested today in some heavy duty diplomatic negotiations in the hope

@@ -1,5 +1,5 @@
 +++
-title = "A novel discrete map exhibiting chaoticxa0behavior"
+title = "A novel discrete map exhibiting chaotic behavior"
 
 +++
 The map proposed by R. Lozi over 40 years ago is one of the simplest two

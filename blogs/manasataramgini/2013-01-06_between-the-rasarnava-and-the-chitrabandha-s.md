@@ -1,5 +1,5 @@
 +++
-title = "Between the rasArNava and thexa0chitrabandha-s"
+title = "Between the rasArNava and the chitrabandha-s"
 
 +++
 In the glorious summer we sought, through the secret practice, the

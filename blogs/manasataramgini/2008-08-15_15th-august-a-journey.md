@@ -1,5 +1,5 @@
 +++
-title = "15th August: Axa0journey"
+title = "15th August: A journey"
 
 +++
 61 years ago the Hindus ended the mlechCha conquest of their land. Today

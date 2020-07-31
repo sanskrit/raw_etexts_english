@@ -1,5 +1,5 @@
 +++
-title = "The basic invocation of padmAvatI according the padmAvatIxa0kalpa"
+title = "The basic invocation of padmAvatI according the padmAvatI kalpa"
 
 +++
 The jinendra explained at length how the padmAvatI prayoga-s are

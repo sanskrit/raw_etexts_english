@@ -1,5 +1,5 @@
 +++
-title = "Preparing for thexa0worst"
+title = "Preparing for the worst"
 
 +++
 As we remarked earlier we were taking the last step before the

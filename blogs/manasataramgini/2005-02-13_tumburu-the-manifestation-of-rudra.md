@@ -1,5 +1,5 @@
 +++
-title = "tumburu, the manifestation ofxa0rudra"
+title = "tumburu, the manifestation of rudra"
 
 +++
 From the northern head of the terrible rudra, known as the vAmadeva

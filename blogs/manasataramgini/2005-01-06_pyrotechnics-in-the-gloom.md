@@ -1,5 +1,5 @@
 +++
-title = "Pyrotechnics in thexa0gloom"
+title = "Pyrotechnics in the gloom"
 
 +++
 The day was enveloped in a forbidding gloom, and the air reeked with

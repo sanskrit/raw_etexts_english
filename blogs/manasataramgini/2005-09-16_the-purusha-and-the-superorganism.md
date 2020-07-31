@@ -1,5 +1,5 @@
 +++
-title = "The puruSha and thexa0superorganism"
+title = "The puruSha and the superorganism"
 
 +++
 yat puruṣaṃ vyadadhuḥ katidhā vyakalpayan |   

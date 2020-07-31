@@ -1,5 +1,5 @@
 +++
-title = "Astronomical experiments: a preliminary look at globularxa0clusters"
+title = "Astronomical experiments: a preliminary look at globular clusters"
 
 +++
 While Alexander von Humboldt was exploring South America he observed a

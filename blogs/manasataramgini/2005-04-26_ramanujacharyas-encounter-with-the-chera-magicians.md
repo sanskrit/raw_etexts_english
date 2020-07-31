@@ -1,5 +1,5 @@
 +++
-title = "rAmAnujAchArya’s encounter with the cheraxa0magicians"
+title = "rAmAnujAchArya’s encounter with the chera magicians"
 
 +++
 A chera magician, who was well-versed in the bhUta and bhairava tantras

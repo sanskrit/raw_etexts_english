@@ -1,5 +1,5 @@
 +++
-title = "The other side of the guillotine and otherxa0musings"
+title = "The other side of the guillotine and other musings"
 
 +++
 What ever happened after we passed on to the other side of the

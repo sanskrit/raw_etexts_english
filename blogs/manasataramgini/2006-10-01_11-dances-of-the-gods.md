@@ -1,5 +1,5 @@
 +++
-title = "11 dances of thexa0gods."
+title = "11 dances of the gods."
 
 +++
 The silapadhikAraM (6.44), the great champu written in the dramiDa

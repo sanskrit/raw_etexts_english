@@ -1,5 +1,5 @@
 +++
-title = "List of pA~ncharatraxa0tantra-s"
+title = "List of pA~ncharatra tantra-s"
 
 +++
 With the muni, the shrI vaiShNava and R’s father we have made a

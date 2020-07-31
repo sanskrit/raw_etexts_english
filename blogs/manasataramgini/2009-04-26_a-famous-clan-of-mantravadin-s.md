@@ -1,5 +1,5 @@
 +++
-title = "A famous clan ofxa0mantravAdin-s"
+title = "A famous clan of mantravAdin-s"
 
 +++
 [![samarapungava](https://i1.wp.com/farm4.static.flickr.com/3187/3476508667_1f28a67617.jpg)](http://www.flickr.com/photos/24766652@N05/3476508667/ "samarapungava by somasushma, on Flickr")

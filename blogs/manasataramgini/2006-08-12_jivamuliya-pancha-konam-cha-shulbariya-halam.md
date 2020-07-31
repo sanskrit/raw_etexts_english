@@ -1,5 +1,5 @@
 +++
-title = "jIvamUlIya pa~ncha-koNaM cha shulbArIyaxa0halaM"
+title = "jIvamUlIya pa~ncha-koNaM cha shulbArIya halaM"
 
 +++
 We were ruing the crushing defeat on the field code-named jIvamUlIya

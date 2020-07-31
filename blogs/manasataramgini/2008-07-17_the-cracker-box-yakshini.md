@@ -1,5 +1,5 @@
 +++
-title = "The cracker boxxa0yakShiNI"
+title = "The cracker box yakShiNI"
 
 +++
 It was 1989, when we were still young. kR^iShNa shUdra noticed the

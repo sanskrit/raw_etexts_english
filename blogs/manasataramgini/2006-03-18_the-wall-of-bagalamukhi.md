@@ -1,5 +1,5 @@
 +++
-title = "The wall ofxa0bagalAmukhi"
+title = "The wall of bagalAmukhi"
 
 +++
 [![](https://i0.wp.com/photos1.blogger.com/blogger/2010/410/320/bagala.0.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/bagala.0.jpg)

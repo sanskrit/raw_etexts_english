@@ -1,5 +1,5 @@
 +++
-title = "The deva revanta: Mythology, iconography, history andxa0ritualism"
+title = "The deva revanta: Mythology, iconography, history and ritualism"
 
 +++
 [![](https://i0.wp.com/photos1.blogger.com/blogger/2010/410/320/revanta.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/revanta.jpg)

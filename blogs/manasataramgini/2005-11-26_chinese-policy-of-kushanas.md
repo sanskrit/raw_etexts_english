@@ -1,5 +1,5 @@
 +++
-title = "Chinese policy ofxa0kushANas"
+title = "Chinese policy of kushANas"
 
 +++
 Under the Kushanas, unlike in the days of later Indian rulers, the

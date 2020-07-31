@@ -1,5 +1,5 @@
 +++
-title = "The story of the Orissanxa0cycle-vālā"
+title = "The story of the Orissan cycle-vālā"
 
 +++
 Vidrum had been under considerable pressure. His parents had made it

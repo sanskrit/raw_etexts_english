@@ -1,5 +1,5 @@
 +++
-title = "veda mantrokta Ashu-garuDaxa0vidyA"
+title = "veda mantrokta Ashu-garuDa vidyA"
 
 +++
 [![](https://i1.wp.com/bp1.blogger.com/_ZhvcTTaaD_4/RsfVxPXcXcI/AAAAAAAAAM0/LYB14LEyB4w/s320/ashu_garuda.jpg)](http://bp1.blogger.com/_ZhvcTTaaD_4/RsfVxPXcXcI/AAAAAAAAAM0/LYB14LEyB4w/s1600-h/ashu_garuda.jpg)[![](https://i1.wp.com/bp1.blogger.com/_ZhvcTTaaD_4/RsfVxPXcXdI/AAAAAAAAAM8/7RfR51Fgnyw/s320/ashugaruda2.jpg)](http://bp1.blogger.com/_ZhvcTTaaD_4/RsfVxPXcXdI/AAAAAAAAAM8/7RfR51Fgnyw/s1600-h/ashugaruda2.jpg)

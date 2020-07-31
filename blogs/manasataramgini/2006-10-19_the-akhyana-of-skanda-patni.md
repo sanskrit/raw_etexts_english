@@ -1,5 +1,5 @@
 +++
-title = "The AkhyAna ofxa0skanda-patnI"
+title = "The AkhyAna of skanda-patnI"
 
 +++
 OM hrIM ShaShaThI devyai svAhA ||

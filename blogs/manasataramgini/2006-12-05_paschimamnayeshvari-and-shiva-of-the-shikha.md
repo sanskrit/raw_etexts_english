@@ -1,5 +1,5 @@
 +++
-title = "paschimAmnAyeshvarI and shiva of thexa0shikhA"
+title = "paschimAmnAyeshvarI and shiva of the shikhA"
 
 +++
 We first salute the master of the school, matsyendra and ku\~nkumAMbA

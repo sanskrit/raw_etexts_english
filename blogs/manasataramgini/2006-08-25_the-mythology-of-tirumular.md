@@ -1,5 +1,5 @@
 +++
-title = "The mythology ofxa0tirumUlar"
+title = "The mythology of tirumUlar"
 
 +++
 It is clear from tirumantiram verses 337 onwards that tirumUlar was an

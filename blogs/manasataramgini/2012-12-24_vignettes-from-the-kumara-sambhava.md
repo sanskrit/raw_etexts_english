@@ -1,5 +1,5 @@
 +++
-title = "Vignettes from the kumAraxa0saMbhava"
+title = "Vignettes from the kumAra saMbhava"
 
 +++
 *The mAtR^i-s and gaNa-s of rudra:*  

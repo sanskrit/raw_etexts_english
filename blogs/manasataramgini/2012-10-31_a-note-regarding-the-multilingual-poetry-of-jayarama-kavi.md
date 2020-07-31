@@ -1,5 +1,5 @@
 +++
-title = "A note regarding the multilingual poetry of jayarAmaxa0kavI"
+title = "A note regarding the multilingual poetry of jayarAma kavI"
 
 +++
 We had a discussion with an acquaintance regarding the local linguistic

@@ -1,5 +1,5 @@
 +++
-title = "The wonder ofxa0Whippos-I"
+title = "The wonder of Whippos-I"
 
 +++
 As we sat looking around the screen, in the warm interiors, debating

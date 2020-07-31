@@ -1,5 +1,5 @@
 +++
-title = "Socio-genetic stratification ofxa0India"
+title = "Socio-genetic stratification of India"
 
 +++
 [![](https://i1.wp.com/photos1.blogger.com/blogger/2010/410/320/caste.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/caste.png)A

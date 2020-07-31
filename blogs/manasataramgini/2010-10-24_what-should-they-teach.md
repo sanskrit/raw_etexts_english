@@ -1,5 +1,5 @@
 +++
-title = "What should theyxa0teach?"
+title = "What should they teach?"
 
 +++
 The prolix Balagangadhara of Ghent in a talk available on YouTube brings

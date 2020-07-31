@@ -1,5 +1,5 @@
 +++
-title = "The death ofxa0Hambirrao"
+title = "The death of Hambirrao"
 
 +++
 By 1687 the Mogol tyrant from Dilli, had fulfilled the dream cherished

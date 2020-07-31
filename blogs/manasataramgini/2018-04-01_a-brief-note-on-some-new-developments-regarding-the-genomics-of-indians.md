@@ -1,5 +1,5 @@
 +++
-title = "A brief note on some new developments regarding the genomics ofxa0Indians"
+title = "A brief note on some new developments regarding the genomics of Indians"
 
 +++
 When we wrote a [previous

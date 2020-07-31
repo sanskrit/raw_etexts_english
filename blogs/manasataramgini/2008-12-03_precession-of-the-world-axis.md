@@ -1,5 +1,5 @@
 +++
-title = "Precession of the worldxa0axis"
+title = "Precession of the world axis"
 
 +++
 [![preah\_vihar\_G2](https://i0.wp.com/farm4.static.flickr.com/3216/3079590902_5883529ebd.jpg)](http://www.flickr.com/photos/24766652@N05/3079590902/ "preah_vihar_G2 by somasushma, on Flickr")  

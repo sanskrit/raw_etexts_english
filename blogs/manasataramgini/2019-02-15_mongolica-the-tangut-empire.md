@@ -1,5 +1,5 @@
 +++
-title = "Mongolica: The Tangutxa0empire"
+title = "Mongolica: The Tangut empire"
 
 +++
 In the early 1100s of the CE Rtsa-mi lotsawa Sangs-rgyas grags-pa was in

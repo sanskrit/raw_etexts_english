@@ -1,5 +1,5 @@
 +++
-title = "Euler and Ramanujan: primes, near integers andxa0cakravāla"
+title = "Euler and Ramanujan: primes, near integers and cakravāla"
 
 +++
 Mathematician Watson who worked on the famed notebooks said regarding

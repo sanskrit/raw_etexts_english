@@ -1,5 +1,5 @@
 +++
-title = "Big science and grant-driven science and how discoveries arexa0made"
+title = "Big science and grant-driven science and how discoveries are made"
 
 +++
 When we were young some we had made some scientific discoveries that we

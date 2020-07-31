@@ -1,5 +1,5 @@
 +++
-title = "The hearts and the intrinsic Cassinian curve of anxa0ellipse"
+title = "The hearts and the intrinsic Cassinian curve of an ellipse"
 
 +++
 **Introduction**

@@ -1,5 +1,5 @@
 +++
-title = "The chants of the rudra-s: a commentary based on ourxa0discussions"
+title = "The chants of the rudra-s: a commentary based on our discussions"
 
 +++
 *bhuvanasya pitaraM gIrbhir AbhI rudraM divA vardhayA rudram aktau |  

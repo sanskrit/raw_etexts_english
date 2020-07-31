@@ -1,5 +1,5 @@
 +++
-title = "The illiterate Hindu and otherxa0digressions"
+title = "The illiterate Hindu and other digressions"
 
 +++
 [![](https://lh3.googleusercontent.com/-TagmqSEOOu8/Th6VTwLBc0I/AAAAAAAACJk/U-6zweHx0f4/s400/Sample%252520Pictures2.jpg)](https://picasaweb.google.com/lh/photo/xTg2GRGE3-9L29kBzYaaBA?feat=embedwebsite)

@@ -1,5 +1,5 @@
 +++
-title = "The mlechCha brain behind the swordxa0arm"
+title = "The mlechCha brain behind the sword arm"
 
 +++
 It is hardly pleasant to talk about geopolitical issues concerning

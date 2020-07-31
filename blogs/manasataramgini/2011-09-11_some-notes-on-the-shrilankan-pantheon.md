@@ -1,5 +1,5 @@
 +++
-title = "Some notes on the Shrilankanxa0pantheon"
+title = "Some notes on the Shrilankan pantheon"
 
 +++
 In 1588 CE Christian terrorists from Portugal launched a surprise attack

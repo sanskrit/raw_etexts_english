@@ -1,5 +1,5 @@
 +++
-title = "The Indo-Australian connectionxa0thickens"
+title = "The Indo-Australian connection thickens"
 
 +++
 The arrival of the European Christians in Australia was a catastrophic

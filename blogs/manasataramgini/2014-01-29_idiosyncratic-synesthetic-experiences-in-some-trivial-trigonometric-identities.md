@@ -1,5 +1,5 @@
 +++
-title = "Idiosyncratic synesthetic experiences in some trivial trigonometricxa0identities"
+title = "Idiosyncratic synesthetic experiences in some trivial trigonometric identities"
 
 +++
 Mathematical objects, despite existing in a purely abstract “Platonic”

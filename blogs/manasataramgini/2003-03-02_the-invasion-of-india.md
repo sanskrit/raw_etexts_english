@@ -1,5 +1,5 @@
 +++
-title = "The Invasion ofxa0India"
+title = "The Invasion of India"
 
 +++
 In 1397 Timur-i-lang obtained the intelligence that the Tughlaq

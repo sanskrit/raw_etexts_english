@@ -1,5 +1,5 @@
 +++
-title = "Our intellectual tradition: non-existent, decadent, or congenitallyxa0dilute?"
+title = "Our intellectual tradition: non-existent, decadent, or congenitally dilute?"
 
 +++
 Perhaps the greatest mind of all times was Karl Gauss. Among the men of

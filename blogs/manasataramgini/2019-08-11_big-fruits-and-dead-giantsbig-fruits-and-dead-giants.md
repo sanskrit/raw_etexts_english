@@ -1,5 +1,5 @@
 +++
-title = "Big fruits and deadxa0giants"
+title = "Big fruits and dead giants"
 
 +++
 **The fruits of the elephants**  

@@ -1,5 +1,5 @@
 +++
-title = "Origin mythologies from the upperxa0penisula"
+title = "Origin mythologies from the upper penisula"
 
 +++
 R and me were wandering in the mAhArATTa country after having rid

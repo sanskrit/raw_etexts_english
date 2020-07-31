@@ -1,5 +1,5 @@
 +++
-title = "The revenge of the temple ofxa0rAma-I"
+title = "The revenge of the temple of rAma-I"
 
 +++
 The folk mythology of coastal West India holds that the land was

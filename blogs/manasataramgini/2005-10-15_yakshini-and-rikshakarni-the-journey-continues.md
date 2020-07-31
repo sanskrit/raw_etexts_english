@@ -1,5 +1,5 @@
 +++
-title = "yakShiNi and R^ikShakarNi … the journeyxa0continues"
+title = "yakShiNi and R^ikShakarNi … the journey continues"
 
 +++
 Having been trapped with the ghoraprakR^iti we sought to escape on that

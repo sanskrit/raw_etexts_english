@@ -1,5 +1,5 @@
 +++
-title = "The fall of asuraxa0prahlAda"
+title = "The fall of asura prahlAda"
 
 +++
 prahlAda, the demoniac son of hiraNyakashipu, ascended the throne of the

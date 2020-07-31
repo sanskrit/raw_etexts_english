@@ -1,5 +1,5 @@
 +++
-title = "Philosophizing on magneticxa0sight"
+title = "Philosophizing on magnetic sight"
 
 +++
 I wanted to document the great victory of the Hindu armies in the land

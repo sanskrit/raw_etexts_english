@@ -1,5 +1,5 @@
 +++
-title = "Iamblichus, quadratures, trisections and the lacuna of thexa0cycloid"
+title = "Iamblichus, quadratures, trisections and the lacuna of the cycloid"
 
 +++
 Today Syria has been turned into a hellhole by the unmāda-traya.

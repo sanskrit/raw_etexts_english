@@ -1,5 +1,5 @@
 +++
-title = "Some notes on the rise of Oirat power and the Jangarxa0tuuli"
+title = "Some notes on the rise of Oirat power and the Jangar tuuli"
 
 +++
 After 1370 CE the power of the Qubilaid Mongols declined precipitously

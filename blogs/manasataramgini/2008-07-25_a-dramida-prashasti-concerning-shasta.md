@@ -1,5 +1,5 @@
 +++
-title = "A dramiDa prashasti concerningxa0shAstA"
+title = "A dramiDa prashasti concerning shAstA"
 
 +++
 One topic of some interest in the evolution of the mantra-shAstra is the

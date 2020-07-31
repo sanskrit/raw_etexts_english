@@ -1,5 +1,5 @@
 +++
-title = "The epic onxa0stone"
+title = "The epic on stone"
 
 +++
 While historians of certain brands have often disregarded epics as a

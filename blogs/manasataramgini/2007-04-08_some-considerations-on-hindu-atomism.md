@@ -1,5 +1,5 @@
 +++
-title = "Some considerations on Hinduxa0atomism"
+title = "Some considerations on Hindu atomism"
 
 +++
 tanIyAMsaM pAMsuM tava charaNa pa\~NkeruhabhavaM  

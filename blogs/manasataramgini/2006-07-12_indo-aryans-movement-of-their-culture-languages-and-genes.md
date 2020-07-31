@@ -1,5 +1,5 @@
 +++
-title = "Indo-Aryans: Movement of their culture, languages andxa0genes"
+title = "Indo-Aryans: Movement of their culture, languages and genes"
 
 +++
 Indo-Aryans have heavily influenced the world by way to the movements of

@@ -1,5 +1,5 @@
 +++
-title = "The Atharvanic rudraxa0gAyatrI"
+title = "The Atharvanic rudra gAyatrI"
 
 +++
 The Atharvanic tradition records a special rudra gAyatrI that might be

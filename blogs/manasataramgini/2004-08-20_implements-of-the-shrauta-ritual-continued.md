@@ -1,5 +1,5 @@
 +++
-title = "Implements of the shrauta ritual …xa0continued"
+title = "Implements of the shrauta ritual … continued"
 
 +++
 **ulUkhala-musala**: The mortar and pestle used for pounding grains to

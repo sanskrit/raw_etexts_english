@@ -1,5 +1,5 @@
 +++
-title = "Saved from the mAraNa prayoga by thexa0yakShiNi"
+title = "Saved from the mAraNa prayoga by the yakShiNi"
 
 +++
 We have seen the hits of a few mAraNa prayoga-s in the past but never

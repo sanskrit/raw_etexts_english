@@ -1,5 +1,5 @@
 +++
-title = "More on sanskritxa0grammarians"
+title = "More on sanskrit grammarians"
 
 +++
 The existence of aindra grammar which apparently declined in due course

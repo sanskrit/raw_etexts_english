@@ -1,5 +1,5 @@
 +++
-title = "Der singende Knochen: śūlapuruṣāṇāṃxa0śūletyādi"
+title = "Der singende Knochen: śūlapuruṣāṇāṃ śūletyādi"
 
 +++
 That afternoon Vidrum was returning with a bunch of other friends whom

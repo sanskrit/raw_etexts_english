@@ -1,5 +1,5 @@
 +++
-title = "madanotsava and militaryxa0movements"
+title = "madanotsava and military movements"
 
 +++
 The madanotsava was observed today. kAmadeva was duely worshipped with

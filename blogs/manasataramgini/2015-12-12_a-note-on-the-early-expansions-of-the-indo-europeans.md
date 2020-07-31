@@ -1,5 +1,5 @@
 +++
-title = "A note on the early expansions of thexa0Indo-Europeans"
+title = "A note on the early expansions of the Indo-Europeans"
 
 +++
 There have been a whole lot of developments in ancient human genomics

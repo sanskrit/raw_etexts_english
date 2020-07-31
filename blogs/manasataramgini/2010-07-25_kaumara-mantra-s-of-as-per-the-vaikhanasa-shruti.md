@@ -1,5 +1,5 @@
 +++
-title = "kaumara mantra-s of as per the vaikhAnasaxa0shruti"
+title = "kaumara mantra-s of as per the vaikhAnasa shruti"
 
 +++
 [![](https://i2.wp.com/lh3.ggpht.com/_hjuA1bE0hBw/TE0r_w2GkzI/AAAAAAAAB3Q/S_HsF2qH3I0/s800/skanda.JPG)](http://picasaweb.google.com/lh/photo/LLIMbk6xazy7UmTFcGSsTg?feat=embedwebsite)

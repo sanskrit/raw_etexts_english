@@ -1,5 +1,5 @@
 +++
-title = "The vrata of our greatxa0goddess"
+title = "The vrata of our great goddess"
 
 +++
 We bow humbly to the 6th part of prakR^iti. On the 6th bright lunar day

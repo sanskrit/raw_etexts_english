@@ -1,5 +1,5 @@
 +++
-title = "saMmelana song of thexa0vIra"
+title = "saMmelana song of the vIra"
 
 +++
 It was the saMmelana of the holders of the kapAla  

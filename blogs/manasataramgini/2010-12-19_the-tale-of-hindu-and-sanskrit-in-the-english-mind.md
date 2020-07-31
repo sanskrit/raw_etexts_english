@@ -1,5 +1,5 @@
 +++
-title = "The tale of Hindu and Sanskrit in the Englishxa0mind"
+title = "The tale of Hindu and Sanskrit in the English mind"
 
 +++
 [![](https://i0.wp.com/lh4.ggpht.com/_hjuA1bE0hBw/TQ2FY0Kn9fI/AAAAAAAAB_Q/x8WN9Q_FP8I/s640/Hindu_Sanskrit.jpg)](http://picasaweb.google.com/lh/photo/SwioQBx3SqfwWpjzXKuoug?feat=embedwebsite)

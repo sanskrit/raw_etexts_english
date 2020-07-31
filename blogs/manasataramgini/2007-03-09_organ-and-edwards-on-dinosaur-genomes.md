@@ -1,5 +1,5 @@
 +++
-title = "Organ and Edwards on dinosaurxa0genomes"
+title = "Organ and Edwards on dinosaur genomes"
 
 +++
 Scott Edwards has been doing some interesting research on amniote

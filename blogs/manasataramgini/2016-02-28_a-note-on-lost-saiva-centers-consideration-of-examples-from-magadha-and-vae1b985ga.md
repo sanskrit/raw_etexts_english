@@ -1,5 +1,5 @@
 +++
-title = "A note on lost Śaiva centers: consideration of examples from Magadha andxa0Vaṅga"
+title = "A note on lost Śaiva centers: consideration of examples from Magadha and Vaṅga"
 
 +++
 To be read in conjunction with this handout: [Harihara in the

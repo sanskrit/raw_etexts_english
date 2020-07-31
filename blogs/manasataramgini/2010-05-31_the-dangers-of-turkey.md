@@ -1,5 +1,5 @@
 +++
-title = "The dangers ofxa0Turkey"
+title = "The dangers of Turkey"
 
 +++
 This is just a brief distraction from our paleontological narratives to

@@ -1,5 +1,5 @@
 +++
-title = "The tradition of vAgbhaTa in the drAviDa and Andhraxa0countries"
+title = "The tradition of vAgbhaTa in the drAviDa and Andhra countries"
 
 +++
 We had earlier briefly alluded to the living tradition of vAgbhaTa in

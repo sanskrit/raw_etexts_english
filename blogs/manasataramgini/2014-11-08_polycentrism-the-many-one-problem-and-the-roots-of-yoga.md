@@ -1,5 +1,5 @@
 +++
-title = "Polycentrism, the many-one problem and the roots ofxa0yoga"
+title = "Polycentrism, the many-one problem and the roots of yoga"
 
 +++
 An updated version of our earlier ramblings first published at:

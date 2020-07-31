@@ -1,5 +1,5 @@
 +++
-title = "From Plato to Euler andxa0back"
+title = "From Plato to Euler and back"
 
 +++
 This is primarily meant as an educational handout on some very basic

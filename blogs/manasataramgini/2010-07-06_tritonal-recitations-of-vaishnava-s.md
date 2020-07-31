@@ -1,5 +1,5 @@
 +++
-title = "Tritonal recitations ofxa0vaiShNava-s"
+title = "Tritonal recitations of vaiShNava-s"
 
 +++
 KRK astutely observed that the tritonal recitation of the nAlAyira

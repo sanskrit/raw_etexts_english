@@ -1,5 +1,5 @@
 +++
-title = "The fall ofxa0brahmins"
+title = "The fall of brahmins"
 
 +++
 The Brahmins, the metaphorical head of the Indo-Aryan society are now

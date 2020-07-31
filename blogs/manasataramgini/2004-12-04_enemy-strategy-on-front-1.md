@@ -1,5 +1,5 @@
 +++
-title = "Enemy strategy on frontxa0#1"
+title = "Enemy strategy on front #1"
 
 +++
 The enemy forces did not strike on front \#1 as we had expected. Our

@@ -1,5 +1,5 @@
 +++
-title = "Some biological analogies for certain sociopoliticalxa0issues"
+title = "Some biological analogies for certain sociopolitical issues"
 
 +++
 In Hindu society we often see certain relatively straightforward

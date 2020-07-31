@@ -1,5 +1,5 @@
 +++
-title = "The heart ofxa0vArAhI"
+title = "The heart of vArAhI"
 
 +++
 sAmantadeva had entered the shrine of the 64 yoginIs, the yoginI at

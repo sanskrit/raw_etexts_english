@@ -1,5 +1,5 @@
 +++
-title = "The eye ofxa0vArAhI"
+title = "The eye of vArAhI"
 
 +++
 [![](https://i1.wp.com/lh4.ggpht.com/_hjuA1bE0hBw/S7mILeXVXkI/AAAAAAAABYE/kjZ-rhvZyYM/s800/vArAhI_parimaNDala.jpg)](http://picasaweb.google.com/lh/photo/N_lPWfGF4jjgRNe6Fghagw?feat=embedwebsite)

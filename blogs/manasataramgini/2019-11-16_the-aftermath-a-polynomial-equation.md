@@ -1,5 +1,5 @@
 +++
-title = "The aftermath: A polynomialxa0equation"
+title = "The aftermath: A polynomial equation"
 
 +++
 This is merely the tailpiece to the last tale of the strange hauntings.

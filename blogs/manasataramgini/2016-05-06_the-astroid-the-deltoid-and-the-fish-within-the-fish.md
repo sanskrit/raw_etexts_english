@@ -1,5 +1,5 @@
 +++
-title = "The astroid, the deltoid and the fish within thexa0fish"
+title = "The astroid, the deltoid and the fish within the fish"
 
 +++
 As this article needed a lot of figures with some mathematical notation

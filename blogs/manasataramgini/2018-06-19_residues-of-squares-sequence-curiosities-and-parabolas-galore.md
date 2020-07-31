@@ -1,5 +1,5 @@
 +++
-title = "Residues of squares, sequence curiosities and parabolasxa0galore"
+title = "Residues of squares, sequence curiosities and parabolas galore"
 
 +++
 **Squares and their residues**  

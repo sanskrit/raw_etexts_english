@@ -1,5 +1,5 @@
 +++
-title = "A layman’s overview of the arithmetic ofxa0encryption"
+title = "A layman’s overview of the arithmetic of encryption"
 
 +++
 **Life as an encryption-decryption cycle**  

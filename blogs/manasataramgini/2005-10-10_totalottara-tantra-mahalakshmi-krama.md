@@ -1,5 +1,5 @@
 +++
-title = "totalottara tantra mAhAlakShmIxa0krama"
+title = "totalottara tantra mAhAlakShmI krama"
 
 +++
 The totalottara tantra is one of the important garuDa tantras of which

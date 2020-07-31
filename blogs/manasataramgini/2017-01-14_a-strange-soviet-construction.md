@@ -1,5 +1,5 @@
 +++
-title = "A strange Sovietxa0construction"
+title = "A strange Soviet construction"
 
 +++
 in our college days we used to visit the lāl-pustak-bhaṇḍār in our city

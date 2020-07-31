@@ -1,5 +1,5 @@
 +++
-title = "A description of abhinavagupta by madhurAjaxa0yogin"
+title = "A description of abhinavagupta by madhurAja yogin"
 
 +++
 One of the greatest tantrics of all times was the prolific trika savant

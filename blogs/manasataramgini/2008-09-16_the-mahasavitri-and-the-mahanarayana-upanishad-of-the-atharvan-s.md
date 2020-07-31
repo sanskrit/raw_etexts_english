@@ -1,5 +1,5 @@
 +++
-title = "The mahAsAvitrI and the mahAnArAyana upaniShad of thexa0atharvan-s."
+title = "The mahAsAvitrI and the mahAnArAyana upaniShad of the atharvan-s."
 
 +++
 The mahAnAryAnopaniShad is a text of considerable importance because it

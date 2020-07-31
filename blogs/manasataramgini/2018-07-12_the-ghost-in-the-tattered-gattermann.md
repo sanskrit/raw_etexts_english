@@ -1,5 +1,5 @@
 +++
-title = "The ghost in the tatteredxa0Gattermann"
+title = "The ghost in the tattered Gattermann"
 
 +++
 Vidrum had dropped by to see Somakhya and Lootika when they had just

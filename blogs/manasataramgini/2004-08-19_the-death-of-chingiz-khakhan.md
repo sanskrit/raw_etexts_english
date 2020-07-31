@@ -1,5 +1,5 @@
 +++
-title = "The death of Chingizxa0Kha’Khan"
+title = "The death of Chingiz Kha’Khan"
 
 +++
 On the New moon day in August in 1227 AD the greatest of the military

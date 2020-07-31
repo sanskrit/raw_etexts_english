@@ -1,5 +1,5 @@
 +++
-title = "The irony of vAsudevaxa0sArvabhauma"
+title = "The irony of vAsudeva sArvabhauma"
 
 +++
 In the declining years of the Hindu world, in the late 1400s and first

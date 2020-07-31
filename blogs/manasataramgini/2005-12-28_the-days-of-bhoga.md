@@ -1,5 +1,5 @@
 +++
-title = "The days ofxa0bhoga"
+title = "The days of bhoga"
 
 +++
 A friend, in course of a yarning session, reminded me of the days of

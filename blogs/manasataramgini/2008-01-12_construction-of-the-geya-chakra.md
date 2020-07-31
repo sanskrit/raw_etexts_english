@@ -1,5 +1,5 @@
 +++
-title = "Construction of thexa0geya-chakra"
+title = "Construction of the geya-chakra"
 
 +++
 [![](https://i2.wp.com/bp2.blogger.com/_hjuA1bE0hBw/R4guWtBuc0I/AAAAAAAAAB0/cL7OpgM6TV0/s320/geya_chakra.png)](http://bp2.blogger.com/_hjuA1bE0hBw/R4guWtBuc0I/AAAAAAAAAB0/cL7OpgM6TV0/s1600-h/geya_chakra.png)  

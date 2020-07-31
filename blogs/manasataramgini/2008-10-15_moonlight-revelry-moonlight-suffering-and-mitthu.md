@@ -1,5 +1,5 @@
 +++
-title = "Moonlight revelry, moonlight suffering andxa0miTThu"
+title = "Moonlight revelry, moonlight suffering and miTThu"
 
 +++
 My pitAshrI reminded that me that many moons ago on this particular full

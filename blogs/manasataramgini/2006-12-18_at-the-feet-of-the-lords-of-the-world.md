@@ -1,5 +1,5 @@
 +++
-title = "At the feet of the lords of thexa0world"
+title = "At the feet of the lords of the world"
 
 +++
 Even by counting ourselves out, it is clear that the synapsids dominate

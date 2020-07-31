@@ -1,5 +1,5 @@
 +++
-title = "The temporal sequence of texts and emergence of later Hinduxa0deities"
+title = "The temporal sequence of texts and emergence of later Hindu deities"
 
 +++
 The idea here is not trace the history of Hindu deities to their

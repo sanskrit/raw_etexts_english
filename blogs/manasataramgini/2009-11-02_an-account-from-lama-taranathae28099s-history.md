@@ -1,5 +1,5 @@
 +++
-title = "An account from Lama tAranAtha’sxa0history"
+title = "An account from Lama tAranAtha’s history"
 
 +++
 During the reign of pa\~nchamasiMha lived two brothers who were

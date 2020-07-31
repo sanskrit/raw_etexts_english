@@ -1,5 +1,5 @@
 +++
-title = "Battle of thexa0agents"
+title = "Battle of the agents"
 
 +++
 [As PDF](https://app.box.com/s/fp6rted0e4c9qb27gqqa)  

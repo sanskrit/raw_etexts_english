@@ -1,5 +1,5 @@
 +++
-title = "The secret ofxa0sumukhI"
+title = "The secret of sumukhI"
 
 +++
 The great deva sanatkumAra, the son of the fiery agni, is always in the

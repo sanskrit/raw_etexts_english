@@ -1,5 +1,5 @@
 +++
-title = "Turning of the Turkicxa0wheel"
+title = "Turning of the Turkic wheel"
 
 +++
 In 914 CE, Nasr ibn Ahmed II raised the Samanid Moslems to their peak.

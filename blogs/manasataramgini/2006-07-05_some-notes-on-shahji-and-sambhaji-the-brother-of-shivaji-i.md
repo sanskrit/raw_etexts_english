@@ -1,5 +1,5 @@
 +++
-title = "Some notes on Shahji and Sambhaji the brother ofxa0Shivaji-I"
+title = "Some notes on Shahji and Sambhaji the brother of Shivaji-I"
 
 +++
 In my childhood I was quite disappointed with our history books not

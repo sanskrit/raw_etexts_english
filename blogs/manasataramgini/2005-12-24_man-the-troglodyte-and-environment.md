@@ -1,5 +1,5 @@
 +++
-title = "Man, the Troglodyte andxa0environment"
+title = "Man, the Troglodyte and environment"
 
 +++
 Jared Diamond, a socialist American scientist wrote a book termed the

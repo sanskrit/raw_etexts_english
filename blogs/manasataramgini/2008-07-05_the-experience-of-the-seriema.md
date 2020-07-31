@@ -1,5 +1,5 @@
 +++
-title = "The experience of thexa0seriema"
+title = "The experience of the seriema"
 
 +++
 [![](https://manasataramgini.files.wordpress.com/2008/07/seriema1.jpg?w=296&h=300)](https://manasataramgini.files.wordpress.com/2008/07/seriema1.jpg)  

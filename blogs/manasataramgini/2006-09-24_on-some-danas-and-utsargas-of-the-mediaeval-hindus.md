@@ -1,5 +1,5 @@
 +++
-title = "On some dAnas and utsargas of the mediaevalxa0Hindus"
+title = "On some dAnas and utsargas of the mediaeval Hindus"
 
 +++
 The dharma texts interminably dilate on the performance of a variety of

@@ -1,5 +1,5 @@
 +++
-title = "The Jaziya revolt ofxa0Dilli"
+title = "The Jaziya revolt of Dilli"
 
 +++
 There are many accounts of the Jaziya incident floating around in

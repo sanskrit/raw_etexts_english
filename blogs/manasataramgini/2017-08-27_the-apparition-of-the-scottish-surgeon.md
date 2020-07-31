@@ -1,5 +1,5 @@
 +++
-title = "The apparition of the Scottishxa0surgeon"
+title = "The apparition of the Scottish surgeon"
 
 +++
 On a late summer evening, at the twilight hour, Somakhya accompanied by

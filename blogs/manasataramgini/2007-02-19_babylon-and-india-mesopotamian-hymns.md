@@ -1,5 +1,5 @@
 +++
-title = "Babylon and India: Mesopotamianxa0hymns"
+title = "Babylon and India: Mesopotamian hymns"
 
 +++
 The great Lokamanya Tilak believed that he saw similarities between the

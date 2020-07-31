@@ -1,5 +1,5 @@
 +++
-title = "Attaining atharvaNa mantraxa0GYAna"
+title = "Attaining atharvaNa mantra GYAna"
 
 +++
 Acquiring the atharvaveda either requires you to be born as a scion of

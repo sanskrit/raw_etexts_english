@@ -1,5 +1,5 @@
 +++
-title = "A brief note on prahlAda, hiraNyakashipu and an earlyxa0nArasiMhAkhyAna"
+title = "A brief note on prahlAda, hiraNyakashipu and an early nArasiMhAkhyAna"
 
 +++
 The daitya-s prahrAda/prahlAda and virochana are known in the veda

@@ -1,5 +1,5 @@
 +++
-title = "The two squaresxa0theorem"
+title = "The two squares theorem"
 
 +++
 I do not know who might have discovered this simple relationship first.

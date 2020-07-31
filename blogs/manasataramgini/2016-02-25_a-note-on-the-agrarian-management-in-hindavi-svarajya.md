@@ -1,5 +1,5 @@
 +++
-title = "A note on the agrarian management in Hindavixa0svarājya"
+title = "A note on the agrarian management in Hindavi svarājya"
 
 +++
 The great rājan, the founder of the last Hindu empire, can only be

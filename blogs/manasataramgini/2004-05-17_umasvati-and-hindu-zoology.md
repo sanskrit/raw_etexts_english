@@ -1,5 +1,5 @@
 +++
-title = "umAsvati and Hinduxa0zoology"
+title = "umAsvati and Hindu zoology"
 
 +++
 **umAsvati**, the great jaina Acharya produced a remarkable work termed

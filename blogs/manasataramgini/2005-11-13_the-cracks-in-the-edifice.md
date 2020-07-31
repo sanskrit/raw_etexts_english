@@ -1,5 +1,5 @@
 +++
-title = "The cracks in thexa0edifice."
+title = "The cracks in the edifice."
 
 +++
 In 1326 the Army of Islam had completed the conquest of Hind and almost

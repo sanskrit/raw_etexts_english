@@ -1,5 +1,5 @@
 +++
-title = "Our link to asuraxa0varuNa"
+title = "Our link to asura varuNa"
 
 +++
 ajIjano hi varuNa svadhAvan-natharvANaM pitaraM deva-bandhuM |  

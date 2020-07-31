@@ -1,5 +1,5 @@
 +++
-title = "The padamAlA mantra ofxa0chAmuNDA"
+title = "The padamAlA mantra of chAmuNDA"
 
 +++
 The padamAlA of chAmuNDa is one of the celebrated mantra of the tantric

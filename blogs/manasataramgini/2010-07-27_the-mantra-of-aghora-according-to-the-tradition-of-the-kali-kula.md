@@ -1,5 +1,5 @@
 +++
-title = "The mantra of aghorA according to the tradition of thexa0kAlI-kula"
+title = "The mantra of aghorA according to the tradition of the kAlI-kula"
 
 +++
 The devI aghorA, as we have seen

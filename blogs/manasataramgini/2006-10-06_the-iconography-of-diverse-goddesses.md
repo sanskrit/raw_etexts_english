@@ -1,5 +1,5 @@
 +++
-title = "The iconography of diversexa0goddesses"
+title = "The iconography of diverse goddesses"
 
 +++
 The Wodeyar of Mysore, kR^iShNa rAja, prepared a compendium of Hindu

@@ -1,5 +1,5 @@
 +++
-title = "Is dhattUra really mentioned in thexa0arthashAstra?"
+title = "Is dhattUra really mentioned in the arthashAstra?"
 
 +++
 In the recent past people have generally believed that the arthashAstra

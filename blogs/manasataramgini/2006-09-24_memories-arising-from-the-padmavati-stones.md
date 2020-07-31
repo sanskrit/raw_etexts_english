@@ -1,5 +1,5 @@
 +++
-title = "memories arising from the padmAvatIxa0stones"
+title = "memories arising from the padmAvatI stones"
 
 +++
 [![](https://i0.wp.com/photos1.blogger.com/blogger/2010/410/320/padmavati2.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/padmavati2.jpg)

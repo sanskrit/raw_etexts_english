@@ -1,5 +1,5 @@
 +++
-title = "Of lives of men; of times ofxa0men-I"
+title = "Of lives of men; of times of men-I"
 
 +++
 Sharvamanyu and Vidrum arrived at the campus where Somakhya and Lootika

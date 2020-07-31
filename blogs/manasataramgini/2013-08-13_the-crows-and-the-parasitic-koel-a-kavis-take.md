@@ -1,5 +1,5 @@
 +++
-title = "The crows and the parasitic koel: a kavi’sxa0take"
+title = "The crows and the parasitic koel: a kavi’s take"
 
 +++
 In saMskR^ita literature we have come across multiple references to the

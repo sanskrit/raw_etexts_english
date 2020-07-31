@@ -1,5 +1,5 @@
 +++
-title = "Leaves from thexa0scrapbook"
+title = "Leaves from the scrapbook"
 
 +++
 There were extensive memoirs in the form of electronic scrapbooks of

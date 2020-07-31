@@ -1,5 +1,5 @@
 +++
-title = "The pathetic state ofxa0Hindus"
+title = "The pathetic state of Hindus"
 
 +++
 The Hindus are under the smug belief that they are no longer under the

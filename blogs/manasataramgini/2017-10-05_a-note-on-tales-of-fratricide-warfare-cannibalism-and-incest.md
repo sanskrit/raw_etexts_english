@@ -1,5 +1,5 @@
 +++
-title = "A note on tales of fratricide, warfare, cannibalism andxa0incest"
+title = "A note on tales of fratricide, warfare, cannibalism and incest"
 
 +++
 The Osman conqueror of Constantinople, Mehmet-II, bothered by the civil

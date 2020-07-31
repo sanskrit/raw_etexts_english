@@ -1,5 +1,5 @@
 +++
-title = "The pa~ncha vaktra chakra of the pUrvaxa0srotas"
+title = "The pa~ncha vaktra chakra of the pUrva srotas"
 
 +++
 [![](https://i2.wp.com/photos1.blogger.com/blogger/2010/410/320/shiva.0.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/shiva.0.jpg)

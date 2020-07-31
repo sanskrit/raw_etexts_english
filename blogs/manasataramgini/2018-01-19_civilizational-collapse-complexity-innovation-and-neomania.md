@@ -1,5 +1,5 @@
 +++
-title = "Civilizational collapse, complexity, innovation andxa0neomania"
+title = "Civilizational collapse, complexity, innovation and neomania"
 
 +++
 On these pages we had provided some commentary on the work of the German

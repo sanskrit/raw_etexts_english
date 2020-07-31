@@ -1,5 +1,5 @@
 +++
-title = "Some personal reflections on Carl Gauss, Bernhard Riemann and associatedxa0matters"
+title = "Some personal reflections on Carl Gauss, Bernhard Riemann and associated matters"
 
 +++
 The biochemist Albert Szent-Györgyi had famously remarked that as he

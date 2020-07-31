@@ -1,5 +1,5 @@
 +++
-title = "Śakadhūma: Possible parallels in a meteorological tradition from India and Southxa0America"
+title = "Śakadhūma: Possible parallels in a meteorological tradition from India and South America"
 
 +++
 This is an updated version of our earlier study: published first at

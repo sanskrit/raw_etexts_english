@@ -1,5 +1,5 @@
 +++
-title = "Nārāyaṇa’s sequence, Mādhava’s series andxa0pi"
+title = "Nārāyaṇa’s sequence, Mādhava’s series and pi"
 
 +++
 **The coin-toss problem and Nārāyaṇa’s sequence**  

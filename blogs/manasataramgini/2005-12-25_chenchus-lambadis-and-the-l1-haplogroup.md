@@ -1,5 +1,5 @@
 +++
-title = "Chenchus, Lambadis and the L1xa0haplogroup"
+title = "Chenchus, Lambadis and the L1 haplogroup"
 
 +++
 Analysis of some additional data from the Cordaux paper and the earlier

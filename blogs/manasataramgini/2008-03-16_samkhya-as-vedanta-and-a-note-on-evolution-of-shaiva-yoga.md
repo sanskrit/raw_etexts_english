@@ -1,5 +1,5 @@
 +++
-title = "sAMkhya as “vedAnta” and a note on evolution of shaivaxa0yoga"
+title = "sAMkhya as “vedAnta” and a note on evolution of shaiva yoga"
 
 +++
 The publication of a critical edition and scholarly annotation of the

@@ -1,5 +1,5 @@
 +++
-title = "Account of a mantra practice and discussionxa0thereon"
+title = "Account of a mantra practice and discussion thereon"
 
 +++
 The below account is mainly for mantra-theorists and practitioners in

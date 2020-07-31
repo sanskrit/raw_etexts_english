@@ -1,5 +1,5 @@
 +++
-title = "indra’s a~Nkusha: conceiving the old Indo-Aryanxa0weapon"
+title = "indra’s a~Nkusha: conceiving the old Indo-Aryan weapon"
 
 +++
 The a\~Nkusha is a common weapon of the gods. This in itself appears a

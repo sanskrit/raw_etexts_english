@@ -1,5 +1,5 @@
 +++
-title = "A stotra to shiva and viShNu with a few allusions to kumAra thrownxa0in"
+title = "A stotra to shiva and viShNu with a few allusions to kumAra thrown in"
 
 +++
 The stotra is attributed to the R^iShi agastya and is embedded in the

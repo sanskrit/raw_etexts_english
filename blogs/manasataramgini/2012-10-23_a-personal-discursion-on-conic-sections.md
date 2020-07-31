@@ -1,5 +1,5 @@
 +++
-title = "A personal discursion on conicxa0sections"
+title = "A personal discursion on conic sections"
 
 +++
 The brothers Menaechmus and Dinostratus, as per the last great yavana

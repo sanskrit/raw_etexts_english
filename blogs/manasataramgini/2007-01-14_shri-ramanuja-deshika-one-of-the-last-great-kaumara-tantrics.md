@@ -1,5 +1,5 @@
 +++
-title = "shrI rAmAnuja deshika, one of the last great kaumAraxa0tantrics"
+title = "shrI rAmAnuja deshika, one of the last great kaumAra tantrics"
 
 +++
 The below note is neither meant as a sectarian effusion nor a historical

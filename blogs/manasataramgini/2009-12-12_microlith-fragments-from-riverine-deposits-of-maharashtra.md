@@ -1,5 +1,5 @@
 +++
-title = "Microlith fragments from riverine deposits ofxa0mahArAShTra"
+title = "Microlith fragments from riverine deposits of mahArAShTra"
 
 +++
 [![IMG\_0674](https://i2.wp.com/farm3.static.flickr.com/2666/4179314974_bcaa0bc668.jpg)](http://www.flickr.com/photos/24766652@N05/4179314974/ "IMG_0674 by somasushma, on Flickr")  

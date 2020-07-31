@@ -1,5 +1,5 @@
 +++
-title = "Hsuan Tsung divided by two : Pleasexa0NO"
+title = "Hsuan Tsung divided by two : Please NO"
 
 +++
 We climbed up the turret there was a closely fought encounter going on

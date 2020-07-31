@@ -1,5 +1,5 @@
 +++
-title = "Early temples and iconicxa0worship"
+title = "Early temples and iconic worship"
 
 +++
 It is nearly inconceivable for the average modern Hindu to imagine his

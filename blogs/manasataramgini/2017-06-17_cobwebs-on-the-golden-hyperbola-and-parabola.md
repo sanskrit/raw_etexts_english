@@ -1,5 +1,5 @@
 +++
-title = "Cobwebs on the golden hyperbola andxa0parabola"
+title = "Cobwebs on the golden hyperbola and parabola"
 
 +++
 The material presented here is rather trivial to those who have spent

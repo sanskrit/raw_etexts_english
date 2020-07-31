@@ -1,5 +1,5 @@
 +++
-title = "shrIvidyA beyond the pa~nchadashI and classicalxa0phase"
+title = "shrIvidyA beyond the pa~nchadashI and classical phase"
 
 +++
 Not much is remembered of the shrI-kula traditions before the universal

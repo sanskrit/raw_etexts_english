@@ -1,5 +1,5 @@
 +++
-title = "Geopolitics of the tantra age: an attempt at a bluntxa0assessment"
+title = "Geopolitics of the tantra age: an attempt at a blunt assessment"
 
 +++
 The va\~Nga-paNDita placed the following issue before ekanetra and me.

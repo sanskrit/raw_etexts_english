@@ -1,5 +1,5 @@
 +++
-title = "Some discussion on the Siberian conquests of the Mongols and the Ainu inxa0history"
+title = "Some discussion on the Siberian conquests of the Mongols and the Ainu in history"
 
 +++
 In 1207 CE, after Chingiz Khan had been proclaimed as the sole ruler of

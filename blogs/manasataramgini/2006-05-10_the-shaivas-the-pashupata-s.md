@@ -1,5 +1,5 @@
 +++
-title = "The shaivas: thexa0pAshupata-s"
+title = "The shaivas: the pAshupata-s"
 
 +++
 The early evolution of the shaiva fold is a topic of tremendous interest

@@ -1,5 +1,5 @@
 +++
-title = "Indo-European miscellany: The Karṇa class ofxa0motifs"
+title = "Indo-European miscellany: The Karṇa class of motifs"
 
 +++
 As we have said many times before most Hindus, despite being the last

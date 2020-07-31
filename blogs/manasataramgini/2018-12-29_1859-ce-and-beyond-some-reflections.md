@@ -1,5 +1,5 @@
 +++
-title = "1859 CE and beyond: Somexa0reflections"
+title = "1859 CE and beyond: Some reflections"
 
 +++
 The yuga between 1800 CE and 1900 CE saw a remarkable change in our

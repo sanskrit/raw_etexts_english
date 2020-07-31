@@ -1,5 +1,5 @@
 +++
-title = "Rehabilitating king vidyAdhara and the sense of Hinduxa0identity"
+title = "Rehabilitating king vidyAdhara and the sense of Hindu identity"
 
 +++
 [![](https://lh4.googleusercontent.com/-LfrLHmD4S40/TnUV_IPaKvI/AAAAAAAACMg/SXsjPLROaXM/s400/kaNDariya_mahAdeva.jpg)](https://picasaweb.google.com/lh/photo/pdLG1zx_7EU6ph_p1STRrA?feat=embedwebsite)

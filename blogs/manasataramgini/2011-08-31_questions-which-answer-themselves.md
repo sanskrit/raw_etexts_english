@@ -1,5 +1,5 @@
 +++
-title = "Questions which answerxa0themselves"
+title = "Questions which answer themselves"
 
 +++
 kaM saMjaghAna kR^iShNaH ? kaMsaM jaghAna kR^iShNaH |  

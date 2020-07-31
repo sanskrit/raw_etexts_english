@@ -1,5 +1,5 @@
 +++
-title = "ekAnaMshA in nAstIka myth-making and implications for AstIka Paurano-Tantricxa0history"
+title = "ekAnaMshA in nAstIka myth-making and implications for AstIka Paurano-Tantric history"
 
 +++
 buddhagosha declared that the bauddha zealots should not listen to

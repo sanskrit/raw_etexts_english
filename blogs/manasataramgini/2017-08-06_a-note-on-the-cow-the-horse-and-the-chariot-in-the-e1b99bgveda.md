@@ -1,5 +1,5 @@
 +++
-title = "A note on the cow, the horse and the chariot in thexa0Ṛgveda"
+title = "A note on the cow, the horse and the chariot in the Ṛgveda"
 
 +++
 yasmai tvaṃ sukṛte jātaveda  

@@ -1,5 +1,5 @@
 +++
-title = "The quotient triangle, the parabola-hyperbola sequence, the remainder triangle and perfectxa0numbers"
+title = "The quotient triangle, the parabola-hyperbola sequence, the remainder triangle and perfect numbers"
 
 +++
 **The quotient triangle**  

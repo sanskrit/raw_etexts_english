@@ -1,5 +1,5 @@
 +++
-title = "A note on āmreḍita-s in the Ṛgveda and issues of wordxa0distribution"
+title = "A note on āmreḍita-s in the Ṛgveda and issues of word distribution"
 
 +++
 sa darśataśrīr atithir gṛhe-gṛhe  

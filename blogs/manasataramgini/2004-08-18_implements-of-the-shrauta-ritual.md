@@ -1,5 +1,5 @@
 +++
-title = "Implements of the shrautaxa0ritual"
+title = "Implements of the shrauta ritual"
 
 +++
 ratha chakra: The spoked chariot. Typically made of audumbara wood. It

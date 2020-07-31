@@ -1,5 +1,5 @@
 +++
-title = "The apparition ofxa0Mars"
+title = "The apparition of Mars"
 
 +++
 We have been observing Mars since October 30th. We have had the most

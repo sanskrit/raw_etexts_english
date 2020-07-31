@@ -1,5 +1,5 @@
 +++
-title = "dvijas and non-dvijas in the shaivaxa0cults"
+title = "dvijas and non-dvijas in the shaiva cults"
 
 +++
 As we argued earlier the kAlAmukhas were rather orthodox, even if

@@ -1,5 +1,5 @@
 +++
-title = "The eka-pa~nchAshan-nR^isiMha-nAmAni according to the kaulaxa0tradition"
+title = "The eka-pa~nchAshan-nR^isiMha-nAmAni according to the kaula tradition"
 
 +++
 As per the shaiva tradition of the brahma-yAmala that expounds the lore

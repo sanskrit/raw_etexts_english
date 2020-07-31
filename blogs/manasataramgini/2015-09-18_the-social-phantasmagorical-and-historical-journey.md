@@ -1,5 +1,5 @@
 +++
-title = "The social, phantasmagorical and historicalxa0journey"
+title = "The social, phantasmagorical and historical journey"
 
 +++
 It was some time just before the first vacations of Somakhya and

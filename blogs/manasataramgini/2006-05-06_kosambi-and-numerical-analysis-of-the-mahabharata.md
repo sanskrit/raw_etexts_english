@@ -1,5 +1,5 @@
 +++
-title = "Kosambi and numerical analysis of thexa0mahAbhArata"
+title = "Kosambi and numerical analysis of the mahAbhArata"
 
 +++
 Various kinds of numerical analysis on the mahAbhArata need to be

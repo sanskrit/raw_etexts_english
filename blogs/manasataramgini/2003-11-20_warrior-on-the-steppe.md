@@ -1,5 +1,5 @@
 +++
-title = "Warrior on thexa0steppe"
+title = "Warrior on the steppe"
 
 +++
 Toqta Qiya had won many great battles and captured much territory. He

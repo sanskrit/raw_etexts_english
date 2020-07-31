@@ -1,5 +1,5 @@
 +++
-title = "The accomodation of women and shUdra-s in the pAshupataxa0system"
+title = "The accomodation of women and shUdra-s in the pAshupata system"
 
 +++
 As we noted before the pAshupata tradition was originally strictly

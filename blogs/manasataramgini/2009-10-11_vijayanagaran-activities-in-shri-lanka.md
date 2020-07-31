@@ -1,5 +1,5 @@
 +++
-title = "vijayanagaran activities in shrIxa0lankA"
+title = "vijayanagaran activities in shrI lankA"
 
 +++
 Since the vijayan colonization of lankA several south India empires have

@@ -1,5 +1,5 @@
 +++
-title = "A journey through fractalxa0objects"
+title = "A journey through fractal objects"
 
 +++
 

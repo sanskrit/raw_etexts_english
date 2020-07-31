@@ -1,5 +1,5 @@
 +++
-title = "Some musings on the age of thexa0ichthyosaurs"
+title = "Some musings on the age of the ichthyosaurs"
 
 +++
 Ichthyopterygia (colloquially ichthyosaurs in this note), like many

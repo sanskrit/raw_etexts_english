@@ -1,5 +1,5 @@
 +++
-title = "shrauta-tantric traditions related to the vIran ravi-s of the cheraxa0country"
+title = "shrauta-tantric traditions related to the vIran ravi-s of the chera country"
 
 +++
 While the shrauta tradition all over bhArata preserves the archaisms of

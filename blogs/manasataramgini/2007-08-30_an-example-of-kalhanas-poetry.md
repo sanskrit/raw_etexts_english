@@ -1,5 +1,5 @@
 +++
-title = "An example of kalhaNa’sxa0poetry"
+title = "An example of kalhaNa’s poetry"
 
 +++
 guhon-mukhI nAga-mukhApIta bhuripayA ruchiM | gaurI yatra vitastAtvaM

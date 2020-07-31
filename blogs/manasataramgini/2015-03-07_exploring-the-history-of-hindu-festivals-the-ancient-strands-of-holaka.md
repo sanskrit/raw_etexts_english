@@ -1,5 +1,5 @@
 +++
-title = "Exploring the history of Hindu festivals: the ancient strands ofxa0Holākā"
+title = "Exploring the history of Hindu festivals: the ancient strands of Holākā"
 
 +++
 [Updated version of article published originally at

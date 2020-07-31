@@ -1,5 +1,5 @@
 +++
-title = "The sleep ofxa0dhUmAvatI"
+title = "The sleep of dhUmAvatI"
 
 +++
 We have heard of the nairR^ita spell of dhUmA which overpowers you with

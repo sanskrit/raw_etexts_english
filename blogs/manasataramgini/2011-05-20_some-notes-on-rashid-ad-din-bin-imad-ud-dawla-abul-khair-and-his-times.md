@@ -1,5 +1,5 @@
 +++
-title = "Some notes on Rashid ad-Din bin Imad ud Dawla Abu’l Khair and hisxa0times"
+title = "Some notes on Rashid ad-Din bin Imad ud Dawla Abu’l Khair and his times"
 
 +++
 There are many ironies that are iconic of the Mohammedan world. One such

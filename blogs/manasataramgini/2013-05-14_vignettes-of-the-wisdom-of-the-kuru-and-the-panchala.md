@@ -1,5 +1,5 @@
 +++
-title = "Vignettes of the wisdom of the kuru and thexa0pa~nchAla"
+title = "Vignettes of the wisdom of the kuru and the pa~nchAla"
 
 +++
 The defining element of our identity was the formation of the rAShTra by

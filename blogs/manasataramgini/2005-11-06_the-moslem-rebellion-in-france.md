@@ -1,5 +1,5 @@
 +++
-title = "The Moslem rebellion inxa0France"
+title = "The Moslem rebellion in France"
 
 +++
 The West often preaches solemnly to India about Moslem rioting. It is

@@ -1,5 +1,5 @@
 +++
-title = "Why has he attained eko mAnuSha Anandaxa0?"
+title = "Why has he attained eko mAnuSha Ananda ?"
 
 +++
 We finally had that chance for the wonderful meeting with ekanetra and

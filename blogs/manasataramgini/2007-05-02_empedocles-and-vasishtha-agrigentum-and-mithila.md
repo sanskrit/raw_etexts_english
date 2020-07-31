@@ -1,5 +1,5 @@
 +++
-title = "Empedocles and vasiShTha : Agrigentum andxa0Mithila"
+title = "Empedocles and vasiShTha : Agrigentum and Mithila"
 
 +++
 τέσσαρα γὰρ πάντων ῥιζώματα πρῶτον ἄκουε·  

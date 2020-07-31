@@ -1,5 +1,5 @@
 +++
-title = "kubjikA and the pa~nchavaktraxa0mahAdeva"
+title = "kubjikA and the pa~nchavaktra mahAdeva"
 
 +++
 [![](https://i2.wp.com/photos1.blogger.com/blogger/2010/410/320/kubjikA1.jpg)](http://photos1.blogger.com/blogger/2010/410/1600/kubjikA1.jpg)

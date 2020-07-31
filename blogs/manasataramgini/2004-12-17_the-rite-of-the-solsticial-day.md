@@ -1,5 +1,5 @@
 +++
-title = "The rite of the solsticialxa0day"
+title = "The rite of the solsticial day"
 
 +++
 The old solsticial rite of the Indo-Aryans is performed on the second

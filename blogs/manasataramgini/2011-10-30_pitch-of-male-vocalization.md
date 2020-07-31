@@ -1,5 +1,5 @@
 +++
-title = "Pitch of malexa0vocalization"
+title = "Pitch of male vocalization"
 
 +++
 [![](https://lh3.googleusercontent.com/-OqIQgwt4T0s/Tq2LaOq1ApI/AAAAAAAACQ0/RAK0x7Pyb20/s400/African_Baboon.jpg)](https://picasaweb.google.com/lh/photo/DKW_B9xNXF2e-M57EHXeGA?feat=embedwebsite)  

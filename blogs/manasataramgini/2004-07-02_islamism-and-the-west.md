@@ -1,5 +1,5 @@
 +++
-title = "Islamism and thexa0West"
+title = "Islamism and the West"
 
 +++
 One point to notice is that Islam, in part derives its modern strength

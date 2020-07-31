@@ -1,5 +1,5 @@
 +++
-title = "A visual guide to avianxa0phylogeny"
+title = "A visual guide to avian phylogeny"
 
 +++
 [![](https://i2.wp.com/lh5.ggpht.com/_hjuA1bE0hBw/S2_DrWmwWaI/AAAAAAAABRA/wed_F-16oy0/s800/birds2.jpg)](http://picasaweb.google.com/lh/photo/VpZyRcNwsIFt0LiXLN7zCw?feat=embedwebsite)

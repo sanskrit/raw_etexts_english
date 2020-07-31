@@ -1,5 +1,5 @@
 +++
-title = "More on the tragic failure of thexa0brahma"
+title = "More on the tragic failure of the brahma"
 
 +++
 Wandering like an incorporeal observer in the midst of the mlechCha-s,

@@ -1,5 +1,5 @@
 +++
-title = "A poll on peoples’ beliefs onxa0reincarnation"
+title = "A poll on peoples’ beliefs on reincarnation"
 
 +++
 Using the Twitter’s poll tool we conducted a poll which gave the below

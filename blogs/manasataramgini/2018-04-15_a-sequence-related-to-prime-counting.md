@@ -1,5 +1,5 @@
 +++
-title = "A sequence related to primexa0counting"
+title = "A sequence related to prime counting"
 
 +++
 The current note arose as an exploration branching off from the matter

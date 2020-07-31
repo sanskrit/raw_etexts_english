@@ -1,5 +1,5 @@
 +++
-title = "Giant volcanos andxa0humans"
+title = "Giant volcanos and humans"
 
 +++
 Recent meteorological studies have suggested that the volcanic activity

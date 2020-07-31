@@ -1,5 +1,5 @@
 +++
-title = "Some notes on the kAshyapaxa0tradition"
+title = "Some notes on the kAshyapa tradition"
 
 +++
 There is much reason to believe that the kAshyapa tradition is a real

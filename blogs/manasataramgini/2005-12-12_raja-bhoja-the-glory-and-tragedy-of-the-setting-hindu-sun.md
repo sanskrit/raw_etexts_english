@@ -1,5 +1,5 @@
 +++
-title = "rAja bhoja: the glory and tragedy of the setting Hinduxa0Sun"
+title = "rAja bhoja: the glory and tragedy of the setting Hindu Sun"
 
 +++
 bhoja’s military and political career  

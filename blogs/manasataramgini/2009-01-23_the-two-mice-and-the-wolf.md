@@ -1,5 +1,5 @@
 +++
-title = "The mouse, the rat and thexa0wolf"
+title = "The mouse, the rat and the wolf"
 
 +++
 We were chasing one mouse. One rat was chasing us and so was a wolf. For

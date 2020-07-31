@@ -1,5 +1,5 @@
 +++
-title = "Some meanderings on early medieval history from the view point of nAstikaxa0compositions"
+title = "Some meanderings on early medieval history from the view point of nAstika compositions"
 
 +++
 [![](https://lh3.googleusercontent.com/-CQNol2n_DXw/U8N8qbhqhhI/AAAAAAAADAU/6oIy61oFtvA/s800/vajreshvarI_small.jpg)](https://picasaweb.google.com/lh/photo/5ac9u8vUP2IK1RwBFwU-WNMTjNZETYmyPJy0liipFm0?feat=embedwebsite)  

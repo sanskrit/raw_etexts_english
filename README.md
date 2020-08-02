@@ -14,3 +14,12 @@ A repository containing important raw texts (some non-proofread). Processed (eg:
 - Fork this repo and send pull requests.
 - Raise issues.
 - Add submodule: `git submodule add --depth 1 -- https://github.com/indic-dict/something.git some/path`
+### Conventions
+Allowed formats in the order of decreasing preference: md (possibly with frontmatter), txt, itx, tex, html.
+
+#### Preferred naming conventions:
+
+- OCR files will be named: xyz_ocr.md or xyz_ocr.txt. 
+- When they are being proofread, they will be renamed: xyz_proofreading_.md or txt.
+- When fully proofread, they will be: xyz.md or xyz.txt
+

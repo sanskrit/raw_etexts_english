@@ -1,13 +1,15 @@
- My Transportation for Life 
-© Himani Savarkar, 
-Savarkar Bhavan, Raja Thakur Path, Shanivar Peth, Pune. 
-tel :+912025544751 
-Internet Rights are with Swatantryaveer Savarkar Rashtriya Smarak Trust, Dadar, Mumbai 
-My Transportation for Life 
-PREFACE 
++++
+title = "My Transportation for Life"
++++
+ 
+
+## PREFACE 
 The Story of the Publication of the Book 'My Transportation for Life' originally written in Marathi, is as tortuous and yet as significant as the story of the toils and tortures suffered by its illustrious author. 
+
 Many minor freedom fighters have come out with the colourful versions of their internment in jail making the most of what a little they endured there, but Swatantrya Veer V.D. Savarkar in spite of his exceptionally heroic struggle against his most inhuman incarceration and the beastly treatment meted out to him and his co-convicts in the Cellulor jail of the Andamans. was reticent to breathe out a word about it all. For he often wondered if it would be proper and decent to do so, whether it would not bounce back upon him with the charge of boastfulness or whether by doing so his extraordinary sacrifice and infernal sufferings in the Andaipxns might not appear more theatrical and sham than real and horrid. Moreover, he felt whether he would not do a great wrong to his co- sufferers who bravely laid down their lives on the altar of freedom without having the slightest chance of uttering a single word about anything whatsoever. 
+
 Granting that a loud and ‘heartrending cry or wail is a natural concomitant or consequence of every agony whether it be the dying screech of helpless and hapless bird in the jaws of a hawk or, may be, the national lament of the French people at the sight of the dead body of their beloved Emperor Napoleon brought to Paris from St. Helena - it was still felt unworthy of expression in as much as whatever was worth telling about in the story of the Transportation for Life could not be clearly told because of the stringent government conditions laid down on his release, while whatever little could be written down was bound to be colourless and shallow because of the incoherence that must necessarily creep in the narration. Would it not therefore be proper, he felt, to wait till such an auspicious day daw ned when he would be able to open out his hean without any let on hindrance? But suppose, such a day never dawned! How would his total silence. He wondered ever affec! the course of the world? On the contrary, he felt this slip-shod and inconsistent narration of his turbulent and tumultous life in the Andaman Jail might smack of self eulogy. 
+
 But constant requests and exhortations by his admirers far and near and the thought that even this incoherent account of his epic struggle might prove edifying and useful to at least some of the readers and might justify, even if partially, the cause for which, and the way in which, he and his compatriots fought and suffered and died, made the author Veer V.D.Savarkar relent a bit and the said 'My Transportation for Life' was published in the weekly “Kesari” of the celebrated Late Lokmanya Tilak in a series during 1925-26. 
 But even that brave national periodical found it difficult to publish the whole account of the 'Transportation For Life'. So the second part of the story had to be published in another weekly, viz “Shraddhanand”. from 20th January 1927 onwards, and eventually the whole work was brought out in May 1927, for the first time. 
 The author, Swatantryaveer V.D.Savarkar, as is well known, was implicated by the then Government of India in the Jackson Murder Case of 1909 under Section 302 and 109 of the Indian Penal Code and was sentenced to the First Transportation for Life on 24th December 

@@ -230,7 +230,7 @@ with CA provided an analogy for how the processes of life were executed.
 The fundamental unit of biological systems being the cell made this a
 natural analogy for development. Indeed, on first seeing CA, the most
 direct connection to certain biological forms appeared before our eyes.
-For example, the patterns formed on the shells of *Conus *snails can be
+For example, the patterns formed on the shells of *Conus *snails can be
 quite explained by some form of totalistic CA as those illustrated here
 (e.g. rule
 ![0022210](https://s0.wp.com/latex.php?latex=0022210&bg=ffffff&fg=333333&s=0
@@ -245,7 +245,7 @@ and it can literally play out on a growing sheet of cells as seen here.
 
 ![conus](https://manasataramgini.files.wordpress.com/2016/11/conus.png?w=640)
 
-*Gong et al*  E234–E241, doi: 10.1073/pnas.1119859109
+*Gong et al*  E234–E241, doi: 10.1073/pnas.1119859109
 
 However, CA also provided us with a more abstract biological insight.
 Here, the CA are not to be equated with the actual biological cells but

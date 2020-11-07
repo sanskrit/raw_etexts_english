@@ -58,7 +58,7 @@ deities is indicated. Moreover, rudra denying his association with beer
 indicates his domesticated state. This is different from his wild state
 as a manifestation of the violent principle inherent in beer – a point
 alluded to in the shruti (e.g. [shatapatha
-brAhmaNa](https://manasataramgini.wordpress.com/2011/04/28/notes-on-the-vishnu-virachita-rudra-stotram/ "Notes on the viShNu-virachita rudra stotram"))
+brAhmaNa](https://manasataramgini.wordpress.com/2011/04/28/notes-on-the-vishnu-virachita-rudra-stotram/ "Notes on the viShNu-virachita rudra stotram"))
 in the context of the sautrAmaNi ritual. It also distinguishes him from
 the state where accompanied by the many female deities, the one in which
 alcoholic beverage is a sacrament as in the tantra-s of the

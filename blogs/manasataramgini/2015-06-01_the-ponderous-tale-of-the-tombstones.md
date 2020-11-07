@@ -591,7 +591,7 @@ control the whole western hemisphere. From Australia and New Zealand we
 control the southern hemisphere. From England we control Europe. But
 there is a lacuna in Asia, which arose after we lost India. We knew that
 the Mahometans have always sought world-conquest like us. I must confess
-that sometimes I do feel that Mahomet’s religion is perhaps the very
+that sometimes I do feel that Mahomet’s religion is perhaps the very
 word of God in practice. We knew that if we could lure the Mahometans to
 make common cause with us then we could start all over again to get the
 sub-continent back in our control. We had won before using the perimeter

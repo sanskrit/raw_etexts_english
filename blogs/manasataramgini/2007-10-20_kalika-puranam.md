@@ -145,7 +145,7 @@ Chapter 76 The description of the types of mantra-s and vasiShTha
 expounds kAmAkhyA pUjA.  
 Chapter 77-79 A geographic dilation on the pITha of kAmAkyA and the holy
 spots in its environs.  
-Chapter 80  A description of the worship of other deva-s, particularly
+Chapter 80  A description of the worship of other deva-s, particularly
 concentrating on the worship of viShNu as ordained in the pA\~ncharAtra
 tantras.  
 Chapter 81 A bizarre tale regarding the prevalence of vAmAchAra worship

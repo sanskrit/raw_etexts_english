@@ -8,7 +8,7 @@ aśvinaṃ sa putriṇaṃ vīravantaṃ
 gomantaṃ rayiṃ naśate svasti ||
 
 For whom you will make a pleasant world, O Jātavedas\!  
-as he does correct rituals for you, O Agni\!  
+as he does correct rituals for you, O Agni\!  
 He endowed with horses, offspring, heroes,  
 cattle and wealth attains well-being.
 
@@ -168,13 +168,13 @@ bhakṣīya vo ‘vaso daivyasya ॥ RV 5.57.7
 Endowed with cows, with horses, with chariots, with good heroes  
 with gold, wealth you have given us, O Maruts\!  
 Make praise be ours O sons of Rudra\!  
-May I partake a share of your divine aid.
+May I partake a share of your divine aid.
 
 See also:  
 [The maNDala graph
-for R^iShi-sharing](https://manasataramgini.wordpress.com/2007/10/27/the-mandala-graph-for-rishi-sharing/)  
+for R^iShi-sharing](https://manasataramgini.wordpress.com/2007/10/27/the-mandala-graph-for-rishi-sharing/)  
 [Some trivia concering
-the Adi-shruti](https://manasataramgini.wordpress.com/2009/02/08/some-trivia-concering-the-adi-shruti/)  
+the Adi-shruti](https://manasataramgini.wordpress.com/2009/02/08/some-trivia-concering-the-adi-shruti/)  
 [The Rāmāyaṇa and a para-Rāmāyaṇa in numbers-II: Evolving early
 Indo-Aryan
 warfare](https://manasataramgini.wordpress.com/2017/07/16/the-ramaya%e1%b9%87a-and-a-para-ramaya%e1%b9%87a-in-numbers-ii-evolving-early-indo-aryan-warfare/)

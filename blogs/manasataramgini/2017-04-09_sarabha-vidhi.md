@@ -34,7 +34,7 @@ asyām āśiṣi svāhā ॥
 
 Make an offering in the aupāsana fire at the svāhā.
 
-Having visualized Śarabha as stated earlier you shall first perform the
+Having visualized Śarabha as stated earlier you shall first perform the
 worship the five faces conjoining the Brahma-mantra-s thus:
 
 oṃ hauṃ tatpuruṣāya pakṣirājāya namaḥ । tatpuruṣaya vidmahe…||  

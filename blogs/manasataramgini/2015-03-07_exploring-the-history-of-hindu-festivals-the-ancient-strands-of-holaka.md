@@ -77,7 +77,7 @@ by the sweat flowing off the nipples of your pitcher-like breasts?
 The preparation of powder for throwing in the festival is also alluded
 to in the same context in the Gāthasaptaśati  
 *mukha-puṇḍarīkac-chāyāyāṃ saṃsthitau paśyata rājahaṃsāviva |*  
-*kṣaṇa-piṣṭa-kuṭṭanocchalita-dhūli-dhavalau stanau vahati || *39/6.24
+*kṣaṇa-piṣṭa-kuṭṭanocchalita-dhūli-dhavalau stanau vahati || *39/6.24
 
 Look\! Sitting in the shadow of the lotus which is her face,  
 dusted by the powder thrown up as she grinds for the festival,  

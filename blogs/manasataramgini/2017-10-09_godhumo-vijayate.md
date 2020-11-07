@@ -25,11 +25,11 @@ a different picture. Rice and wheat are both present and the former is
 already on its way to overtaking barley as the principle grain. The
 words for rice include vrīhi (regular rice) and nīvāra (a wild rice).
 The first word is found in Iranian as birinci and has cognates across
-the Iranian languages. The first word was also either transferred to
+the Iranian languages. The first word was also either transferred to
 Dravidian as arici or acquired by it parallely to Indo-Iranian. It is
 also found in Greek as oruza, Mongolian ür-e, Japanese uruchi. The same
 applies for wheat, which in Yajurveda is already seen as godhūma. It is
-also found in the later Avestan layers as gantuma. Dravidian shows a
+also found in the later Avestan layers as gantuma. Dravidian shows a
 form similar to the Indo-Aryan word. It also occurs in Hittite as gant
 and in the Egyptian branch of Afro-Asiatic, and Semitic as well, it has
 cognates with similar sounds. Thus, these two crops most likely spread

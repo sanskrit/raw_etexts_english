@@ -165,7 +165,7 @@ developed by the Arya-s and the yavana-s. In the yavana world the
 theoretical framework did not go very far and appears to have ended with
 a relatively simple attempt at characterizing it as catharsis by
 Aristotle. That Plato had a rather rudimentary idea of the situation
-suggests that it emerged relatively late and Aristotle probably was the
+suggests that it emerged relatively late and Aristotle probably was the
 first to understand it among the yavana-s. In contrast, among the Arya-s
 it had a rather early and elaborate form in the rasa sUtra-s (NS chapter
 6). In fact even the nATyashAstra already records a commentary on the

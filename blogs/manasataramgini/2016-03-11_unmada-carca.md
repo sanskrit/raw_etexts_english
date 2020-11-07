@@ -30,7 +30,7 @@ might be local (but also note their more expansive Kitos flareup that
 presaged the actions of the later unmāda-s), but there is hardly any
 doubt the later global manifestations also have global ambitions for
 ending heathenism. Again as we have pointed out many times before, even
-if one of these unmāda-s have local ambitions or even if they fight each
+if one of these unmāda-s have local ambitions or even if they fight each
 other with greatest vehemence, when it comes to heathens, they have a
 certain resonance with each other as also their secular variants. In
 light of this it is notable and disappointing that most of the Hindu
@@ -123,7 +123,7 @@ to it is the construct that in addition to negating any heathen vision
 it also negates other parallel monotheistic visions, i.e. parallel
 Abrahamisms. Thus, dajjāl of the marūnmatta-s is seen as a
 prathamonmatta. But a heathen should not be too caught with this because
-it is purely an internal issue of Abrahamism that does change their
+it is purely an internal issue of Abrahamism that does change their
 equation vis-a-vis the heathen.
 
 The importance of this funneling becomes apparent when one considers the
@@ -251,7 +251,7 @@ universalist ambitions via missionary action to the dvitīyonmāda.
 
 Before the tathāgata, Zarathustra departed from the IE religious
 archetype. Ironically, he rose within the Indo-Iranian tradition, which
-was perhaps closest to the original traditions among all the branches of
+was perhaps closest to the original traditions among all the branches of
 IE, and he proudly declares his status as a zaotar (=hotṛ). While we
 have little evidence to exactly determine his possible neurological
 state, he did adopt an exclusivism, which parallels the Abrahamistic

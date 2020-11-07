@@ -53,15 +53,15 @@ kathyatAm iti muhur vANIM guhe jalpati |
 gaurIM hasta-yugena ShaNmukha-vacho roddhuM nirIkShyAkShamAM
 vailakShyAch chaturAsya-niShphala-parAvR^ittish chiraM pAtu vaH ||
 
-yAtas= inflict;  te = your; .adhara=lower \[lip\]; khaNDanAt biting;
- paribhavaH=injury; kApAlikAd=skull-bearer (ablative singular masc.);
- amba= mother; yaH=one who; sa= he; brahmAdiShu- to brahmA and others;
+yAtas= inflict;  te = your; .adhara=lower \[lip\]; khaNDanAt biting;
+ paribhavaH=injury; kApAlikAd=skull-bearer (ablative singular masc.);
+ amba= mother; yaH=one who; sa= he; brahmAdiShu- to brahmA and others;
 kathyatAm= let it be told; iti= so; muhur= multiply; vANIM= voice
-(acc.singular fem); guhe= in guha; jalpati=babbles  |
+(acc.singular fem); guhe= in guha; jalpati=babbles  |
 
 gaurIM-\>;( acc.singular fem.); hasta-yugena= by pair of hands;
-ShaNmukha-vacho=the speech of the six-headed one;  roddhuM=shut up;
-nirIkShyAkShamAM =having seen unable to;  ; vailakShyAch= embarrassment;
+ShaNmukha-vacho=the speech of the six-headed one;  roddhuM=shut up;
+nirIkShyAkShamAM =having seen unable to;  ; vailakShyAch= embarrassment;
 chaturAsya= four-headed one; niShphala= fruitless; parAvR^ittish=
 turning away; chiraM= for ever; pAtu= protection; vaH your ||
 

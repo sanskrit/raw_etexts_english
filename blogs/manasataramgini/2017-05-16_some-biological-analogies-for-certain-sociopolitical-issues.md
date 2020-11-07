@@ -12,7 +12,7 @@ they do not grasp the matter for some reason. On the other hand an
 excuse that is commonly used is that we do not have a yard stick for
 properly positioning a geopolitical stance. Here is where, even for very
 simple matters, biological analogies can be very useful. They are
-particularly useful because the adverse edge of natural selection is
+particularly useful because the adverse edge of natural selection is
 most unforgiving – there is no place for fancies and only what works
 finally makes it past the hatchet. Likewise, the role of chance and
 absence of constraints are also placed in proper perspective.
@@ -101,7 +101,7 @@ most important being: 1) energy production; 2) metabolite biosynthesis;
 weaponry for biological conflicts. These, in stark contrast to the core
 components show enormous diversity between organisms, often even between
 closely related ones. Why? Because here there tends to be more of
-positive selection which might diversify information rather than
+positive selection which might diversify information rather than
 purifying selection which favors stasis. This is easy to understand:
 being able to use different kinds of energy production mechanism or
 metabolite biosynthetic mechanisms helps exploit different kinds of

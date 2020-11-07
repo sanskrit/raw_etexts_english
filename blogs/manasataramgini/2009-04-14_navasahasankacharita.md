@@ -103,7 +103,7 @@ chakShuH=eye; tat= that; unmeShi=opening; sadA= always; mukha= face;
 vaH= your;  
 sArasvataM=eloquence; shAshvatam=eternal; Avis= manifest; astu= be;  
 pashyanti=behold; yena=by which; avahitAH=attentive; kaviindrAH=chiefs
-among poets; triviShTapa= celestial/heaven; abhyantara=inside;
+among poets; triviShTapa= celestial/heaven; abhyantara=inside;
 varti=abiding in/situated; vastu=essence/object/seat.
 
 The text also has a stuti of hATakeshvara sung by the paramAra king

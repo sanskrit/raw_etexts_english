@@ -41,7 +41,7 @@ Islamo-Hindu confrontation that have a bearing on this issue. First, a
 few premises and prefatory remarks: 1) We have previously discussed with
 historical examples how Abrahamisms have had an extremely [destructive
 effect on
-heathens](https://manasataramgini.wordpress.com/2013/02/10/the-end-of-the-heathens/ "The end of the heathens")
+heathens](https://manasataramgini.wordpress.com/2013/02/10/the-end-of-the-heathens/ "The end of the heathens")
 and developed a [theoretical
 framework](https://manasataramgini.wordpress.com/2013/07/20/khilonmada-charcha/ "khilonmAda-charchA")
 to describe the same. Here, we shall assume that framework and not
@@ -96,11 +96,11 @@ into atheism or Isaism but still retain intact that pUrva vAsana of the
 fear and loathing of the heathen sanAtana dharma. Thus, we see this as
 an Indian version of a comparable fear, [seen earlier in Jewish history
 regarding absorption by Hellenistic
-heathenism](https://manasataramgini.wordpress.com/2013/12/17/a-greco-semitic-apollonian-ritual-and-the-heathen-assimilation-of-paleo-abrahamism/ "A Greco-Semitic Apollonian ritual and the heathen assimilation of paleo-Abrahamism"),
+heathenism](https://manasataramgini.wordpress.com/2013/12/17/a-greco-semitic-apollonian-ritual-and-the-heathen-assimilation-of-paleo-abrahamism/ "A Greco-Semitic Apollonian ritual and the heathen assimilation of paleo-Abrahamism"),
 or in the vigorous reaction of all three Abrahamisms against Hindu ideas
 of brAhmaNa-s teachers introduced to West Asia by [the literature of the
 Persian, Jewish and Arab
-free-thinkers](https://manasataramgini.wordpress.com/2012/04/01/5030/ "Some more ramblings on the mlechCha-marUnmatta abhisaMdhAnaM").
+free-thinkers](https://manasataramgini.wordpress.com/2012/04/01/5030/ "Some more ramblings on the mlechCha-marUnmatta abhisaMdhAnaM").
 
 As a starting point let us consider the words of the Naqshbandi Sufi
 Shaikh, Ahmad Sirhindi, who lived during the reigns of Akbar and
@@ -133,7 +133,7 @@ of al Hind, than which there is no book more famous, greater, or more
 detailed among this group. The wise of both factions \[Hindus and
 Mohammedans\] and the linguists of both groups, by way of friendship and
 agreement, should sit down in one place, and should translate it into a
-popular expression, with the knowledge of judicious experts and just
+popular expression, with the knowledge of judicious experts and just
 officials.”*
 
 In the same context we might also look at a grandiose, panegyric
@@ -218,13 +218,13 @@ brAhmaNa-s are entirely in line with his religious transmogrification.
 
 Within a decade of the high point of Mohammedanism, where Turco-Mongol
 rulers from the [Osman Turk
-Suleyman](https://manasataramgini.wordpress.com/2009/09/23/turushkanam-madhyahna/ "turuShkANAM madhyAhna")
+Suleyman](https://manasataramgini.wordpress.com/2009/09/23/turushkanam-madhyahna/ "turuShkANAM madhyAhna")
 in the West to Akbar in East were crushing other Abrahamists and
 heathens alike, there was a clear possibility of Islam being digested in
 al Hind by the ancient heathenism of bhArata. The same [Shaikhs who had
 triumphantly joined Akbar’s march against the illustrious mahArANa
 pratapa
-siMha](https://manasataramgini.wordpress.com/2006/09/13/the-battle-of-haldighat/ "The battle of Haldighat")
+siMha](https://manasataramgini.wordpress.com/2006/09/13/the-battle-of-haldighat/ "The battle of Haldighat")
 some years back with hope of becoming ghazi-s or shahid-s were now
 finding themselves increasingly sidelined. Indeed, Ahmad Sirhindi gives
 as the two main causes for the failure of Mohammedanism in al Hind: 1)

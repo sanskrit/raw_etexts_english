@@ -229,7 +229,7 @@ scientific empiricism, have only adopted a secular mutation thereof,
 often ensuing in some form from the unkempt prophet Marx. With several
 decades of preaching this religion in academia and converting students
 by the droves they are now raw material for those wishing to enact more
-widely the agenda of this religion and by the usual pulls the 3rd
+widely the agenda of this religion and by the usual pulls the 3rd
 Abrahamism. Now, one may point out that this is purely a struggle inside
 Abrahamism, like between Shia and Sunni or Orthodox and the western
 flavors of the preta-cult. But just as Sunni and Shia alike can be

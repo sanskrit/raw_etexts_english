@@ -89,11 +89,11 @@ became clear the plumage of the basal coelurosaurs, like the
 tyrannosauroids and compsognathids, took the form of a furry down cover.
 
 ![different\_feathers](https://manasataramgini.files.wordpress.com/2009/03/different_feathers.png?w=640
-"different_feathers") Three types of feathers 3 Mesozoic birds; C being
+"different_feathers") Three types of feathers 3 Mesozoic birds; C being
 the unusual feather of *Protopteryx.*
 
 ![sinornithosaurus\_feathers](https://manasataramgini.files.wordpress.com/2009/03/sinornithosaurus_feathers.png?w=640
-"sinornithosaurus_feathers") Downy Feathers of the deinonychosaur
+"sinornithosaurus_feathers") Downy Feathers of the deinonychosaur
 *Sinornithosaurus*
 
 Till this point in the history of the science, the dinosaurian skin

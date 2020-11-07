@@ -243,7 +243,7 @@ AbhIra-s](https://manasataramgini.wordpress.com/2011/05/29/mysterious-king-shudr
 playing a major role in the overthrow of the kShatrapa-s in western
 India.
 
-[![](https://lh3.googleusercontent.com/-DEJFzreNyVw/TpUYLlbzcJI/AAAAAAAACP0/8-7_US8BX8g/s400/kApu_vIrakal.jpg)](https://picasaweb.google.com/lh/photo/lFi8YmPKW3o2KlOO7alR8g?feat=embedwebsite) A
+[![](https://lh3.googleusercontent.com/-DEJFzreNyVw/TpUYLlbzcJI/AAAAAAAACP0/8-7_US8BX8g/s400/kApu_vIrakal.jpg)](https://picasaweb.google.com/lh/photo/lFi8YmPKW3o2KlOO7alR8g?feat=embedwebsite) A
 vIrakal of a kApu warrior who fell fighting the turuShka-s
 
 **Uniform, formation, holding line and firing in rank**  

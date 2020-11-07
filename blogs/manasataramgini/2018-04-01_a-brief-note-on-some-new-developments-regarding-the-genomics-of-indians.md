@@ -74,7 +74,7 @@ lends some support to the scenario that the Soma cult was acquired by
 the Indo-Iranians and integrated with the older fire-cult as they
 reached the BMAC sites. It is notable in this context that one of the
 main proponents of the Soma cult in the Vaidika system, the Kaśyapa
-clan, was the default gotra for a brāhmaṇa who did not know his. There
+clan, was the default gotra for a brāhmaṇa who did not know his. There
 are issues with each of these points and interesting complications but
 we desist from discussing any of these now.
 

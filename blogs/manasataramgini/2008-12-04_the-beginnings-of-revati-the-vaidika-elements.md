@@ -65,7 +65,7 @@ reminder of rice for the further oblations to the goddesses. He goes out
 of his village in the eastern or northern direction and at a four-cross
 (chatuShpatha) he installs a sthaNDila and kindles the fire. Then he
 makes oblations with the reminder of the rice with the mantra from the
-mantra brAhmaNa (2.6.2-5) to rAkA, sinIvAlI and revatI. The viShNu
+mantra brAhmaNa (2.6.2-5) to rAkA, sinIvAlI and revatI. The viShNu
 smR^iti, which is derived from the kaTha tradition of the kR^iShNa
 yajurveda mentions a rite for the pacification of the goddess revatI,
 which is performed every month when the moon is in the asterism of
@@ -97,7 +97,7 @@ nakShatreShTi ritual might in some ways mirror the later connection
 between skanda and revatI (i.e. the source of the connection is
 astronomical – the constellations depicting skanda, nejameSha and revatI
 lie next to each other in the
-[sky.](http://photos1.blogger.com/photoInclude/x/blogger2/6438/855/1600/418809/nakShatra_nyAsa1.png) [ ](http://photos1.blogger.com/photoInclude/x/blogger2/6438/855/1600/418809/nakShatra_nyAsa1.png)Even
+[sky.](http://photos1.blogger.com/photoInclude/x/blogger2/6438/855/1600/418809/nakShatra_nyAsa1.png) [ ](http://photos1.blogger.com/photoInclude/x/blogger2/6438/855/1600/418809/nakShatra_nyAsa1.png)Even
 in the AV revatI and kR^ittikA are mentioned together). This
 astronomical connection seems to persists in later times where we see a
 goddess with pair of fish throughout India depicted in terracottas and

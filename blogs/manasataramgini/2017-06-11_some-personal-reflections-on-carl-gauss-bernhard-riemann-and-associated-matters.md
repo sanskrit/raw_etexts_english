@@ -357,13 +357,13 @@ directly or indirectly. Yet the historians of science place their
 discoveries as having in large part an independent element.
 
 In the case of Janos Bolyai there is a even an element of tragedy which
-is often blamed on Gauss. His father Wolfgang had obsessed over this
+is often blamed on Gauss. His father Wolfgang had obsessed over this
 problem for a while, right from when he was a fellow student at
 university with Gauss. His father wrote to Gauss of his young son
 describing him as thus: “*a healthy and very beautiful child, with a
 good disposition, black hair and eyebrows, and burning deep blue eyes,
 which at times sparkle like two jewels.*” This boy at went on to master
-calculus and Newtonian mechanics by the age of 13, and even though his
+calculus and Newtonian mechanics by the age of 13, and even though his
 father warned him of taking up the proof of the 5th postulate he went
 ahead to attack it. While yet in his teens he realized that the path
 ahead lay in taking an approach similar to that which Gauss had taken
@@ -381,7 +381,7 @@ to publish his work in his lifetime and praised Janos Bolyai’s
 achievement by saying: *“So I am greatly surprised to be spared this
 effort, and am overjoyed that it happens to be the son of my old friend
 who outstrips me in such a remarkable way.*” Gauss right away also wrote
-to his former student Gerling with praise similar to what he accorded
+to his former student Gerling with praise similar to what he accorded
 Riemann much later: “*I regard this young geometer Bolyai as a genius of
 the first order.*”
 
@@ -429,7 +429,7 @@ merely individual vessels of a single super-mind that chances upon the
 discovery at a given point in time (though I fully acknowledge more
 mundane explanations can as well explain this phenomenon). Looking at it
 this way one might gain that dispassionate view of one’s place in
-history even as the one which Kalhaṇa spoke off in the rising and
+history even as the one which Kalhaṇa spoke off in the rising and
 sinking of the waves of the kings of Kashmir. Yet, as with the
 discoverers of non-Euclidean geometries who gets the credit can be very
 varied. You may not get it even if you were the first to announce your
@@ -448,7 +448,7 @@ despite some praise from Gauss resulted in the loss of any claim in the
 honor that could have been his. Indeed, even as one is close to
 ascending the pīṭha of the sarvajña Vaivasvata could drag you away.
 
-Thus indeed came the end of Riemann. Afflicted by disease he went to the
+Thus indeed came the end of Riemann. Afflicted by disease he went to the
 warm clime of Italy in the last summer of his life. Dedekind, the last
 student of Gauss and peer of Riemann writes: “*His strength declined
 rapidly, and he himself felt that his end was near. But still, the day

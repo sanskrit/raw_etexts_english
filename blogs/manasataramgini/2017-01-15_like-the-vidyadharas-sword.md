@@ -70,7 +70,7 @@ probably apprehending faint flashes of the truth. Another brought up the
 case of the professor who was defrauded in toto by his pāṇḍūrikā
 indologist former wife, all while purchasing expensive antique Hindu
 images only to be used as props and doorstops in her study. Suddenly,
-some were talking about the mysterious “injustice” they had faced in
+some were talking about the mysterious “injustice” they had faced in
 life. Repressed and unspeakable tales of liberal allies turning against
 them spurted out of the mouth of one or the other – how the super-nice
 friend John or colleague Dick or boss Harry had turned against them when

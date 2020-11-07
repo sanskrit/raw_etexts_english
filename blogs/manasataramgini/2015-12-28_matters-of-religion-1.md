@@ -170,7 +170,7 @@ Turning to Lootika, Somakhya called upon her: “aindryā gārhapatyam
 upatiṣṭhasva |”  
 Lootika then clarified this point to Indrasena: “Note the use of the
 verb upa-sthā in the ātmanepada. This has been specified by the
-sūtra: upān mantra-karaṇe | of sage Pāṇini. When the when prefix upa
+sūtra: upān mantra-karaṇe | of sage Pāṇini. When the when prefix upa
 is used with verb sthā in the context of ritual to the deva-s then the
 verb takes the ātmanepada.
 

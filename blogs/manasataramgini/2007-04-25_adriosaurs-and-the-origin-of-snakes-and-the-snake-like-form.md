@@ -33,7 +33,7 @@ anatomy, Mahendra (who produced the first modern survey of Indian
 snakes), proposed the rival fossorial or burrowing origin of snakes. His
 works, however, were largely ignored and forgotten until the fossorial
 theory from extant snakes was revived by Bellairs and gang a decade or
-so later. It was in Bellairs’s stupendous classic on reptiles which I
+so later. It was in Bellairs’s stupendous classic on reptiles which I
 started reading when I was 8 or so that I encountered this fascinating
 evolutionary issue of snake origins. The story was so riveting that I
 just could not put the books down. I had obtained some skulls of lizards

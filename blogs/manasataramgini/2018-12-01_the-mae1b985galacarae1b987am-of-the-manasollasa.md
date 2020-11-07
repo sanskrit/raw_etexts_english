@@ -51,7 +51,7 @@ in the womb of Viṣṇu’s navel-lotus.
 
 taṃ namas kurmahe śakraṃ devānām api daivatam ।  
 yo locana-sahasreṇa viśvakāryāṇi paśyati ॥  
-I make my obeisance to him, Śakra who is the god of the very gods,  
+I make my obeisance to him, Śakra who is the god of the very gods,  
 who with his thousand eyes beholds all the happenings of the universe.
 
 yaḥ santataṃ tat tamaḥ paṭalaṃ vidīrya sāvitrikaṃ karaśatair vahati

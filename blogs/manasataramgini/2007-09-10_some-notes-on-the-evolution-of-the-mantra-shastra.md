@@ -135,7 +135,7 @@ like the mantra-rAja are clearly fairly ancient. We also observe such
 mantra-s in the pre-tantric circum-vedic texts like those of the
 [pAshupata-s](http://manollasa.blogspot.com/2006/05/shaivas-pashupata-s.html)
 (e.g. rudraM kruddhAshanimukhaM devAnAM IshvaraM paraM
-| shveta-pi\~NgalaM devesham prapadye sharaNAgataH ||). These features
+| shveta-pi\~NgalaM devesham prapadye sharaNAgataH ||). These features
 suggest that the evolution of the mantra shAstra passed through a phase
 where new R^ik like mantra-s, but mainly in the shloka meter were
 composed. This stage of shloka mantra-s might have also overlapped with
@@ -206,7 +206,7 @@ prominence in the AV tradition (see darbha sUktaM and are extremely
 prevalent in tantric mantras, especially the mAlA mantras. An ancient
 example of such a mantra, albeit in the form of R^ik is RV 10.87.23:  
 “viSheNa bha\~NgurAvataH prati Shma rakShaso daha |”  
-With poison turned against the vicious rakshas burn  away\!
+With poison turned against the vicious rakshas burn  away\!
 
 2\) onomatopoeic forms like hAhA hIhI and 3) the invocation of shaktis
 as seen in the AtmarakShA mantra of the uchChuShma kalpa and the AsurI

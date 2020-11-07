@@ -154,7 +154,7 @@ That by which Manu conquered \[his foe\] Viśiśipra \[and\] by which the
 merchant (Dīrghaśravas) \[via a\] winding \[path obtained\] the land
 with water.
 
-Here we see a concrete allusion to a military achievement of Manu,
+Here we see a concrete allusion to a military achievement of Manu,
 namely the conquest of Viśiśipra, which has otherwise been entirely
 forgotten in Hindu tradition. However, this puts him very much in line
 of the Hindu memory that he is our first king and the ancestor of all
@@ -243,10 +243,10 @@ king. He starts from the sea-shore and moves inwards on the way
 fathering three children on three women. The fact that he begins with
 the sea shore suggests that it was indeed recapitulating a legend
 similar to what Tacitus collected regarding the sons of Mannus. These
-three children in order were: 1) Thrall who was black in color and
-founded the race of the servants; 2) Karl who was red in color and
-founded the races of tradesmen of various types. 3) Jarl who was white
-in color and founded the races of warriors and masters of magical
+three children in order were: 1) Thrall who was black in color and
+founded the race of the servants; 2) Karl who was red in color and
+founded the races of tradesmen of various types. 3) Jarl who was white
+in color and founded the races of warriors and masters of magical
 incantations and secret knowledge. Thus, the three Germanic castes were,
 like the their ārya counterparts, literally part of a varṇa (color)
 system. This parallels the ārya traditions regarding Manu, preserved in
@@ -254,7 +254,7 @@ the Mahābhārata, where he is seen as the father of all the castes:
 manor vaṃśo mānavānāṃ tato ‘yaṃ prathito ‘bhavat |  
 brahma-kṣatrādayas tasmān manor jātās tu mānavāḥ || (Mbh 1.70.11
 “Critical”).  
-Manu’s lineage is that of the humans, from him (Manu) this \[lineage\]
+Manu’s lineage is that of the humans, from him (Manu) this \[lineage\]
 came to be expanded.  
 Brāhmaṇa-s, kṣatriya-s etc (i.e. the castes) those born of Manu are
 indeed the humans.
@@ -358,8 +358,8 @@ males and females patrol and aggressively defend their range against
 intrusions of members other groups. However, it does appear that the
 males are more likely to be at the territorial frontiers defending them
 than females. Again these males are aggressive to even females of other
-groups except when the latter are in estrus. The second study
-demonstrated that across 20 African sites estimates of relatedness among
+groups except when the latter are in estrus. The second study
+demonstrated that across 20 African sites estimates of relatedness among
 members of a chimp group suggest that in a given group the males are
 related on the order of half-siblings, and homozygosity at the assessed
 loci significantly departs from Hardy-Weinberg null model.
@@ -389,7 +389,7 @@ such studies on the chimp also points to some interesting details that
 might have relevance to Homo. The high-ranked chimp males and their
 female relatives strongly avoid inbreeding, which might suggest that
 even in Homo societies some high-ranked males might have sired
-offspring over a wider range of unrelated females than the average
+offspring over a wider range of unrelated females than the average
 males.
 
 Finally, we may go as far as to posit that these features of anthropoid
@@ -399,7 +399,7 @@ distribution. The wide variance might allow better social structuring,
 division of labor, and stability within a group to survive in
 competition with other such groups. Moreover, cooperation between males
 might have gone along with their relatedness which allows for included
-fitness which lies at the heart of kin-selection. Thus, we might have
+fitness which lies at the heart of kin-selection. Thus, we might have
 some convergence towards insect societies with similar social
 hierarchies, where there is a single or few dominant reproductive
 members. With the dawn of the metal age, technological developments and
@@ -409,7 +409,7 @@ group around high-ranked males to compete against other such groups.
 This taken together, with the above considerations, including the
 possibility of the high-ranked males deliberately avoid matings with
 close female relatives, might have yielded the super-males whose impact
-we see on the Y-chromosomal landscape. On the other side this might have
+we see on the Y-chromosomal landscape. On the other side this might have
 also been a factor in origin of our lores concerning the great father
 and the emergence of a varṇa system constituting a super-organismal
 puruṣa.

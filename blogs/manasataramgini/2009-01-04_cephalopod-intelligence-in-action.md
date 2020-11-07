@@ -35,7 +35,7 @@ birds rove in mixed species bird flocks in the Indian subcontinent. In
 observations carried out in Lanka it was noticed that in addition to
 their own alarm calls, they also frequently used the alarm and mobbing
 calls of other species as well as the calls of predators like Blue
-magpie, the Crested serpent eagle and even cats. Here it is believed
+magpie, the Crested serpent eagle and even cats. Here it is believed
 that the drongo amplifies the alarm effect in mixed species flocks or
 even threatens potential predators imitating calls of other predators.
 The drongo is also known to be more efficient in foraging food in

@@ -68,9 +68,9 @@ remains a matter of debate to date.
 India still has the elephant and has a deep and reasonable fossil record
 of megafauna, some of which were truly gigantic even relative to the
 modern Indian elephant: the extinct elephant *Palaeoloxodon
-namadicus* was probably one of largest land mammals ever, which might
+namadicus* was probably one of largest land mammals ever, which might
 have grown up to 5.2 meters in height, and mysteriously became extinct
-sometime after 24000 years before present when *Homo sapiens* was
+sometime after 24000 years before present when *Homo sapiens* was
 already in the subcontinent. Therefore, the presence of several such
 fruits primarily accessible to megafauna, like the elephants
 (hereinafter colloquially used for proboscideans), is no surprise given
@@ -90,20 +90,20 @@ The answer to this is tied to remarkable history of the mammalian
 megafauna of the Americas. We shall talk briefly about two distinct
 lineages of those here. The elephants as afrotherians had their
 provenance in the African landmass with some of the earliest members of
-the clade, like *Moeritherium* being found in North Africa. There they
+the clade, like *Moeritherium* being found in North Africa. There they
 eventually radiated into at least 5 great lineages: the Deinotheriids,
 Mammutids (mastodonts), Gomphotheriids, Stegodontids and Elephantids.
 Between 18-22 million years ago multiple members of each lineage left
 Africa and invaded Eurasia to colonize it in a big way. By around 16.5
-Mya the Mammutid *Zygolophodon* invaded the North American continent via
+Mya the Mammutid *Zygolophodon* invaded the North American continent via
 the Bering strait. It was followed shortly thereafter by
-*Gomphotherium* which was in North America by 15 Mya. They were
+*Gomphotherium* which was in North America by 15 Mya. They were
 followed by likely multiple invasions of Stegodonts, with
-*Platybelodon* reaching the New World around 13 Mya and *Amebelodon* by
+*Platybelodon* reaching the New World around 13 Mya and *Amebelodon* by
 around 10 Mya. The Elephantids were the last lineage to invade the New
-World with the mammoth — an initial species *Mammuthus columbi* emerged
+World with the mammoth — an initial species *Mammuthus columbi* emerged
 in NA after 2.6 Mya and then within the last million years *Mammuthus
-primigenius *followed. In the late Pleistocene, between 120000-13000 ya,
+primigenius *followed. In the late Pleistocene, between 120000-13000 ya,
 there were representatives of three major elephant lineages in NA
 including, multiple mammoths of the Elephantid lineage, Mammut of the
 Mammutid lineage and several gomphotheriids.
@@ -116,10 +116,10 @@ American continent to the isolated South. This sparked the great
 American biotic interchange, the main phase of which was between 2.7-1.8
 Mya. During this period in the region corresponding to today’s Florida
 to Honduras there were members of all three lineages, namely the
-Mammutid *Mammut*, the Gomphotheriids *Cuvieronius* and *Stegomastodon*,
+Mammutid *Mammut*, the Gomphotheriids *Cuvieronius* and *Stegomastodon*,
 and the Elephantid *Mammuthus*. A little after 2 million years a
 Gomphotheriid derived from the North American representative
-*Rhynchotherium* entered South America. It subsequently spread
+*Rhynchotherium* entered South America. It subsequently spread
 throughout South America and spawned 3 species, namely *Cuvieronius
 hyodon*, *Notiomastodon platensis*, and *Haplomastodon waringi*. Thus,
 until not very long ago there was an extensive elephant fauna across
@@ -199,11 +199,11 @@ first reached India he was probably not capable of completely wiping off
 all elephants. But probably sometime around 50 Kya the sapiens species
 of *Homo* was able develop hunting methods that allowed targeting of
 accessible elephant species. This was evidently the cause for the end of
-*Palaeoloxodon namadicus *by 24 Kya in India. Likewise, in the Americas
+*Palaeoloxodon namadicus *by 24 Kya in India. Likewise, in the Americas
 the spread of the Clovis hunters and their successors probably was the
 key point in delivering the final blow to the elephants of the New
 World. This has gone on to our times as newer weaponry comes into being
-and newer races of *H.sapiens *reach places where they were previously
+and newer races of *H.sapiens *reach places where they were previously
 absent. This is what marked the demise of the cheetah and the near end
 of the lion in Asia and the various faunae of Australia and New Zealand.
 Now that *Homo’s* gun-hand can penetrate the forest with ease, the
@@ -235,7 +235,7 @@ Today we have only two genera of sloths, the two-fingered sloths
 forest mammals living in regions not easily accessible to humans. They
 are a pale reminder of the once glorious radiation of the sloth clade of
 xenarthrans that spanned a great diversity of behaviors and sizes. We
-had the giant ground sloths like *Megatherium* that grew up to 6 meters
+had the giant ground sloths like *Megatherium* that grew up to 6 meters
 in length. We had marine Megatheriid sloths like *Thalassocnus*, which
 progressively acquired aquatic adaptations and grew up to 3.3 meters in
 length. Then there were ground sloths which modified the very landscape
@@ -243,10 +243,10 @@ of parts of Brazil and Argentina, where they dug up numerous burrows in
 hard substrates ranging in diameter from 1.5 to 4 meters. While the
 species which created them are not known, based on their size they could
 have been the work of sloths like *Glossotherium*, *Scelidotherium*,
-*Ocnotherium* or *Lestodon*. Further, they successfully survived the
+*Ocnotherium* or *Lestodon*. Further, they successfully survived the
 arrival of competing Northern herbivores, like the elephants, and new
 predators, like the cats and the bears, during the faunal interchange.
-Notably, some giant sloths like *Eremotherium* often co-occur with
+Notably, some giant sloths like *Eremotherium* often co-occur with
 elephants after their arrival in South America suggesting that they had
 partitioned into different niches in the same habitat, thereby
 recreating a setting like the African bush.
@@ -258,8 +258,8 @@ The relationships of these sloths were enigmatic until recently, but as
 their demise was not so long ago it has been possible to use ancient DNA
 and paleo-proteomic approaches to address the problem. Recently
 published studies suggest an interesting evolutionary scenario for the
-sloths, wherein the Caribbean sloths *Acratocnus ye* and *Parocnus
-serus* form the basal-most lineage. The next to branch off was the clade
+sloths, wherein the Caribbean sloths *Acratocnus ye* and *Parocnus
+serus* form the basal-most lineage. The next to branch off was the clade
 uniting the Mylodontids and the 2-fingered sloths. The third clade
 includes all the Megatherioids and the 3-fingered sloths. Within it the
 South American Megatheriids are the basal-most lineage. The North
@@ -282,7 +282,7 @@ continental Americas. Subsequently, around 4400 YBP they vanished
 entirely in the West Indies. This pattern is telling as it parallels the
 fate of the last of the extinct Elephantids on isolated islands, where
 they vanished much after the mainland and typically only after humans
-arrived. Like elephants, sloths such as *Megatherium americanum* too
+arrived. Like elephants, sloths such as *Megatherium americanum* too
 have been found in butchery sites of *Homo* in the Americas from around
 12600 YBP. There have been major climatic changes and concomitant
 shrinkage of ranges, loss of habitats and background extinctions going

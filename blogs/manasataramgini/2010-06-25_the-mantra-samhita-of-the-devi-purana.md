@@ -151,7 +151,7 @@ After providing the core mantra-s for the sthAlIpAka oblations the
 section has an appendix imitating brAhmaNa-like prose which makes this
 tradition distinct:  
 evaM vediko.agniH saMtuShTho bhavati | athAtaH paristaraNa devatAH
-kathyante | parisamUhane kAshyapaH | upalepane vishve-devAH | ullekhane
+kathyante | parisamUhane kAshyapaH | upalepane vishve-devAH | ullekhane
 mitra-varuNau | ullikhane pR^ithvI | ambukShaNe gandharvAH | agniH
 sAdane sharvaH | parisamUhy opalikhy ollikhana karma vidhir uchyate |
 dakShiNAsAdane brahmA | uttarataH pUraNe sAgarAH | AstaraNe trasAH |

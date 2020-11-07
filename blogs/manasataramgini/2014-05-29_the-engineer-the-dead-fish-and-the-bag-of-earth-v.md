@@ -118,7 +118,7 @@ sufficient information for me to get alert.” Somakhya: “Truth to be told
 the vetAla alone was not enough; my friend Indrasena gave a vital clue
 to put things together.”
 
-As Lootika and Varoli prepared to leave to pick up Temülen from her
+As Lootika and Varoli prepared to leave to pick up Temülen from her
 class, the former remarked in a heavy voice: “I am really scared for my
 dear sister Vrishchika. She is in close contact with this dangerous
 stuff and what we see is really depressing. I wish she could opt out of
@@ -251,7 +251,7 @@ difficulties Varoli faced with making the libraries for the metagenomic
 analysis of the mud and how finally she had to intercede and get it
 done. Then Somakhya detailed to her a construct of a similar virus with
 a secret toxin known only to him: “If we make this perhaps we might have
-a counter-weapon, which could be used as a deterrent or a retaliatory
+a counter-weapon, which could be used as a deterrent or a retaliatory
 astra. After all, not for nothing our ancestors praised that which is
 called pratIchInaM\!” Lootika decided to get Temülen to test that toxin
 and get the said virus constructed. Then they parted ways and went to
@@ -299,7 +299,7 @@ proteins for the respective toxins. Give these to Temülen and have her
 test the same against their toxins. Once confirmed, you all should make
 viruses exactly like those of Dick Shuman but now having the immunity
 protein genes in place of those of the toxins. Let Vrishchika then put
-them on trial as an experimental treatment for those infected.”
+them on trial as an experimental treatment for those infected.”
 
 Of course things are easier said than done. The pressure was mounting on
 all fronts with kAla turning on even as the writhing of the serpent
@@ -334,7 +334,7 @@ the apicomplexan parasite *Lankesterella minima*. They saw a curious
 item: “*The scientist Dick Shuman and Saudi Arabian epidemiologist Faqih
 ibn al-Ass were taken into custody as part of an investigation relating
 to the outbreak of a deadly viral disease among marines and civilians at
-Fort Redstone. Possible involvement of a bio-warfare agent is being
+Fort Redstone. Possible involvement of a bio-warfare agent is being
 suspected.*” Soon thereafter Somakhya and Lootika were receiving frantic
 messages from the mlechCha-s asking them to help out with this
 situation. They responded to the mlechCha-s that they would certainly

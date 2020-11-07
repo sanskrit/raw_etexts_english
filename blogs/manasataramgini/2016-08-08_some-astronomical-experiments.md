@@ -224,13 +224,13 @@ as a positively correlated function of diameter is shown below.
 ![variables\_HR\_M](https://manasataramgini.files.wordpress.com/2016/08/variables_hr_m.png?w=640&h=580)
 
 One thing that becomes rather apparent from this plot is the
-proclivity for giants as opposed to lower main-sequence stars to be
+proclivity for giants as opposed to lower main-sequence stars to be
 variable. In particular, the red giants and supergiants are particularly
 enriched in intrinsic variables, as is well-known to anyone with an
 elementary knowledge of astronomy. Among the red giants/supergiants we
 have several different types of variables: 1) Mira-type long period
 variables, which are the so-called asymptotic branch giants, the stars
-that have left the main sequence and bloated up to become red giants in
+that have left the main sequence and bloated up to become red giants in
 the later period of their lives; 2) the semi-regular variables like
 Betelgeuse with low amplitude pulsations; 3) irregular variables like
 Aldebaran.

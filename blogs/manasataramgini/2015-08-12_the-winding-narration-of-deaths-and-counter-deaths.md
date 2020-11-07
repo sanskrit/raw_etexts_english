@@ -218,7 +218,7 @@ sarpabandha after Shilpika’s husband showed us the sarpabandha-s of
 Paramāra kings along with a little play on homonymy to confound the
 other students.”  
 Lootika: “Yes, being too sleepy I only vaguely remember that you
-suddenly woke up.”
+suddenly woke up.”
 
 Just then Lootika got a call from Somakhya’s mother: “Where are you all?
 Hurry home right away. Apparently Rahul and Robert had struck again near
@@ -332,7 +332,7 @@ discovery on which we peg much of what we do even today.”
 
 Vrishchika: “Lootika, in the same vein I am sure you also remember the
 studies which have shown that rats dream of futures movements in locales
-that they have not been able to actually explore. That is in a sense a
+that they have not been able to actually explore. That is in a sense a
 prognostic pre-view in a dream. So when we put all those things together
 we can arrive at something close to being a real prognosis.”
 
@@ -344,19 +344,19 @@ on the middle of the SCB road but was rather clubbed to death at the
 Manorañjanodyānam near Vidrum’s house.”
 
 Lootika: “Why do you say so?”  
-Somakhya: “Well, all I will say for now is that if it proves to be right
+Somakhya: “Well, all I will say for now is that if it proves to be right
 then Varoli’s dream was genuinely prognostic.”
 
 ◊◊◊◊
 
-Lootika’s mother came back a couple of days later after having helped
+Lootika’s mother came back a couple of days later after having helped
 her relative who had survived but for the loss of a couple of toes. She
 headed straight to collect her daughters from Somakhya’s home and
 returned home. With Rahul and Robert claiming further victims, Lootika
 and Somakhya never got to meet again that vacation except for the day
 when their families had assembled together at the hilltop shrine of the
 god Kumāra for a major triannual festival. But they did not get to talk
-much that day as they were totally taken in by the bustle of the ritual.
+much that day as they were totally taken in by the bustle of the ritual.
 However, Somakhya managed get the large euglenozoan growing but to his
 disappointment he could not get it over to Lootika to do her molecular
 biological wizardry for them to proceed ahead. As he was ruing this on
@@ -404,7 +404,7 @@ Vrishchika: “I am sure you have seen the news that the church of the
 baptists is working hard to get Robert’s sentence commuted right
 away.”  
 Gardabh: “Now why are you bringing religion into all this. That is why
-we could be caught in riots tomorrow.”  
+we could be caught in riots tomorrow.”  
 Lootika: “Hey Gardabh – you are the guy who procured me the knife that I
 am still carrying with me. Now why are you getting worried about
 riots.”  
@@ -455,7 +455,7 @@ closure. I doubt you have seen the details that came out during these
 cases. Apparently Meghana was waiting for none other Sher Khan’s junior
 partner Awrangzeb Khan at the sitting area in the Manorañjanodyānam.
 That was when R\&R clobbered her and then threw her corpse out of their
-van on the middle of the SCB road. R\&R’s skirmish with the marūnmatta-s
+van on the middle of the SCB road. R\&R’s skirmish with the marūnmatta-s
 was apparently precipitated by this.”
 
 Lootika: “Vrishchika, did you hear that\! Let’s be going.”  

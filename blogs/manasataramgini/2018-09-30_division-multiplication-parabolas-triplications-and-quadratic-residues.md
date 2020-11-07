@@ -12,7 +12,7 @@ known before, others are to our knowledge unreported. We present our
 investigations in this regard below.
 
 **The division-multiplication parabola sequence and
-other associated sequences**
+other associated sequences**
 
 Consider the following sequence
 ![f](https://s0.wp.com/latex.php?latex=f&bg=ffffff&fg=333333&s=0 "f"):

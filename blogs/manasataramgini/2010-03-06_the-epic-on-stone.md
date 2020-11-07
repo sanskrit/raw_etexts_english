@@ -48,18 +48,18 @@ lost. These Kha’Khans without valor or wisdom sat on the exalted thrones
 of the Turks and thus brought the dissolution of our empire.”
 
 Intercine conflict amidst the descendents of the great Kha’Khans placed
-them in a precarious position. The 4 cities with Indic civilization of
+them in a precarious position. The 4 cities with Indic civilization of
 Central Asia of Agni, Kucha, Khotan and Khasgar, who were their main
 partners, were also weakened by the Chinese forward action under the
 imperialist emperor Tai-Zong (Hsuan Tsang, the so called Chinese pilgrim
 to India, was actually one of his spies in the forward action to invade
-India). In 630 Tai-Zong destroyed the Eastern half of the Blue Turk
-empire. In 648 Tai-Zong and his renegade Turko-Mongol ally Arshina
+India). In 630 Tai-Zong destroyed the Eastern half of the Blue Turk
+empire. In 648 Tai-Zong and his renegade Turko-Mongol ally Arshina
 Shoeuel destroyed the 4 oasis cities in central Asia and smashed the
 remnants of the Blue Turk armies that came to their assistance. Shortly
 after that Tai-Zong’s hordes poured into Nepal, Bhutan and Bengal and
 destroyed the Indian kingdom of Tirabhukti. As the Chinese conquest of
-Asia suddenly seemed a reality, Tai-Zong died in 650 poisoned by a
+Asia suddenly seemed a reality, Tai-Zong died in 650 poisoned by a
 brAhmaNa chemist, placing his son Kao-Tsung on the throne. Kao continued
 the campaigns vigorously and in 659 destroyed the Western half of the
 Blue Turk empire and returned to Peking thinking that he was the master
@@ -253,7 +253,7 @@ nomads in the forest of the Oetuekaen, where there neither riches nor
 cares, you will preserve an ever-lasting empire O \[Altaic\] peoples\!
 All that I have to tell you I have written on enduring rock.”
 
-In 718 the Chinese got a new Emperor, Xuan-zong who had imperialist
+In 718 the Chinese got a new Emperor, Xuan-zong who had imperialist
 designs decided to incite the Basmil Turks who had settled in China to
 invade the Blue Turks. Bilge Kha’Khan marched on them and beat them at
 Kucheng and went on to ravage the Chinese territory up to Liangchow till
@@ -293,9 +293,9 @@ Kha’Khan
 
 However, legacy of the Blue Turks was lasting one- it gave the Turks the
 the concept of a nation, ethnic identity and made them into a
-civilizational influence. This  was also influenced the Mongols who had
+civilizational influence. This  was also influenced the Mongols who had
 made similar earlier attempts at nationhoods in founding the two great
-Hunnic Khanates \[commonly termed the Xiongnu and Rouran or Juan-Juan
+Hunnic Khanates \[commonly termed the Xiongnu and Rouran or Juan-Juan
 Khanates\]. However, the Blue Turks were the first time that an
 incipient civilizational identity was given to the Turks. Their rise for
 the Turks was as momentous as the rise of the Bharatas amidst the
@@ -308,7 +308,7 @@ their epic in stone, and their administrative inventions including
 writing to the Uighurs, who later passed it to the Mongols who were
 revived by Chingiz. However, it had not sunk deep enough for the
 transformation of the entire Altaic people. Here lie the roots of modern
-Turkey and the Central Asian Stans’  identity crisis  which was hijacked
+Turkey and the Central Asian Stans’  identity crisis  which was hijacked
 by the desert delusion in the centuries to come. Modern Mongolia’s lack
 of impact in the world and the rise of the chIna-s also ultimately trace
 their roots to these little known events of history.

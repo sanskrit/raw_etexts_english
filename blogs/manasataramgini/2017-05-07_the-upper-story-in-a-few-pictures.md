@@ -20,7 +20,7 @@ As primates we pride ourselves over our brains and those of our lineage
 in general. By all measures even among the highly encephalized placental
 mammals primates are unusual barring the case of the cetacean lineage of
 artiodactyls. Below we examine the cranial capacity, a proxy for brain
-size, of 35 primates which are divided into 9 grades:  
+size, of 35 primates which are divided into 9 grades:  
 1\) [Lemur-like grade strepsirrhine and possibly basal haplorrhine
 primates](https://manasataramgini.wordpress.com/2009/09/03/primate-evolution-roundup/):
 *Smilodectes gracilis, Adapis parisiensis, Rooneyia viejaensis,
@@ -126,7 +126,7 @@ throughout the 60 kyr period from 100-40 kyrs we see a consistent
 presence of males with c.c \>1500 cc across the geographic distribution
 of Neanderthals: the largest is the impressive 1740 cc Amud 1 cranium
 from Israel. To the right of the plot we see the range of the modern
-human c.c. (M.H) and we can see that the Neanderthals had a tendency for
+human c.c. (M.H) and we can see that the Neanderthals had a tendency for
 larger c.c than us. Equally striking is the illustration of the range of
 the archaic specimens of *Homo sapiens* shown the right (Ar.H). This is
 drawn from specimens ranging from the Idaltu cranium from 160,000 yrs

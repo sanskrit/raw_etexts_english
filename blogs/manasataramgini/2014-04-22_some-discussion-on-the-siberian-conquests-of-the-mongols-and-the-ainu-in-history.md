@@ -211,7 +211,7 @@ Eurasia and the Americas. Several years ago when the Kennewick man
 excitement was ranging in North America there was proposal that he was
 related to the Ainu. This seemed a bit strange even if plausible at that
 point. The Ainu possess the peculiar Y-chromosome haplogroup D, which is
-otherwise found prominently in Ryukyuans, Tibetans, and some Andaman
+otherwise found prominently in Ryukyuans, Tibetans, and some Andaman
 tribesmen, and at low levels in Adi and Apatani tribesmen of
 northeastern India and some tribes of Philippines. This haplogroup is
 however not found in the Americas. The distribution of haplogroup D in
@@ -225,7 +225,7 @@ the remaining Ainu Y-chromosomes are marked by fairly high frequencies
 of the haplogroup C. In particular Ainu share the modal Mongol Y
 chromosome haplogroup C-M217 (the haplogroup of Chingiz Khan), that is
 also found in the Nivkh, Manchu and other Siberian Tungusic peoples.
-The latter also show the prominent presence of C-M77 and C-P53.1
+The latter also show the prominent presence of C-M77 and C-P53.1
 subclades among them that they share with Uighurs. The haplogroup C is
 additionally found in several tribes of native Americans (the C-P39
 subclade). The Ainu also share mitochondrial haplogroups with the

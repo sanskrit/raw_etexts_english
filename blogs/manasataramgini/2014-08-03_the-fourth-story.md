@@ -133,7 +133,7 @@ Meghana: “So what is wrong? See they are using our architecture and even
 Sanskrit\!”  
 V: “Nonsense\! This is a ploy to entice and entrap foolish Hindus.”  
 M: “Don’t get worked up. I am sure all those extremist websites Somakhya
-and Sharvamanyu keep feeding you with are having their effects. Come on,
+and Sharvamanyu keep feeding you with are having their effects. Come on,
 they were being so conscious of adopting Indian traditions and you are
 seeing just the opposite. Are they not being so respectful…”
 
@@ -246,7 +246,7 @@ heated Mr. al Kabir and his men are supposed to have attacked S108VKBji
 and his followers and committed arson on his Ashram. The nayA-al-Kaʿbah
 structure was apparently completely demolished by the black t-shirt
 activists. In the clash that ensued S108VKBji was beheaded and his
-headless corpse was hoisted on to a lamp post outside the Ashram. In the
+headless corpse was hoisted on to a lamp post outside the Ashram. In the
 assault and stampede that followed 55 people are supposed to have been
 killed….
 

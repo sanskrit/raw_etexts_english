@@ -110,7 +110,7 @@ needing our attention, they would have told us of it.”
 ◊◊◊◊◊◊◊
 
 In the meantime Vrishchika picked up her kid and went to see Lootika at
-home. Settling down on the chair in Lootika’s kitchen she said: “agrajā,
+home. Settling down on the chair in Lootika’s kitchen she said: “agrajā,
 I heard the details of the tragic case of Prof. Suryaprakash from
 Vidrum. He seems to have contracted a disease with several
 manifestations suggestive of Creutzfeldt–Jakob disease. However, they
@@ -204,8 +204,8 @@ such a such a bug with different specifications. We will know if that
 was really done.”  
 Vrishchika: “But let us make sure this evening that there has been no
 tampering of your biological storage. I just needed to tell you this for
-I think there is more to it than we know right now. Let me now go back
-home – I need to get something ready for dinner.”
+I think there is more to it than we know right now. Let me now go back
+home – I need to get something ready for dinner.”
 
 ◊◊◊◊◊◊◊
 
@@ -261,10 +261,10 @@ just visited your school recently in this regard.”
 
 As the talk concluded Vrishchika was tempted to ask Gupta about those
 figures but it suddenly hit her then that she was staring at something
-which might be linked to the other matter that had startled her some
+which might be linked to the other matter that had startled her some
 days back. Hence, she kept quiet. A throng of students surrounded Dr. BK
-Gupta, each vying for his attention, and some seeing him as a possible
-conduit to make it to the lab of the great Prof. Junkberg. Just then
+Gupta, each vying for his attention, and some seeing him as a possible
+conduit to make it to the lab of the great Prof. Junkberg. Just then
 Vrishchika’s student came up to her and asked her if it might be worth
 exploring such pleotropic miRNAs. Vrishchika: “Look more closely at his
 work and the data there might be something more than what it seems.” The
@@ -273,7 +273,7 @@ formed around him saying that he needed to go to his next meeting with
 faculty. As they were walking him to his next appointment, the chairman
 separated from the rest of the crowd a bit and turning to Vrishchika
 said: “Did you like the talk?”  
-Vrishchika: “The talk had several notable points and we may discuss it
+Vrishchika: “The talk had several notable points and we may discuss it
 at length when time permits.”
 
 Realizing that she might not want to talk about it with Dr. Gupta within
@@ -289,7 +289,7 @@ on metal: “You see she is a high caste brahmin; they don’t wine and dine
 with us groundlings.”
 
 One part of Vrishchika wanted her to lash out in response to all this,
-but realizing that sometimes it is a good thing to keep the sting
+but realizing that sometimes it is a good thing to keep the sting
 hidden, she stated with a coy smile: “I have a little kid who needs some
 attention, else I would have been there with you all.” Most of her
 colleagues murmured sympathetically and proceeded their way. Vrishchika
@@ -313,7 +313,7 @@ monocyte culture and had sent its genome for sequencing. The sequence
 was to be ready for them to examine that evening.
 
 As they looked at the genome browser in Vrishchika’s lab it became clear
-that the *S.neurona* had the engineered *Mucor* chitinase inhibitor gene
+that the *S.neurona* had the engineered *Mucor* chitinase inhibitor gene
 fused to the 3′ end of the secreted apicomplexan HAD phosphatase gene.
 Then there were three ZU5-DLD genes with a signal peptide region derived
 from the secreted kinase engineered into the genome. They were all the
@@ -350,7 +350,7 @@ should be cautious at this stage and I believe we are best suited to
 investigate this further ourselves. It is our hunch that he has done it
 but how did Suryaprakash receive this bug. I wonder if he had visited
 McKnight or McKnight had come here. Can we find out? If the former
-was the case, he could always say Suryaprakash accidentally caught the
+was the case, he could always say Suryaprakash accidentally caught the
 infection while visiting the McKnight lab – after all they were
 collaborating. Moreover, in principle someone else could have also
 engineered something like this.”  
@@ -515,7 +515,7 @@ would forget all of that by the time the course ended: so what was
 important was the thought process and not the names of those proteins.
 Then he would reveal his much vaunted critical thinking, which was so
 thoroughly disconnected from the foundations of biology that it did not
-matter if a homeodomain protein HoxD10 that bound DNA  was replaced with
+matter if a homeodomain protein HoxD10 that bound DNA  was replaced with
 a cytoskeleton-regulating GTPase RhoC. From this forge of Junkberg
 emerged many a man – BK Gupta, Sonenberg, Schimmeler, Yi Chang and
 perhaps others, each forging his own way as per the data-free critical
@@ -535,7 +535,7 @@ Vrishchika: “OK”
 Vidrum: “I always knew your sister and you had a competitive streak
 right from our school days but you need not have acted in this mean
 fashion. It is said women always like to sting men even while they are
-professing friendship but till now I thought you were a mature person
+professing friendship but till now I thought you were a mature person
 and above such things. But then I should have known better; after all,
 true to your names, your sister and you used to leave your peers in
 school stinging from a sense of inferiority. You always had the answers
@@ -549,7 +549,7 @@ anyway not understand it. Why carry all that into adulthood? You are
 well-settled and a mother now – then why be venomous to others in need?”
 
 Vrishchika was appalled by Vidrum’s outburst but retaining her calm and
-pointing him to a chair in her office said: “Boy O boy\! Why are you so
+pointing him to a chair in her office said: “Boy O boy\! Why are you so
 angry? Please take a seat and explain matters more clearly – I sincerely
 don’t get what I might have done wrong.”
 
@@ -582,7 +582,7 @@ of all you have said today. I don’t want to say anything more right
 now.”
 
 Junkberg, true to his word, had placed BK Gupta as a professor at the
-famous medical center at mlecchānām Hastināpura. Hence, Gupta did not
+famous medical center at mlecchānām Hastināpura. Hence, Gupta did not
 care to check if he got the job at Vidrum’s medical school or not. He
 was now acknowledged as a rising star in a brisk gladiatorial
 competition with Sonenberg who had also obtained his own faculty
@@ -616,9 +616,9 @@ co-authored by Dr. Gupta. The inquiry found clear evidence that he had
 misused grants and submitted manipulated data for his grant applications
 to the federal government. His mentor the renowned Prof. Junkberg and
 former collaborator Prof. McKnight agreed with the findings of the
-inquiry committee. They said that he was solely responsible for
-the actions that brought disrepute to the field and were taking
-appropriate steps to remedy the damage they had caused. Action is also
+inquiry committee. They said that he was solely responsible for
+the actions that brought disrepute to the field and were taking
+appropriate steps to remedy the damage they had caused. Action is also
 being initiated to revoke his medical license. Senator Jefferson is
 calling for stricter action in the case which if effected would result
 in jail time for Dr. Gupta.”*
@@ -632,10 +632,10 @@ and they had suddenly reappeared in his drawer the next day. On both
 days they had looked at them together. He had then wondered how that
 could have happened but had brushed it aside since he got them back
 intact, or so he thought. But could something have been tampered then?
-Thinking thus, Vidrum rushed to pull out his notes written by hand at
+Thinking thus, Vidrum rushed to pull out his notes written by hand at
 the patients’ bedside. To his horror he found the the patient numbers
 had been completely interchanged with respect to his notes. The results
-they had published were likely untrue. Holding his head in despair
+they had published were likely untrue. Holding his head in despair
 Vidrum slumped on his desk.
 
 ◊◊◊◊◊◊◊

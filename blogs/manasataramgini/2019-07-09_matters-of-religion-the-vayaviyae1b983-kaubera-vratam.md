@@ -611,11 +611,11 @@ adbhayas tirodhā’jāyata | tava vaiśravaṇas sadā | tirodhehi sapatnān na
 sahasra-vandhuram | puruś-cakram̐ sahasrāśvam | āsthāyāyāhi no balim |
 yasmai bhūtāni balim āvahanti | dhanañ-gāvo-hasti-hiraṇyam-aśvān | asāma
 sumatau yajniyasya | śriyam bibhrato ‘nnamukhīṃ virājam | sudarśane ca
-krauñce ca | maināge ca mahāgirau | śata-dvāṭṭāragamantā | sam̐hāryan
+krauñce ca | maināge ca mahāgirau | śata-dvāṭṭāragamantā | sam̐hāryan
 nagaraṃ tava | iti mantrāḥ | kalpo’ta ūrdhvam | yadi balim̐ haret |
-hiraṇyanābhaye vitudaye kauberāyāyam baliḥ | sarvabhūtadhipataye nama
+hiraṇyanābhaye vitudaye kauberāyāyam baliḥ | sarvabhūtadhipataye nama
 iti | atha balim̐ hṛtvopatiṣṭheta | kṣatraṃ kṣatraṃ vaiśravaṇaḥ |
-brāhmaṇā vayam̐ smaḥ | namaste astu mā mā him̐sīḥ ||
+brāhmaṇā vayam̐ smaḥ | namaste astu mā mā him̐sīḥ ||
 
 After that he makes bali offerings to the rakṣa-s, yakṣa-s and yakṣī-s
 in the entourage of Kubera with:  

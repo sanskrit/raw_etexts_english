@@ -24,7 +24,7 @@ announcing its presence and like a practitioner of the Caṇḍamāhāroṣaṇa
 tantra remained focused on his actions unshaken by the viṇmūtrādi. He
 was fingering his tablet, alternatively glancing at the photos he had
 taken from his latest rock-climbing forays or at the news panel. From
-time to time he looked out at the footpath leading to the restaurant
+time to time he looked out at the footpath leading to the restaurant
 anxiously sifting through the maze of faces looking for a particular
 one. As he flipped through the screen of his tablet various news items
 flashed on it. There was one saying that the Kangress-M had won the
@@ -63,7 +63,7 @@ rest.
 
 At Somakhya ’s house just before getting started on the arcana of
 alkenes formed in elimination reactions, Vidrum asked him what the score
-in the IPL match was. Not surprisingly, Somakhya  responded: “Forget
+in the IPL match was. Not surprisingly, Somakhya  responded: “Forget
 IPL, have you not seen the news of the new government with Kangress-M
 and Kangress-C in the coalition.” Vidrum: “arre politics ko coḍo yār।
 krikeṭ me kyā ho rahā hai?” Somakhya : “Forget the cricket, just

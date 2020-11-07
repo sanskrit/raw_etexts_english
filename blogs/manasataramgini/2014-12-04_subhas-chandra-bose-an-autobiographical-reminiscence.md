@@ -92,7 +92,7 @@ of the faux mahātman, the cācājī and their cohorts. In the last year of
 school and the last year of formal history, SCB was reduced to no more
 than three to four sentences, while Herr Hitler, comrade Stalin and the
 evil butcher Churchill got to fill up a whole chapter. In the
-final tally Indira Gandhi probably had more more space than Mr. Bose.
+final tally Indira Gandhi probably had more more space than Mr. Bose.
 In contrast, almost every year our Hindi textbook had a chapter on Bose
 (though none on Gandhi or Nehru), which was nothing short of laudatory
 and presented him as great hero. Similarly, we noticed that whereas the
@@ -329,7 +329,7 @@ Moslems but make major concessions for them. This was indeed done in the
 political career of CRD providing fertilizer for the seeds of Moslem
 belligerence in the modern vaṅga country, which today threatens to
 culminate in a second partition under the auspices of TMC politicians
-including Bose’s clansmen. SCB sincerely felt that India can only
+including Bose’s clansmen. SCB sincerely felt that India can only
 survive as a Hindu-Moslem joint venture: “*India has first to save
 herself and she can save herself only if the Hindus and Muslims put
 forward a joint demand for a provisional national government to whom all

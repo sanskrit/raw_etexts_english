@@ -214,7 +214,7 @@ drawing elements from various leftist-liberalist propaganda organs in
 mleccha-land. By inserting themselves into the Indian media space they
 have been churning out non-stop demonization and victimhood narratives
 in the usual style of the mleccha – something which is sadly taken as
-serious news by many a lay Hindu who is not very sharp at seeing through
+serious news by many a lay Hindu who is not very sharp at seeing through
 the mleccha propaganda..
 
 • Subnational identity: A large number of Hindus are more invested in
@@ -245,7 +245,7 @@ politically involved Hindus who leap to abuse him at the drop of a hat.
 They blame him for everything: temples being demolished in various
 states, the kidnapping of Hindu women by marūnmatta-s, Hindu-s being
 killed anywhere in India, Mohammedan belligerence in the subcontinent,
-failure of crops, his foreign trips and many other things. It would seem
+failure of crops, his foreign trips and many other things. It would seem
 that these Hindus more than anyone else expect him to actually be not
 just an incarnate deity but an Abrahmistic deity who is beyond the ṛta
 comprised of satya-dharma. In our opinion the lāṭendra is not Śivājī or
@@ -327,7 +327,7 @@ discussed in public.
 
 • Alternative parties: While there is a major body of Hindus who like to
 whine no stop about BJP non-performance, they simply have nothing
-constructive to propose as an alternative . Whether, one likes it or not
+constructive to propose as an alternative . Whether, one likes it or not
 the BJP is the only party with a modicum of Hindu leaning in a secular
 polity. Keeping in mind the long-term nature of the struggle a key issue
 for Hindus is to develop alternative parties that will have the survival
@@ -349,12 +349,12 @@ political network can evolve.
 
 ::::::::::::::::::::::  
 Finally, we have to look at the global scenario where it is hard to make
-predictions for the long term. For this reason, and also because we have
-insufficient data and inappropriate analytical devices  what we say here
+predictions for the long term. For this reason, and also because we have
+insufficient data and inappropriate analytical devices  what we say here
 could easily turn out to be wrong. Like Triśiras Tvāṣṭra we have three
 major enemies, though there are other minor ones:  
 1\) mleccha-s: these are by far the most powerful and way ahead of us in
-power. The last great war we fought against them was in 1857 CE where
+power. The last great war we fought against them was in 1857 CE where
 they crushed us in part using our own human resources. Today, while they
 are not physically within the main body of Hindudom, they have numerous
 assets even as then and could coordinate with our other two enemies to
@@ -389,7 +389,7 @@ which they can deal individually. They would like to ensure that some of
 these states will be preta or preta-run secular, which will do their
 bidding in various Asian conflicts especially with marūnmatta-s and
 cīna-s. They can play the glacial strategy aided by structural
-weakening by helping other enemies of Hindus.  
+weakening by helping other enemies of Hindus.  
 2\) the marūnmatta would seek to reestablish Islamic rule over al Hind
 either in the form in very general terms resembling the Delhi Sultanate,
 the Mogol empire of Awrangzeb or as part of the Khilafat. There would be

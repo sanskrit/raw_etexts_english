@@ -5,7 +5,7 @@ title = "The autumn days"
 Vidrum had just finished up with his last patient for the day. Before
 heading out to his office one of his assistants offered him a rich
 halvā. He curtailed his temptation reminding himself how bad it could
-be for one’s health. Hence, with great determination he helped himself
+be for one’s health. Hence, with great determination he helped himself
 to a small piece and warned his assistant of the dangers of such foods.
 After completing some analysis of the cases in his office he had decided
 attend a T20 match that was supposed to take place in his city that
@@ -157,7 +157,7 @@ Jhilleeka: “It seems you guys had some great adventures there. I need to
 hear all of it.”  
 Mitrayu: “Well, why don’t you and everyone else have lunch first then we
 could yarn to our heart’s content about the adventures. But frankly
-while one feels like a hero when one is back from Citragupta’s clutches,
+while one feels like a hero when one is back from Citragupta’s clutches,
 I am sure it will give us dreams that will wake us up for a while to
 come. It also gave us a first hand glimpse of the life our early
 ancestors in Sthūladvīpa and the effects it has had on the rest of the
@@ -387,7 +387,7 @@ next time we meet.”
 ◊◊◊◊◊◊◊
 
 It was a dim autumn evening. The bustling city streets were a little
-quiet that night as the cold had suddenly set in. Vidrum and Kalakausha
+quiet that night as the cold had suddenly set in. Vidrum and Kalakausha
 were returning after a delightful dinner at a restaurant. Kalakausha
 barely concealing her excitement said: “Now for something really
 thrilling\! We need a quite secluded place.”  
@@ -572,7 +572,7 @@ be built. He felt great pleasure in eating the luxuriant vegetation on
 the hill side, swinging his tail swatting away biting gnats. Suddenly,
 three strange animals appeared before him. They looked sort of like men
 but were not exactly men as we known them today; rather they were an
-archaic type of *Homo*. Rushing at him they attacked him with their
+archaic type of *Homo*. Rushing at him they attacked him with their
 hafted weapons. One of them hit him but the missile glanced off his
 thick hide. Realizing the danger from them he charged them. The one in
 the front was an easy target and his horn found its mark. The hominin
@@ -670,7 +670,7 @@ Meghana came in between them: “Guys, calm down. We have little time and
 need to decide all the slogans and the posters for the Equality of the
 People march.” Fakhr calmly went on: “arre Kaffr learn how to talk
 respectfully to a momīn or I will be the one sending you to the
-hell-fire.” Shonit leaped at Fakhr with his knife now out. Fakhr still
+hell-fire.” Shonit leaped at Fakhr with his knife now out. Fakhr still
 reclining on the couch whipped out his pistol and fired. Two shots got
 Shonit. Meghana rushed to him as he fell and received one shot. Vidrum
 saw nothing but strange red patterns and heard a sledgehammer like noise

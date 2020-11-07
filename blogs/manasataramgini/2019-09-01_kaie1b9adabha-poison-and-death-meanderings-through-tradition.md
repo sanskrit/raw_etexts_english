@@ -107,7 +107,7 @@ but it was disease and conflict between themselves.
 But before concluding, Nārada utters a remarkable verse which we shall
 take a detour to examine:
 
-vāyur bhīmo bhīmanādo mahaujā   
+vāyur bhīmo bhīmanādo mahaujā   
 bhettā dehān prāṇināṃ sarvago ‘sau ।  
 naivāvṛttiṃ nānuvṛttiṃ kadā cit  
 prāpnoty ugro ‘nantatejā viśiṣṭaḥ ॥  
@@ -221,7 +221,7 @@ Māgha in his Śiśupāla-vadha states:
 
 matkuṇāv iva purā pariplavau sindhunātha-śayane niṣeduṣaḥ ।  
 gacchataḥ sma madhu-kaiṭabhau vibhor yasya naidra-sukha-vighnatāṃ kṣaṇam
-॥   
+॥   
 Formerly, swimming like bugs Madhu and Kaiṭabha had proceeded to afflict
 the lord of the ocean in his bed. They interrupted the pleasure of the
 god’s sleep but just for a moment.

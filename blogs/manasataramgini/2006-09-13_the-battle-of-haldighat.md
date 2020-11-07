@@ -5,11 +5,11 @@ title = "The battle of Haldighat"
 One of the tragic battles that represents the epitome of the valiant
 struggle of Hindu rulers against the numerically superior Moslem armies
 buttressed by the quintessential Hindu traitors was the battle of
-Haldighat. It stands for that great freedom struggle closer to the
+Haldighat. It stands for that great freedom struggle closer to the
 imperial capital of the country (relative to those in the south)
 occupied by the Moslem tyrants since Ghori’s invasions. Many years ago,
 when I was still a kid I received from my father a gift of a stone from
-Rajastan coming from the Haldighat geological horizon. Its yellow
+Rajastan coming from the Haldighat geological horizon. Its yellow
 powdery consistency and the history behind the place left a profound
 impression on me and not a day was spent without enacting scenes from
 the great Hindu struggle in our evening games. I felt an urge to retell
@@ -75,7 +75,7 @@ they were taking up arms to defend the land against the turuShkas.
 Pratap’s left wing was formed by the Jhala clan of the Rajputs under
 Mana. The reserve force that stood behind Pratap comprised of two
 brigades: 1) The first was the brahmin brigade led by Pratap’s purohita
-Jagannatha that was fighting as ordained by manu to defend the land of
+Jagannatha that was fighting as ordained by manu to defend the land of
 Hindus from the turuShkas. 2) The brigade formed by the Mehta
 businessmen and the Charanas, who normally civilians, had also
 voluntarily joined the Hindu defense. They were buttressed further by a

@@ -5,9 +5,9 @@ title = "Journeying through the fractal slopes of mount Meru with two-seeded rec
 The Hindus have been fascinated by sequences and series from the
 beginning of their civilizational memory recorded in the Veda. This
 continues down to the medieval mathematician Nārāyaṇa paṇḍita,
-who discovered a general formula (sāmāsika paṅkti) that can be to
+who discovered a general formula (sāmāsika paṅkti) that can be to
 obtain the ‘Meru-średhī’ (known in the west as Fibonacci’s sequence). He
-uses it as a model to explain the population dynamics of cows. In modern
+uses it as a model to explain the population dynamics of cows. In modern
 terms the formula goes thus:  
 Let
 ![f\[1\]=f\[2\]=1](https://s0.wp.com/latex.php?latex=f%5B1%5D%3Df%5B2%5D%3D1&bg=ffffff&fg=333333&s=0

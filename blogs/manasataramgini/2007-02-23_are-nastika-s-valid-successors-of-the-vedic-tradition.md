@@ -203,7 +203,7 @@ vaiShNavism and shaivism as successors of vedic. These dominate the
 epics to greater or lesser degrees and have precursors even in the late
 vedic period. Yet, these find no or little mention amongst the bauddhas.
 The typical white Indologists and their fellow travelers have
-persistently tried to claim that the late vedic corpus (upaniShad and
+persistently tried to claim that the late vedic corpus (upaniShad and
 mImAmsa sUtras) and itihAsa, and the early bauddha corpus overlapped.
 However, if we carefully view the evidence we find that as usual the
 conventional Indological ideas are flawed: The paurANic genealogies, the
@@ -225,7 +225,7 @@ grass-roots of Indian society and that the true rise of sectarianism at
 the grass-root level was a later phenomenon.
 
 In reality, like the bauddha-s, the sectarian streams too used the veda
-as a base. Early sectarian works like harivaMsha use vedic material, but
+as a base. Early sectarian works like harivaMsha use vedic material, but
 for their own agenda. Thus, subversion was the model in both Astika and
 nAstika traditions. Herein, Indo-Aryan India paralled the earlier Aryan
 developments- namely subversion of the proto-Indo-Iranian religion (the

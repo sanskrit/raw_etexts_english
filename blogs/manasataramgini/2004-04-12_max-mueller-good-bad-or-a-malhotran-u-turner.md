@@ -56,7 +56,7 @@ The synthetic phase, where he started becoming obsessed with his own
 ideas, set in soon there after. This gradually completed the U-turn as
 he started placing things in his own occidental categories. Yet, he did
 not completely give up his attachment to India and perhaps to the end of
-his life he even returned to it: It  showed up in works like Ramakrishna
+his life he even returned to it: It  showed up in works like Ramakrishna
 (which he wrote in his later life; compare with Kripal’s lurid depiction
 of RK as a homoerotic tormented soul) and “*Six systems of Indian
 philosophy*” that he wrote just before his death. So I think we have to

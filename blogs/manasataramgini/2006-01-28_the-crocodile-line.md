@@ -54,7 +54,7 @@ Sues and Olsen described this remarkable assemblage from the Late
 Triassic of Durham, where the rauisuchian skeleton was uncovered and
 found to contain its last meals described above and a Saltoposuchus-like
 crocodile under it with a bite mark in its neck. Thus the Triassic was
-the high-point of the crocodile-line in a croc-eat-croc world:
+the high-point of the crocodile-line in a croc-eat-croc world:
 phytosaurs, ornithosuchids, prestosuchids, rauischids, aetosaurs and
 crocodylomorphs.
 

@@ -378,7 +378,7 @@ discoveries even though Mullis himself did not make any of those
 discoveries.
 
 Propensity for these archetypes also show sex-specific differences:
-Women are infrequent in all categories except 5 where in certain types
+Women are infrequent in all categories except 5 where in certain types
 of actions they might be more common than men. Women can also be capable
 in certain aspects of 1 and 2 especially in sciences such as cognitive
 science and astronomy. This stems from the biological difference in the

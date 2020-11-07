@@ -84,7 +84,7 @@ rasash-cha dravate devi madhurash-cha visheShataH |
 sAdR^ishyaM sarvalohAnAM sakR^il lepena yAti saH ||
 
 O goddess it oozes a liquid that is particularly sweet. By making a
-paste of it and using everything appears as though made of metals. Or
+paste of it and using everything appears as though made of metals. Or
 more literally, he makes everything to appear to like metal by using its
 paste.
 

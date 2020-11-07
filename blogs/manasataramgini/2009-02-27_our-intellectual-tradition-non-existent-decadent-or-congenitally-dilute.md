@@ -3,7 +3,7 @@ title = "Our intellectual tradition: non-existent, decadent, or congenitally dil
 
 +++
 Perhaps the greatest mind of all times was Karl Gauss. Among the men of
-genius he stands at the pinnacle of existence, perhaps with Chingiz
+genius he stands at the pinnacle of existence, perhaps with Chingiz
 Kha’khan. I keep a 10 DM note with the portrait of Gauss in my office
 to remind myself of that absolute standard in the mental sphere. Like
 the vajra of vR^itrahan quells the pride of dAnu’s brood, the sight of

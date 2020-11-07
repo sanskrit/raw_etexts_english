@@ -100,5 +100,5 @@ inscriptions suggest that he used the title of varman, there is no
 evidence that he wears an upavIta like a kShatriya who has undergone
 saMskAra. On the other hand there is connection between at least some
 nAyar old pallava warriors who might have had a Iranic component. They
-were probably absorbed in the kShatriya functional guild but did
-not acquire the thread despite performing certain vaidika rituals.
+were probably absorbed in the kShatriya functional guild but did
+not acquire the thread despite performing certain vaidika rituals.

@@ -51,7 +51,7 @@ decided to lead a Jihad on China and convert its population forcibly to
 Islam. With this intention he started gathering a large army in Utrar.
 To regale the army he ordered a month of continuous celebrations
 beginning in 1405. A huge hunt was organized and the slain animals were
-feasted upon.  It was said that Timur’s men laid down the lances of war
+feasted upon.  It was said that Timur’s men laid down the lances of war
 and plied their lances of love on women captured from all around Asia.
 There was also tremendous drinking with the feast and Timur drank
 voluminously. On the 21st day of the celebrations in the midst of the

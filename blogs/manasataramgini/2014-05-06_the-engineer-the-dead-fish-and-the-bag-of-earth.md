@@ -67,7 +67,7 @@ ridge so that no one could easily see them from below. The level contour
 of the plateau relaxed them a bit and Charusmita spoke: “How could they
 be so damn stupid and kill prime minister Samabhav Singh? He had such
 brilliant ideas – the uniform civil code, the death sentence for
-rapists, and above all a sensible right to education plan.” Lootika:
+rapists, and above all a sensible right to education plan.” Lootika:
 “Well, it was almost a given, with the marUnmatta-s backed by
 mlechCha-s making all the noises even before he said that the UCC bill
 would be tabled in the parliament – I felt he would back off like
@@ -90,7 +90,7 @@ they remarked. Lootika leapt on a large rock to get a better view of the
 city and her heart sank as she saw the distant red glow of fire coming
 from her locality. Her face lost color as she told her companions that
 it was not a joke anymore. She mentally started reciting a secret mantra
-to puShan. Her companions too grew worried and clambered up the rock to
+to puShan. Her companions too grew worried and clambered up the rock to
 get a better look. They were not sure if they could easily reach their
 homes as there seemed to be blazes on the paths leading to them. Finally
 they made it down from the hills and had to take a long dirt path to

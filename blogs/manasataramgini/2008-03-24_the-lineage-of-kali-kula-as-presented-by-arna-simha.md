@@ -16,14 +16,14 @@ lineage is:
                  shivAnandanAtha
           female teacher keyUravatI
                      vAmana
-                   chakrabhAnu
+                   chakrabhAnu
                   /         \
  female teacher IshAnikA | prabodha
-            nandaka      | jaiyaka
-            sajjana      | pa~Nka
-            someshvara   | nAga
-                   \        /
-                    arNasiMha
+            nandaka      | jaiyaka
+            sajjana      | pa~Nka
+            someshvara   | nAga
+                   \        /
+                    arNasiMha
  
 ```
 

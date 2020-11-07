@@ -213,7 +213,7 @@ evidence for early elephants being aquatic in habit (e.g.
 Phosphatherium, Daouitherium, Numidotherium, Moeritherium and
 Barytherium, the early elephant lineages in Africa) suggests that they
 might have been more capable of crossing the incipient Arabian sea among
-the large mammals and thus reached the subcontinent. The interpretation
+the large mammals and thus reached the subcontinent. The interpretation
 of cambaytheres from the Vastan mines as very primitive elephants might
 imply that afrotherians floated along to India from Africa. However, if
 they are indeed stem perissodactyls as alternatively proposed, they

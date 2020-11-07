@@ -8,9 +8,9 @@ tIvrA, chAlini, nandA, bhogadA, kAmarUpiNi, ugrA, tejovatI, satyA and is
 embraced by vighnanAshini who is seated beside him.
 
 oM rAyaspoShasya dadhitA nidhido ratnadhAtumAn rakShohaNo valagahano
-vakratuNDAya huM ||  
-medholkAya svAhA ||  
-oM hrIM grIM hrIM ||
+vakratuNDAya huM ||  
+medholkAya svAhA ||  
+oM hrIM grIM hrIM ||
 
 Having worshipped the awful one-tusked son of rudra by the Punya river,
 the Kashi of the gANapatyas, we saw him in the embrace of the delightful
@@ -111,4 +111,4 @@ ended his reign.
 
 He then handed the peacock to his brother kumAra as his vAhana.
 
-medholkAya svAha ||
+medholkAya svAha ||

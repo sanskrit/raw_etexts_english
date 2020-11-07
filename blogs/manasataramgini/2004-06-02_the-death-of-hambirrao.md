@@ -37,7 +37,7 @@ outposts in Khandesh and then rapidly moved into Baglana slipping past
 the Mogol army. Then he forded the Narmada and invaded Gujarat,
 attacking Mogol outposts at Ahmadabad, Burhanpur, Berar and Mahur. They
 beat the Mogol army and returned to Maharashtra after outflanking them
-with a rapid charge. Then he moved on to conquer the fort of Kelanja.
+with a rapid charge. Then he moved on to conquer the fort of Kelanja.
 After these deeds in battle, Shivaji conferred on him the title of
 c-‘n-c in the grand review of troops (vacant due to the death of the
 earlier c-‘n-c Prataprao in the battle against Bahlol Khan). Hambirrao

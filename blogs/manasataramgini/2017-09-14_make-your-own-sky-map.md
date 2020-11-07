@@ -266,8 +266,8 @@ cha hi trī ku cū che ko dvi yuk
 ṅau kha chā ṅī ku ghu tri yuk  
 kha jā ku cū ghe gho
 
-`  102 112 128 140 153 156 183 196 197 217 232 240 252 266 277 291 305 312 327 345 351 354 12  28  51
- 66  74  94 `  
+`  102 112 128 140 153 156 183 196 197 217 232 240 252 266 277 291 305 312 327 345 351 354 12  28  51
+ 66  74  94 `  
 This contains the above code in the kaṭapayādi system with the vowels
 (a, ā, i, ī, u, ū, e, ai, o, au) being 1:9 and 0. To determine the
 rising point of the ecliptic from the nakṣatra asterism at the meridian

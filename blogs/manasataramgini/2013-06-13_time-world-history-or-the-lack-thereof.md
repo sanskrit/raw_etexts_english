@@ -261,7 +261,7 @@ followed by the decline that evidently lies beyond any pinnacle. Thus,
 he thought that the very concept of world history might come to an end
 with them. Indeed, with the decline that followed the glorious elevation
 of the Chingizids the Mongolian world history was largely lost to
-humanity (Though we cannot rule out that their inspiration was not
+humanity (Though we cannot rule out that their inspiration was not
 somehow transmitted to west via Mohammedan intermediaries who only half
 understood the concept).
 

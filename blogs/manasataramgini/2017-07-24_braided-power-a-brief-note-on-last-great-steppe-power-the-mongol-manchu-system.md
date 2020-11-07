@@ -212,7 +212,7 @@ destroyed their prized new-style buildings. The emperor was displeased
 by Sengge’s inability to stop this and demoted him to a lower minister
 rank.
 
-Despite, having lost their infantry the Nian  taking advantage of the
+Despite, having lost their infantry the Nian  taking advantage of the
 European-inflicted defeats on the Ching started making major gains with
 their quick-moving cavalry now backed by some of the best commanders
 sent by the Chinese brother of Jesus Christ to stiffen them. Knowing

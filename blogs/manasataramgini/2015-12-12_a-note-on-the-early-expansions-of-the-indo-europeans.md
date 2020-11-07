@@ -276,7 +276,7 @@ a third language Kroränian (Tocharian C). Together these constitute a
 monophyletic branch of IE, Tocharian.
 
 Considering all these points together we can say that the Yamnaya
-culture, from which were staged major population movements into Europe
+culture, from which were staged major population movements into Europe
 and the Altai, was most likely comprised of early Indo-European
 speakers. The Yamnaya-derived population can accommodate the above
 points much better than positing the EF as the bearers of IE languages
@@ -308,7 +308,7 @@ Iberian populations where it is still little above 0.8 and higher than
 the old steppe frequencies). What this implies is that the Yamnaya and
 related steppe populations were fair-skinned but as group were less
 fair-skinned than modern Europeans. Modern Europeans received a double
-infusion of SLC24A5 fair-skin allele (from EF and Yamnaya-derived
+infusion of SLC24A5 fair-skin allele (from EF and Yamnaya-derived
 populations) and SLC45A2 (from Yamnaya). Thereafter SLC45A2 fair-skin
 allele underwent strong recent selection in the last 4.5 kyr to reach
 fixation. Thus, the whitening of the Europeans is a relatively recent
@@ -374,7 +374,7 @@ consuming sugar-rich food as they had nearly no dental carries, which
 again favors fermented milk-products.
 
 • **What were the subsequent developments in the steppe-land?** Starting
-about 4.5 kyr BP the climate in the Eurasian steppes began getting
+about 4.5 kyr BP the climate in the Eurasian steppes began getting
 colder and drier: marshland and forests reduced, and the open grasslands
 expanded. As this climatic change started peaking the Poltavka culture,
 which was the genetically close successor of the Yamnaya, started giving
@@ -400,7 +400,7 @@ different degrees with the earlier steppe cultures, the Sintashta were
 characterized by new type of long spear with a heavy head, and new flint
 javelin heads which might have been hurled from chariots. The long
 1.2-1.5 meter bows found at the Berezovka site suggest that the warriors
-of this complex might used such from chariots too. (5) The artisans of
+of this complex might used such from chariots too. (5) The artisans of
 this complex appear to have been good not only at making utility items
 but also rather elaborate jewelry.
 
@@ -421,7 +421,7 @@ near equal admixtures of EHG+CHG, the Potapovka and Sintashta were best
 modeled as a 3 population admixture of EF+EHG+CHG. This EF contribution
 (\~17%) indicates a further admixture after the Poltavka stage of the
 original Yamnaya-type steppe population with a early farmer population
-of west Asian origin like the descendants of the Anatolian EF.
+of west Asian origin like the descendants of the Anatolian EF.
 
 • **What were the major developments associated with the emergence of
 the Andronovo, Srubnaya and Seima-Turbino phenomenon?** Around 3.9 kyr
@@ -430,13 +430,13 @@ characterized by the sudden and dramatic spread of distinctive cultural
 artifacts from the east Asian steppes in Mongolia all the way to Europe
 within a span of few generations. While the reality of this phenomenon
 is still debated, the “genuine” Seima-Turbino sites are marked by
-sophisticated manufacture of Sn-bronze ware with great aesthetic
+sophisticated manufacture of Sn-bronze ware with great aesthetic
 accomplishment. The Seima-Turbino sites on one hand show weapons and
 anvils with links to the earlier or contemporary Sintashta complex while
 on other the daggers with a circular pommel innovated in this horizon
 became popular in the later Andronovo. Starting between 3.9-3.8 kyr BP
-the Potapovka in the west expands to spawn a successor culture, the
-Srubnaya. The Sintashta in the east similarly expands to form the
+the Potapovka in the west expands to spawn a successor culture, the
+Srubnaya. The Sintashta in the east similarly expands to form the
 Andronovo culture. Over the next few centuries these rapidly expand to
 set up a culturally similar horizon from the border of China to Europe
 and south toward west Asia. These developments were associated with
@@ -446,7 +446,7 @@ bronze.
 In terms of genetics the ancient DNA from the Srubnaya and Andronovo
 sites shows that they too like the predecessor
 Sintashta-Potapovka-Filatova complex possessed the additional EF type
-admixture. A notable phenomenon across these cultures in terms of
+admixture. A notable phenomenon across these cultures in terms of
 genetics is the rise of the the R1a Y chromosome haplogroup. The Yamnaya
 Y chromosomes are predominantly R1b and this is a dominant male
 haplogroup in Western Europe suggesting that it was brought there by the
@@ -510,9 +510,9 @@ than large cities and all evidence is in favor of it being a bronze age
 text. Its culture was a heroic and warlike one, with fortified
 structures playing a key role. Horse-drawn chariots with spoked-wheels
 were central elements of the culture. The burial practice mentioned in
-the RV is mirrored in the Kurgan burials from the steppe sites. Grasses
-play multiple important roles in the religion, including being the seat
-where the gods sit. Without any shadow of doubt Indo-Aryan is related
+the RV is mirrored in the Kurgan burials from the steppe sites. Grasses
+play multiple important roles in the religion, including being the seat
+where the gods sit. Without any shadow of doubt Indo-Aryan is related
 most closely related to Iranian and the philological evidence from the
 oldest Iranian text the Avesta closely matches that from the early Vedic
 period of the Indo-Aryans. Thus, Indo-Aryan and Iranian arose in a
@@ -567,7 +567,7 @@ that were likely IE speakers. In this regard the ANI ancestry for an
 Indian group is also correlated with presence of the R1a-Z93 branch that
 is seen as early as the Poltavka culture and rises to dominate in
 Sintashta, Potapovka, Srubnaya and Andronovo cultures. Finally, the
-latest whole ancient genome studies indicated that both modern European
+latest whole ancient genome studies indicated that both modern European
 and Indian populations (with a north-south gradient) are on an average
 closer to ancient steppe populations than they are to each other. This
 would mean that populations related to the ancient steppe populations
@@ -600,7 +600,7 @@ temporally close to the Anatolian Neolithic; however, despite being
 situated to the Northwest there is no clear evidence for the Mehrgarh
 Neolithic being brought there by EFs from West Asia. The genetic
 evidence does not provide any clear support such early admixture of a
-West Asian population with the ASI (i.e. the proto-Indian population).
+West Asian population with the ASI (i.e. the proto-Indian population).
 Thus, it is quite possible that the Mehrgarh Neolithic was an
 independent Neolithicization, though we cannot rule out some role in its
 rise for memetic or temetic transfers from West Asia, even if there was
@@ -635,7 +635,7 @@ for the ANI. The lowest f3 statistic of the form f3(target; source1,
 source2) indicates that for the ‘target’ population the best source
 populations for explaining it as an admixture are ‘source1’ and
 ‘source2’. In this experiment for populations across the
-subcontinent the lowest f3  was for f3(India subcontinent population;
+subcontinent the lowest f3  was for f3(India subcontinent population;
 Mesolithic CHG, Kharia), where Kharia is a tribal population from Madhya
 Pradesh with a predominantly ASI genome. The same CHG ancestry is the
 one which contributes roughly half of the Yamnaya ancestry and through

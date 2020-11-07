@@ -13,10 +13,10 @@ jAtaka-s, augury, sooth-saying of various kinds, and worship of Hindu
 gods through idols. In the same breadth he introduces some of the best
 known trigonometric formulae like (sinx)^2 + (cosx)^2 = 1; the double
 angle expansions like cos2\*x=1-2\*(sinx)^2; the factorial and its
-relationship to combinations,  as well as the basics of Hindu
+relationship to combinations,  as well as the basics of Hindu
 iconography. Thus, it is not suprising when we find trigonometry
 mensuration and agamic issues pertain to idols being linked even the
-works of the later day nambUtiri mathematician and tAntrika Chennas
+works of the later day nambUtiri mathematician and tAntrika Chennas
 Narayanan Nambutiripad.
 
 In his bR^ihat saMhitA he gives a succinct section on construction of

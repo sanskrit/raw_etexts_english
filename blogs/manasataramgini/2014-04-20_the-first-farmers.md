@@ -167,7 +167,7 @@ such mycokleptic raiders (see below for similar use of bacteria in
 inter-insect conflicts).
 
 ● The attine ants similarly deploy actinobacterial species of
-Pseudonocardia, Streptomyces and Amycolatopsis against the antagonists
+Pseudonocardia, Streptomyces and Amycolatopsis against the antagonists
 of their fungal crops. The ant Acromyrmex octospinosus deploys a
 Streptomyces strain that produces a wide range of antibiotics, including
 the polyene candicidin and antimycin that might kill some antagonistic

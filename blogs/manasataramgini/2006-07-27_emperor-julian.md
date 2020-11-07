@@ -19,7 +19,7 @@ memetic infection of Isaism that had seized the European mind.
 
 It was at this point that our mind went back to the one great Hero of
 Rome, for whom we had the highest respect for long. There were a
-some respectable emperors of Rome, like Julius Caesar, Augustos, Marcos
+some respectable emperors of Rome, like Julius Caesar, Augustos, Marcos
 Aurelius and the like, but of all of them we could relate most to the
 emperor Julian. He was the one man on whose fate the history of the
 world rested and swung the bad way, as though drawn by the downward turn
@@ -96,7 +96,7 @@ medieval period who was simultaneously comfortable with the shrauta and
 tantric rituals.
 
 \*He launched doctrinal attacks on the foundations of Isaism, rather
-than merely terrorizing them with his state apparatus and was pretty
+than merely terrorizing them with his state apparatus and was pretty
 mild on them for all the vandalism of heathen temples and altars they
 had engaged in.
 

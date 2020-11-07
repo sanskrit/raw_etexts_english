@@ -188,13 +188,13 @@ those were hardly worth living. We have been critical of him on these
 pages on more than one occasion but now that he belongs the realm of the
 manes we have to acknowledge his historic role with gratitude. He
 certainly built the platform that Hindus can use to move forward and the
-one that the Lāṭeśvara is using. His end brings down the curtain on this
+one that the Lāṭeśvara is using. His end brings down the curtain on this
 turn in the meandering of the Hindu nation. Many Hindus have been
 spending the last four years doing nothing but bitching about NM. They
 are nothing but armchair activists who have not participated in
 electoral contests or organized protective services on the ground. One
 thing we can tell such folks is do your own little bit for the dharma at
-the grassroots level. Do not expect the prime minister or mahānta yogī
+the grassroots level. Do not expect the prime minister or mahānta yogī
 Ādityanātha to be a quantum entity who is at multiple places at the
 same time performing bābāistic miracles. Also remember that certain
 parts of the country are seriously compromised with the infections and

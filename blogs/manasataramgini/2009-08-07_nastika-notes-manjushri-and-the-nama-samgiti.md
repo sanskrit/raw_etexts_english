@@ -25,7 +25,7 @@ deeds of the buddha in the world.
 4\) In the yoga tantra-s (the ma\~njushrI j\~nana-sattvasya paramArtha
 nAma saMgIti or the ma\~njushrI nAma saMgIti) and yoginI tantra-s (e.g.
 kAlachakra tantraM) he rises to be the Adibuddha and he is in the heart
-of the ShaD-buddha-s.In the yoga tantra phase he starts acquiring
+of the ShaD-buddha-s.In the yoga tantra phase he starts acquiring
 elements of the bhairava of the shaiva tantra-s and this absorption was
 critical for his rise as a major deity. This absorption to a degree
 enabled him to break free from the limitations of the bodhisattva mold

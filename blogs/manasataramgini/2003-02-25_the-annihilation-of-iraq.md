@@ -74,7 +74,7 @@ Shah Rukh ground defense corps. The fort door was opened and the
 garrison was massacred. Timur-i-lang immediately attacked Shiraz forcing
 Shah Mansur, the Muzaffarid, to face him in open battle. Through his
 sheer valor Mansur broke through the Timurid ranks and appeared right
-before Timur and struck his sword off his hand. He then delivered two
+before Timur and struck his sword off his hand. He then delivered two
 blows with his sword on Timur’s head, whose massive helmet saved him
 from certain death. Shah Rukh interceded and cut off Mansur’s head and
 threw it at Timur’s feet. Timur seized Shiraz and thoroughly looted it

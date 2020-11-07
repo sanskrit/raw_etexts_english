@@ -448,7 +448,7 @@ Julius Caesar who was a pious man, has an interesting parallel in the
 Indo-Aryan world: The Sanskrit equivalent of Pontifex is pathikR^it,
 both meaning the maker of the path (ponti= path; fex=maker). In the veda
 it is applied among others to: 1) To the god bR^ihaspati who has
-the function of the chief ritualist among the deva-s. This is observed
+the function of the chief ritualist among the deva-s. This is observed
 in the mantra of gR^itsamada shaunahotra:  
 tvaM no gopAH pathikR^id vichakShaNas tava vratAya matibhir jarAmahe |
 RV 2.23.06ab  

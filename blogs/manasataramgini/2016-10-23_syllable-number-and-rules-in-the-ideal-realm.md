@@ -37,7 +37,7 @@ In the Atharvāṅgirasa-śruti Kutsa āṅgirasa says:
 ekacakraṃ vartata ekanemi  
 sahasrākṣaraṃ pra puro ni paścā |  
 ardhena viśvaṃ bhuvanaṃ jajāna  
-yad asyārdhaṃ kva tad babhūva || AV-vulgate 10.8.7c
+yad asyārdhaṃ kva tad babhūva || AV-vulgate 10.8.7c
 
 One-wheeled and one-rimmed it spins,  
 \[with a\] thousand syllables north, east, south and west,  

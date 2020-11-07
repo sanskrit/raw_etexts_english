@@ -76,7 +76,7 @@ diplodocid and titanosaurian clades as indicated by fragmentary remains.
 This is one of the most remarkable dinosaurs I have ever come across and
 displays a striking chimera of features described by Novas et al:  
 ● A short deep premaxilla with a rugosity indicative of a covering by a
-keratinous beak over the upper jaw is vaguely reminiscent of an
+keratinous beak over the upper jaw is vaguely reminiscent of an
 ornithischian rather than a theropod.  
 ● A short deep dentary, with a down-turned symphyseal region, which is
 typical of herbivorous saurischians.  
@@ -133,7 +133,7 @@ are considered to be rather uniform throughout the world, with the small
 to medium sized herbivore guilds dominated by ornithischians. However,
 in the South American Toqui Formation we see Chilesaurus to be the
 dominant herbivore in the lower size range as indicated by its relative
-abundance in the fossil record from this stratum. Thus, it brings home
+abundance in the fossil record from this stratum. Thus, it brings home
 how little we really know of dinosaur evolution and biogeography.
 Importantly, it shows how much more frequent the switch to herbivory was
 in dinosauromorpha, including basal theropods.

@@ -28,7 +28,7 @@ Human politics is ultimately biological in origin; hence, other examples
 from the biological world, examples from fellow animals as Viṣṇuśarman
 used, should be taken seriously. [As we have briefly pointed out before
 Viṣṇuśarman was a keen observer of biological conflict in
-nature](https://manasataramgini.wordpress.com/2014/04/13/wise-vishnusharmans-vignette-on-biological-warfare/). It
+nature](https://manasataramgini.wordpress.com/2014/04/13/wise-vishnusharmans-vignette-on-biological-warfare/). It
 is with this lesson in mind one can understand [this
 story](https://manasataramgini.wordpress.com/2015/03/31/the-dream-motif/)
 fully. Likewise, an example is also expounded in [this

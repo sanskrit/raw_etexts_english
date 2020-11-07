@@ -2,7 +2,7 @@
 title = "The verse of the sword"
 
 +++
-[chitrabandha-s](https://manasataramgini.wordpress.com/2013/01/06/between-the-rasarnava-and-the-chitrabandha-s/ "Between the rasArNava and the chitrabandha-s")
+[chitrabandha-s](https://manasataramgini.wordpress.com/2013/01/06/between-the-rasarnava-and-the-chitrabandha-s/ "Between the rasArNava and the chitrabandha-s")
 are widely represented in classical works on kAvya. The bandha-s of the
 form of the sword find mention in agni-purANa, the kAvyAlaMkAra of
 rudraTa and the praise of chaNDI by the other Kashmirian Anandavardhana.
@@ -49,7 +49,7 @@ linguistic analogs of the histone-tails and such other low complexity
 sequences such as silaffins which constitute a protein component of
 diatom shells, where many different meanings can be written via
 epigenetic
-modifications.](https://manasataramgini.wordpress.com/2013/01/06/between-the-rasarnava-and-the-chitrabandha-s/ "Between the rasArNava and the chitrabandha-s")
+modifications.](https://manasataramgini.wordpress.com/2013/01/06/between-the-rasarnava-and-the-chitrabandha-s/ "Between the rasArNava and the chitrabandha-s")
 Such examples, like the sarvatobhadra, are by definition low in
 complexity but different meanings are obtained by means of differential
 saMdhi splits, which act like “epigenetic” information superimposed on

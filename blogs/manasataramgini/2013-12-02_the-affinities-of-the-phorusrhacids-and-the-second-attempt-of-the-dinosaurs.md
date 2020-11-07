@@ -30,7 +30,7 @@ convincing fossils recently reported from Uruguay).
 
 It is widely believed that the only representatives of the phorusrachid
 lineage which are alive today are the two species of seriema, [wonderful
-birds](https://manasataramgini.wordpress.com/2008/07/05/the-experience-of-the-seriema/ "The experience of the seriema")
+birds](https://manasataramgini.wordpress.com/2008/07/05/the-experience-of-the-seriema/ "The experience of the seriema")
 from south America (Cariama and Chunga). Hardly any paleontologist has
 doubted the relationship between them and the phorusrhacids. They seem
 to retain inferred features of the extinct phorusrhacids, especially in
@@ -45,7 +45,7 @@ findings have emerged regarding these birds:
 1\) Traditionally, the cariamids (including phorusrhacids) used to be
 allied with the cranes by the morphological taxonomists. However,
 [molecular studies strongly
-suggest](https://manasataramgini.wordpress.com/2008/07/05/a-molecular-phylogeny-of-birds/ "A molecular phylogeny of birds")
+suggest](https://manasataramgini.wordpress.com/2008/07/05/a-molecular-phylogeny-of-birds/ "A molecular phylogeny of birds")
 that they are unrelated to cranes. Rather they are nested deep within
 the crown group of neoaves and appear to form a clade with falcons
 (which do not group with eagles, hawks, secretary birds and New World
@@ -163,7 +163,7 @@ idiornithids, Elaphrocnemus, and the larger ancestor of
 Lavocatavis/Eleutherornis represent independent movements. Given the
 presence of large cariamids in Antarctica, the puzzling question is why
 did they not reach Australia like the [marsupials in the middle/late
-Paleocene](https://manasataramgini.wordpress.com/2008/09/28/the-mystery-of-marsupials/ "The mystery of marsupials").
+Paleocene](https://manasataramgini.wordpress.com/2008/09/28/the-mystery-of-marsupials/ "The mystery of marsupials").
 A possible explanation is that the trans-Antarctic mountain range was
 already presenting a barrier for these birds.
 
@@ -188,7 +188,7 @@ parrots. Rather they show different predatory adaptions of the feet and
 beak. Thus, these birds might help close the gap between the parrots and
 the two other carnivorous clades, falconids and cariamids (predatory
 capabilities are seen in a more basal modern parrot, the [remarkable
-kea](https://manasataramgini.wordpress.com/2007/06/05/the-kea-the-foremost-of-the-dinosaurs/ "The kea – the foremost of the dinosaurs")
+kea](https://manasataramgini.wordpress.com/2007/06/05/the-kea-the-foremost-of-the-dinosaurs/ "The kea – the foremost of the dinosaurs")
 \[contra that earlier post we no longer think parrots might have emerged
 in the Cretaceous itself. Nor are the phylogenetic views on parrots
 higher order relationships correct in that post as they reflect a much

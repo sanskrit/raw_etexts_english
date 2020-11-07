@@ -3,7 +3,7 @@ title = "Of lives of men; of times of men-III"
 
 +++
 [Of lives of men; of times
-of men-II](https://manasataramgini.wordpress.com/2017/11/12/of-lives-of-men-of-times-of-men-ii/)
+of men-II](https://manasataramgini.wordpress.com/2017/11/12/of-lives-of-men-of-times-of-men-ii/)
 
 As they were talking, they saw a sallow-complexioned youth pass by them
 some distance away carrying a bat on his shoulder. Vidrum waved out to
@@ -258,7 +258,7 @@ involve various other specialized sub-groups. When the Marāthā-s
 transformed into a Kriegstaat, that seems to have drawn people away from
 these specialized guilds. That is where the English won. They could
 still maintain a large body of seemingly ‘useless’ knowledge-producers,
-like a Darwin and a Maxwell, for each of whom there were lesser
+like a Darwin and a Maxwell, for each of whom there were lesser
 tinkerers who could ultimately supply key technological innovations to
 the system that kept edge on the English war-machine. The success of
 this type of specialization in nature is simply evident in the world

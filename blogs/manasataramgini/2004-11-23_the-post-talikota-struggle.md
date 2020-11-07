@@ -26,7 +26,7 @@ considerably weakened. Adil Shah, who had recovered from the Talikota
 war, marched southwards again in 1567 to continue the conquest of the
 Vijayanagaran kingdom. Pedda Tirumala entered into negotiations with the
 Sultan and directed the invader against his uncle Tirumala, whom he
-feared. But the Sultan brushed him aside and took Vijayanagar and then
+feared. But the Sultan brushed him aside and took Vijayanagar and then
 marched on Penukonda. Tirumala dispatched his commander Savaram
 Chennappa Nayaka to repulse the Sultan. The Nayaka inflicted a defeat on
 the Moslem forces through a surprise sally when the Sultan was expecting

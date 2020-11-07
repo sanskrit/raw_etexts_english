@@ -34,7 +34,7 @@ the little Aral), Toqtamish marched with his cavalry across the frigid
 steppes and fell upon the former. Timur-Maliq was killed in the
 encounter and Toqtamish scored a massive victory. He ascended the throne
 as the supreme Khan of the White Horde with the sprinkling of Qumis
-before the 9 Yak tailed banner of the Mongols.
+before the 9 Yak tailed banner of the Mongols.+++(5)+++
 
 Shortly after this, he built his cavalry over the coming spring and
 marched on Mamai Khan, the ruler of the Golden horde or the Russian

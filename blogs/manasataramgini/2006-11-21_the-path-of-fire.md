@@ -38,7 +38,7 @@ taM tvA yamo achikech chitrabhAno dashAntaruShyAd atirochamAnam ||
 you O agni jAtavedas, hidden in the plants and waters.Then yama piled
 you\*, one with many-colored \[flames\], blazing forth from your tenfold
 secret station,  
-\*(achikech: the same root as  chayana as in agni-chayana the piling of
+\*(achikech: the same root as  chayana as in agni-chayana the piling of
 fire altar)
 
 hotrAd ahaM varuNa bibhyadAyaM nedeva mA yunajan natra devAH |  

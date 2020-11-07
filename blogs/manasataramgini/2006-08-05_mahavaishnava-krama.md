@@ -87,13 +87,13 @@ oM viShvaksenAya namaH
 
 He first invokes viShNu with the formula known as viShNu-mAyA:
 
-anAdyanta jagadbIja  padmanAbha  namo .astu te  |  
+anAdyanta jagadbIja  padmanAbha  namo .astu te  |  
 oM kAlAya svAhA | oM kAlapuruShAya svAhA | oM kR^iShNAya svAhA |  
-oM kR^iShNarUpAya svAhA |  oM chaNDAya svAhA | oM chaNDarUpAya svAhA 
+oM kR^iShNarUpAya svAhA |  oM chaNDAya svAhA | oM chaNDarUpAya svAhA 
 |  
 oM prachaNDAya svAhA | oM prachaNDarUpAya svAhA | oM sarvAya svAhA |  
-oM sarvarUpAya svAhA |  oM namo bhuvaneshAya trilokadhAtre iha viTi
-siviTi siviTi svAhA |  oM namaH ayokheTaye ye ye saMj\~nApaya |
+oM sarvarUpAya svAhA |  oM namo bhuvaneshAya trilokadhAtre iha viTi
+siviTi siviTi svAhA |  oM namaH ayokheTaye ye ye saMj\~nApaya |
 
 daitya-dAnava-yakSha-rAkShasa-bhUta-pishAcha-kUShmANDAntApasmAra-kachChardhana-durdharANAm-ekAhika-dvyAhika-tryAhika-chAturthika-mauhUrtika-dina-jvara-rAtri-jvara-sandhyA-jvara-sarva-jvarAdInAM-lUtA-kITa-kaNTaka-pUtanA-bhuja\~Nga-sthAvara-ja\~Ngama-viShAdInAm-idaM
 sharIraM mama pathyaM tvaM kuru sphuTa sphuTa sphuTa prakoTa laphaTa ||
@@ -103,15 +103,15 @@ dinakara-sahasra-kAla-samAhato jaya pashchimato rakSha | oM nivi nivi
 pradIpta-jvalana-jvAlAkAra mahAkapila uttarato rakSha | oM vili vili
 mili mili garuDi garuDi | gaurI-gAndhArI-viSha-moha-viShama-viShaM
 mohayatu svAhA mAM dakShiNato rakSha | mAM pashya
-sarva-bhUta-bhayopadravebhyo rakSha rakSha |  jaya jaya vijaya tena
+sarva-bhUta-bhayopadravebhyo rakSha rakSha |  jaya jaya vijaya tena
 hIyate ripu-trAsAha\~NkR^itavAdyato bhayAnudabhayato .abhayaM
-dishat-achyutaM  |
+dishat-achyutaM  |
 
 tad-udaram-akhilaM vishantu yuga-parivarta-sahasra-saMkhyeyo
-.astaM-haMsam-iva pravishanti rashmayaH  |
-vAsudeva-sa\~NkarShaNa-pradyumnAsh-chAniruddhakaH 
+.astaM-haMsam-iva pravishanti rashmayaH  |
+vAsudeva-sa\~NkarShaNa-pradyumnAsh-chAniruddhakaH 
 sarva-jvarAn-mama-ghnantu viShNur-nArAyaNo hariH |
-vAsudeva-sa\~NkarShaNa-pradyumnAsh-chAniruddhakaH 
+vAsudeva-sa\~NkarShaNa-pradyumnAsh-chAniruddhakaH 
 sarva-shatrUn-mama-ghnantu viShNur-nArAyaNo hariH ||
 
 Then he invokes the trailokya-mohana viShNu by meditating on the below

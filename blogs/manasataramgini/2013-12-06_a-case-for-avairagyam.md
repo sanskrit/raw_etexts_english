@@ -60,7 +60,7 @@ more natural.
 The yati and his followers told us that we were in error, engaging in
 kutarka, even as our coethnic [uddaNDa of Kanchipuram had addressed his
 naMbUthiri rivals as elephants of
-kutarka](https://manasataramgini.wordpress.com/2005/05/29/the-great-chera-magicians/ "The great chera magicians").
+kutarka](https://manasataramgini.wordpress.com/2005/05/29/the-great-chera-magicians/ "The great chera magicians").
 They explained that the blissful sleep alluded to in the above verse was
 an ephemeral one. Moreover, its perpetual continuation till the point of
 piNDa-patana, as in the case of the tantra-spitting buddhakapAla, was

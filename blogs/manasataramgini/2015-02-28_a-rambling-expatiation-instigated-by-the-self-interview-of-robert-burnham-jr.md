@@ -148,7 +148,7 @@ Burnham should have lived to see this age of discovery in astronomy that
 has come for the first time since the great leap of Herschel and his
 contemporaries. This is due to great technological achievement on part
 of the United States. Our knowledge is likely to advance even more for a
-while as much greater successors of the Kepler mission are launched. We
+while as much greater successors of the Kepler mission are launched. We
 may even detect the chemical signatures indicating the existence of
 exo-life in the coming years, but that is different from the actual
 contact with the aliens, which should have happened. However, we suspect

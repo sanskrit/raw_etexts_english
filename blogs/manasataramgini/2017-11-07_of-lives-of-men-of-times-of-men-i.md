@@ -116,7 +116,7 @@ His son was Kambūjiya (Cambyses) named after the old Kamboja mentioned
 in our national epic. He led a great force for the conquest of Egypt,
 which was one of the last major powers left in the region that plainly
 refused to acknowledge the might of the Iranians. Initially, Kambūjiya
-and the pharaoh Amasis II had attempted to reach a truce. But Amasis
+and the pharaoh Amasis II had attempted to reach a truce. But Amasis
 himself had come to power in an internal conflict where he had killed
 another pharaoh Apries. The kinsfolk of that pharaoh and some
 disgruntled Egyptians appear to have gone over to the Iranian side with

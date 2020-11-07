@@ -386,7 +386,7 @@ Vimalasūri explicit calls out the stupidity of the āstika versions on
 grounds of their denigration of the great god Indra. This historical
 background would imply that the prājāpatya-s first rose as a dominant
 force inside the Vedic intellectual circles. The mark of this rise was
-first seen in the brāhmaṇa texts. Then as the prājāpatya-s “conquered”
+first seen in the brāhmaṇa texts. Then as the prājāpatya-s “conquered”
 the intellectual landscape they extended their influence to more
 “secular” intellectual activities such as the itihāsa-s and
 mathematics/science. This was when Brahman came to prominence in the

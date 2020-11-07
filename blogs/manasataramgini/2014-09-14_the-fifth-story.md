@@ -439,8 +439,8 @@ their territorial integrity (the cīna-s) or at least kept the śava-mata
 limited in their lands (the bindudhvaja-s). These illustrate to you the
 options that are available for bhārata-s – either you make an exit
 without even realizing you are out, or you prepare for a conflict where
-your costs will be enormous. Else a puerile existence will indeed be the
-nation’s lot like that of the cīna-bhṛtya-s at the edge of the
+your costs will be enormous. Else a puerile existence will indeed be the
+nation’s lot like that of the cīna-bhṛtya-s at the edge of the
 mahādvīpa. Of the dasyu-s, the mleccha-s do not even need to attack
 directly anymore – by using the marūnmatta-s and their plants, the
 śavārādhaka-s, they can sink the Hindus if they continue the way they

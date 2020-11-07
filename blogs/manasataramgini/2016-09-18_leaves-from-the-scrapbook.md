@@ -11,21 +11,21 @@ from the record of Lootika; some of what is contained in them might have
 a parallel version in Somakhya’s record.
 
 Entry 22; mārgavakra-mīna, Rākṣasa year of the first cycle: These summer
-days Vrishchika and I sleep on the terrace. We are often up late talking
+days Vrishchika and I sleep on the terrace. We are often up late talking
 and duly wake up late too, much to our parents dislike. We watch with
 awe the starry vault turn above us, looking out for meteors, Ulka-s,
 which are pratyakṣa-s of the dreadful elephant-headed Vināyaka deva-s,
 four in number created by the mighty Skanda. We often try to catch the
 faintest objects on good nights. Vrishchika fills me in on the work she
-is  doing on the genetics of subtler visible quantitative traits in
+is  doing on the genetics of subtler visible quantitative traits in
 humans and we break our heads about the many problems in our
 investigation before lapsing into a pleasant sleep dreaming of being in
 the embrace of our kāmin-s against their firm chests. Many aspects of
 such a study have been surprisingly neglected as it was derided as no
 better than disreputable things like phrenology, physiognomy, racism and
-the like. While with my assistance Vrishchika has a good handle of how
+the like. While with my assistance Vrishchika has a good handle of how
 to study and understand the actual sequence variation at various loci,
-we are hard-pressed with many aspects of the quantitative genetics.
+we are hard-pressed with many aspects of the quantitative genetics.
 Somakhya has a long distance friend named Indrasena with whom he is
 close and often in touch though he has seen him only once or twice. He
 is from the distant city of Udyānapurīṣa where Somakhya’s cousins
@@ -435,7 +435,7 @@ him that since the constructions he was drawing and the board were not
 part of the curriculum, which was being taught at school they would not
 take any remedial action. They let off Sphichmukh after mildly lecturing
 him about the impoliteness of taking others things. Somakhya revealed to
-me then that more than the loss of the box which he had himself obtained
+me then that more than the loss of the box which he had himself obtained
 for free he had lost something more precious with it. In the same bag he
 had kept a khārkhoḍā with the yantra of the pūrvāṃnāya with the trident
 and the three bhairavī-s and the 3 supine bhairava-s. With the loss of
@@ -454,7 +454,7 @@ wished to do, which was quite removed from my path of life.
 Nevertheless, that exam had several stiff mathematical tests. I had
 trained her the previous year for her university entrance exam and knew
 that she was quite capable of surviving the impending tests in algebra,
-calculus and numbers. But she does not have much of flourish in geometry
+calculus and numbers. But she does not have much of flourish in geometry
 so she is back to consult me. Thus, I and Jhilli decided to look at her
 problems. There was a problem of polygons whose areas and circumferences
 approximate

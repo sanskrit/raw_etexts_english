@@ -89,7 +89,7 @@ certain early vaiShNava groups like ekAntika-s and chitra-shikhaNDin-s.
 Now some pA\~ncharAtra tantra-s (e.g. viShNu saMhitA, 2nd paTala)
 mention the types of vaiShNava-s to be: 1) vaikhAnasa-s, 2) shikhin-s,
 3) ekAntin-s and 4) sAttvata-s, 5) mUlaka-s. Of these, the vaikhAnasa-s
-are the equivalents of their modern versions.  The shikhin-s are the
+are the equivalents of their modern versions.  The shikhin-s are the
 chitrashikhaNDin-s and ekAntin-s the followers of the ekAntika dharma of
 the Mbh – they were vaiShNAva equivalents of the shaiva atimArga
 ascetics.

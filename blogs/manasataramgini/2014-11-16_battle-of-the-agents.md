@@ -634,7 +634,7 @@ terrible coincidence. So glad that you made it alive\! ” Vrishchika:
 bahānāmati?” Lootika in a weak voice: “Vrishchika you are brilliant\!
 That is what it is. This was indeed the saṃgrāma the ascetic was talking
 about. I am sure our mother heard it wrong; it was supposed to be
-sūnā not snuṣā.” Varoli: “We could test the hypothesis if we could
+sūnā not snuṣā.” Varoli: “We could test the hypothesis if we could
 get hold of a bit of your slippers.” Lootika was feeling the sedative
 pull her back into somnolence. She muttered: “Check if Somakhya is still
 alive. If yes, please tell him about it right away….” She mumbled some
@@ -652,7 +652,7 @@ At least she is alive. Somehow the gods always seem kinder to you.”
 Despite the latter claim of Vidrum, his words agitated Somakhya. But he
 kept a calm face and expressed his condolences to Vidrum but he had to
 leave Vidrum to his grief because he had to know more of what had
-happened to Lootika. At the end of their conversation he said: “Vidrum,
+happened to Lootika. At the end of their conversation he said: “Vidrum,
 now that you tell me about this incident with Lootika, I better get in
 touch her. I hope the deva-s are kind to you.” He decided to contact
 Lootika’s family right away and seek their permission to see her. Just
@@ -744,7 +744,7 @@ noted activist for social justice and eradication of superstitions, was
 assassinated two years ago during a demonstration intended to show that
 bahānāmati was mere superstition. Initially, it was suspected to be the
 handiwork of the followers of śrī śrī śrī khaḍā daṇḍā bābājī, who was
-reputed to have performed many miracles according to his devotees. He
+reputed to have performed many miracles according to his devotees. He
 had been debunked and exposed as a fraud by Dr. Assolkar. However, the
 police found no involvement of the organization of the godman despite a
 thorough investigation. In course of another investigation concerning
@@ -804,7 +804,7 @@ Prithivi Singh incident might have inspired modern marūnmatta-s with
 access to the Mohammedan bioterrorists from the terrorist state to the
 north to make it a good bahānāmati agent.”  
 Lootika: “As Maurvi and I had been hit by the fire trick, and you were
-still alive but showing symptoms, I guess it was not that hard for
+still alive but showing symptoms, I guess it was not that hard for
 Vrishchika to take a shot. After all urgency was a key in not going the
 way of the lamented Prithivi Singh.”  
 Somakhya: “Vrishchika, now for that mantra – you will get it from

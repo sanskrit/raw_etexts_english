@@ -64,7 +64,7 @@ the great war at kurukṣetra in our national epic. At the heart of that
 war was a sibling rivalry between the Kuru and the Pāñcāla, the two
 mighty Indo-Aryan kingdoms of the day. Likewise in WW2 at its heart was
 the rivalry between the sibling Germanic peoples, the continental
-śūlapuruṣa-s and the island āngalika-s. At Kurukṣetra, there were
+śūlapuruṣa-s and the island āngalika-s. At Kurukṣetra, there were
 other rivalries running in parallel: e.g. between the Kuru Somadatta
 clan on one side and the yadu-s Kṛṣṇa and Sātyaki on the other; between
 two factions of Yadu-s, namely those who sided with the Kaurava-s and

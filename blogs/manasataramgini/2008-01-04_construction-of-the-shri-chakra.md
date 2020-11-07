@@ -106,7 +106,7 @@ certain other yantras like those of mAtangI or uchChiShTa chANDAlinI.
 
 The 3-4-5 triangle is already provided by baudhAyana in his sulba sUtra.
 The golden ratio appears in principle in construction of the pentagonal
-kuNDa of vAyu in the atharvavedic tradition. Thus, the original
+kuNDa of vAyu in the atharvavedic tradition. Thus, the original
 construction of the shrI chakra might draw upon the ancient aspects of
 Hindu practical geometry.
 

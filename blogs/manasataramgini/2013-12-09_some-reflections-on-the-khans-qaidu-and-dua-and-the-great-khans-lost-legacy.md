@@ -48,7 +48,7 @@ Mongol history that is generally neglected i.e., the later days of the
 house of Ögödei and Chagadai. The house of Ögödei had some connections
 with our land which we had narrated before – [some members fought on the
 side of Hindus led by hammIradeva against Alla-ad-din
-Khalji](https://manasataramgini.wordpress.com/2004/06/20/hammira-devas-last-stand/ "Hammira Deva’s last stand").
+Khalji](https://manasataramgini.wordpress.com/2004/06/20/hammira-devas-last-stand/ "Hammira Deva’s last stand").
 But their story in Central Asia is one of interest primarily to
 connoisseurs though with some general instructive lessons.
 
@@ -151,7 +151,7 @@ patiently heard their truth claims or ideas and inquired about their
 views on religion. While he heard all their views, from all we know he
 remained faithful to the old Mongol religion. [The tale of his daughter
 Qutulun Aiyaruk became a widely known
-fable](https://manasataramgini.wordpress.com/2006/05/18/qaidus-daughter/ "Qaidu’s daughter")
+fable](https://manasataramgini.wordpress.com/2006/05/18/qaidus-daughter/ "Qaidu’s daughter")
 and has been unduly romanticized, or presented a paragon of sexual
 equality in the west. Nevertheless, by all accounts she was a fierce
 warrior whom Marco Polo describes as striking like a hawk deep within
@@ -220,7 +220,7 @@ which Qubilai was addressed pejoratively as the local Khan of China:
 *“The old customs of our dynasty are not those of the Han laws. Today,
 when you remain in the Han territory, build a capital and construct
 cities learn their method of reading and writing and use Han laws what
-will happen to the old tradition ours.  They declared that we will be
+will happen to the old tradition ours.  They declared that we will be
 lost and all that will be left is the law of the Han despite having
 followed the way of the great Khans to conquer China.”* Clearly, Qaidu
 was seeing the Chinese legalism as being used as the inner core which
@@ -255,7 +255,7 @@ Despite the sources not being exactly pro-Qaidu they all admit that he
 was a legendary maker of armies and had developed a scheme of discipline
 and training that was seen before only in his great-grandfather, the
 great Chingiz. The [Jewish chronicler
-Rashid-ad-din](https://manasataramgini.wordpress.com/2011/05/20/some-notes-on-rashid-ad-din-bin-imad-ud-dawla-abul-khair-and-his-times/ "Some notes on Rashid ad-Din bin Imad ud Dawla Abu’l Khair and his times")
+Rashid-ad-din](https://manasataramgini.wordpress.com/2011/05/20/some-notes-on-rashid-ad-din-bin-imad-ud-dawla-abul-khair-and-his-times/ "Some notes on Rashid ad-Din bin Imad ud Dawla Abu’l Khair and his times")
 also noted that Qaidu was one of the most intelligent men he had ever
 seen and could put this ability to use in both strategic and political
 cunning. Now as the lord of a mighty force he sent an embassy to Abaqa
@@ -464,7 +464,7 @@ So it was indeed a strong cause to which Qaidu was able to rally much
 support within the Mongol elite.
 
 However, [as we have discussed
-before](https://manasataramgini.wordpress.com/2011/05/20/some-notes-on-rashid-ad-din-bin-imad-ud-dawla-abul-khair-and-his-times/ "Some notes on Rashid ad-Din bin Imad ud Dawla Abu’l Khair and his times"),
+before](https://manasataramgini.wordpress.com/2011/05/20/some-notes-on-rashid-ad-din-bin-imad-ud-dawla-abul-khair-and-his-times/ "Some notes on Rashid ad-Din bin Imad ud Dawla Abu’l Khair and his times"),
 there was another factor that was to prove even greater problem for the
 Mongols – their “secularism”, very much like that practiced by Hindus
 today. It appears that their endogenous religion was not sufficient to
@@ -512,7 +512,7 @@ Mongol secularism.
 
 Thus, we reach [the same conclusion as an earlier discussion of these
 issues in the
-Ilkhanate](https://manasataramgini.wordpress.com/2011/05/20/some-notes-on-rashid-ad-din-bin-imad-ud-dawla-abul-khair-and-his-times/ "Some notes on Rashid ad-Din bin Imad ud Dawla Abu’l Khair and his times").
+Ilkhanate](https://manasataramgini.wordpress.com/2011/05/20/some-notes-on-rashid-ad-din-bin-imad-ud-dawla-abul-khair-and-his-times/ "Some notes on Rashid ad-Din bin Imad ud Dawla Abu’l Khair and his times").
 It has general lessons whose significance cannot be missed by Hindus in
 possession of viveka even as their civilization appears to be on the
 decline. Today the majority of Hindus tend to hold views such as these:
@@ -529,7 +529,7 @@ the state will thrive. Such thoughts held by them were not different in
 a sense from those held by the Mongol elite 700-800 years ago. They had
 the best armies in the world, [a tolerant approach to religions
 including the universalizing
-Abrahamisms](https://manasataramgini.wordpress.com/2011/05/20/some-notes-on-rashid-ad-din-bin-imad-ud-dawla-abul-khair-and-his-times/ "Some notes on Rashid ad-Din bin Imad ud Dawla Abu’l Khair and his times")
+Abrahamisms](https://manasataramgini.wordpress.com/2011/05/20/some-notes-on-rashid-ad-din-bin-imad-ud-dawla-abul-khair-and-his-times/ "Some notes on Rashid ad-Din bin Imad ud Dawla Abu’l Khair and his times")
 and did not interfere with the personal religious praxis holding that
 that all expressions could coexist. Contrary, to the lurid depictions of
 the heathen Mongol state until recently, it was actually well-governed –

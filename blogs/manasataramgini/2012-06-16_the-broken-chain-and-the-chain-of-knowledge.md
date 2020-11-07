@@ -84,7 +84,7 @@ do you delight in studying the bodies of animals, such as the lizard,
 the cockroach or the worm, which are truly experiencing the effects of
 their past evil karma-s. Why not seek the true knowledge that
 liberates?” An ocher-robed one declared: “tatraaparA R^igvedo
-yajurvedaH sAmavedo .atharvavedaH shikShA kalpo vyAkaraNaM niruktaM
+yajurvedaH sAmavedo .atharvavedaH shikShA kalpo vyAkaraNaM niruktaM
 Chando jyotiShamiti | atha parA yayA tad akSharam adhigamyate ||” Verily
 the knowledge of the 4 veda-s, their linguistic analysis, rituals based
 on them and the sciences starting from astronomy are lower knowledge,

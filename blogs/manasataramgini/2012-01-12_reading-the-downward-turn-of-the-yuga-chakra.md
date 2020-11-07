@@ -45,7 +45,7 @@ as that of the chAchA and consequently are not paying attention to
 education and science. Instead, inspired by the Hindutva BJP government
 they have engaged in regressive practices. Sometime later I met a local
 BJP politician from the mahArATTa country (disclaimer: I neither belong
-to the BJP, the Kangress or any other Indian political party nor do I
+to the BJP, the Kangress or any other Indian political party nor do I
 endorse all politicians of any particular party). The politician was
 there to attend a talk by a mlechCha intellectual and colleague because
 he was an autodidact in science. An acquaintance introduced him to me.

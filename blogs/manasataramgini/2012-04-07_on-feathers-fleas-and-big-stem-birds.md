@@ -208,7 +208,7 @@ to the presence of the rosette motif formed by large studs and
 surrounding smaller scales as seen in the theropods and ornithischians.
 So the direct evidence for a rather conservative form of scalation is so
 pervasive in dinosauria that one might turn around and state that in the
-absence of Tianyulong and Psittacosaurus feathers are a purely  theropod
+absence of Tianyulong and Psittacosaurus feathers are a purely  theropod
 innovation. Does this imply that there was an apparent loss of feathers
 in most derived sauropod and ornithischian lineages? This seems to be
 the case in the case of the derived hadrosaurs where we have
@@ -279,7 +279,7 @@ scutate scales are developmentally closely related because a single
 mutation can eliminate both of them. Likewise, the high-line Sc
 indicated that a single mutation can redirect development from scutate
 scales to feathers. Further, the morphology of the feathers in
-the juvenile high-line Sc mutants is also reminiscent of the simpler
+the juvenile high-line Sc mutants is also reminiscent of the simpler
 feathers found in compsognathids like *Sinosauropteryx* and
 *Sinocalliopteryx* . Additionally, both *Sinocalliopteryx* and several
 dromaeosaurs have feathers on their feet just as seen in the high-line
@@ -303,7 +303,7 @@ evolution. Indeed analysis of the development of the feathers in the
 high-line Sc mutant gives specific clues regarding the emergence of the
 ornithischian and sauropodomorph integumentary structures.
 
-[![](https://lh3.googleusercontent.com/-T6XaDy0k6Ig/T45kp7chHuI/AAAAAAAACXQ/B_LdM3b-kb0/s800/feather_scale.jpg)](https://picasaweb.google.com/lh/photo/zrgPOv5H8YWmZsF86DZrVtMTjNZETYmyPJy0liipFm0?feat=embedwebsite) Embryonic
+[![](https://lh3.googleusercontent.com/-T6XaDy0k6Ig/T45kp7chHuI/AAAAAAAACXQ/B_LdM3b-kb0/s800/feather_scale.jpg)](https://picasaweb.google.com/lh/photo/zrgPOv5H8YWmZsF86DZrVtMTjNZETYmyPJy0liipFm0?feat=embedwebsite) Embryonic
 feather and scutate scale development. The homologous layers are colored
 equivalent. Note that layers above the dashed line are lost after
 hatching in the scale
@@ -425,8 +425,8 @@ In this regard one might also consider an insect from the Late Jurassic
 of Russia, *Saurophthirus*, with potential blood-sucking siphonate
 mouthparts and large claws, about 12mm in size. It is believed that it
 might be a mecopteran and might have been yet another ectoparasite of
-feathered dinosaurs. Similarly, another potential basal mecopteran
-*Strashila incredibilis* at 6 mm, has also been proposed to be a
+feathered dinosaurs. Similarly, another potential basal mecopteran
+*Strashila incredibilis* at 6 mm, has also been proposed to be a
 dinosaur ectoparasite. The consistently larger size of these insects
 relative to modern siphonopterans can be taken as evidence for the niche
 offered by the feathers on large dinosaurs. Of course the implications

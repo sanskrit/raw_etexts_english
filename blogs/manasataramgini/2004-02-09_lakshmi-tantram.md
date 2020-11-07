@@ -16,7 +16,7 @@ viShNu-shrI continuum state differentiates into action. Such emergent
 particles are endowed with a set of rules (sisR^ikSha) that can cause
 emergence of universes from them.
 
-3\) lakShmI as that particle of her own substance instantaneously
+3\) lakShmI as that particle of her own substance instantaneously
 develops into the primary emanation- the vishuddhAdhvA. This is filled
 by the activity of lakShmI that manifests in the form of rays filling
 it, vibrating with energy, and driving its evolution. Thus, this primary
@@ -28,7 +28,7 @@ associated with the primary particle that stirs out of the primary
 viShNu-shrI continuum: j\~nAna, shakti, bala, aishvarya, vIrya and
 tejas. There is no fluctuation of these attributes in this initial state
 of lakShmi and the results in a manifestion called vAsudeva. When only
- j\~nAna and bala become manifest emerges the form termed saMkarShaNa.
+ j\~nAna and bala become manifest emerges the form termed saMkarShaNa.
 When only vIrya and aishvarya are manifest the form is pradyumna. When
 only shakti and tejas are manifest the form is aniruddha. In all these
 forms the remain tattvas of the 6 are present but unmanifest.
@@ -40,8 +40,8 @@ consequences of the activities and everything is destroyed or merges
 into saMkarShaNa.
 
 6\) The above is considered the “non-phenomenal” or an ideal (in the
-sense of Plato) emanation . Then there is the phenomenal emanation made
-of 3 guNas. The  j\~nAna gives rise to sattva, aishvarya to rajas and
+sense of Plato) emanation . Then there is the phenomenal emanation made
+of 3 guNas. The  j\~nAna gives rise to sattva, aishvarya to rajas and
 shakti to tamas. lakshmI drives the phenomenal universe’s emanation by
 initiating a disequilibrium of the perfectly equilibriated 3 guNas. At
 first the rajas manifests and drives the emanation of the universe. This

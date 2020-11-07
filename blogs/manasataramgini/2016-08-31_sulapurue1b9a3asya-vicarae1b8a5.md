@@ -81,7 +81,7 @@ for the meticulous records of the Mohammedan historians cataloged by the
 likes of Sarkar.”  
 Somakhya: “Well I can confirm from this account from the mouth of the
 Mohammedan himself. It is said that the Shaikh Ali Pehlavan was a giant
-sūfī who was the  head of a forward volunteer force of the Khalji’s
+sūfī who was the  head of a forward volunteer force of the Khalji’s
 jihad into south India well before the main army. Even as the Turks were
 still consolidating in the north he led one of the first jihads into
 south India, which I am sure none of your eminent historians in Delhi
@@ -267,7 +267,7 @@ reduced to system: the organism of a pure history-picture, like the
 world of Plotinus, Dante and Giordano Bruno, is intuitively seen,
 inwardly experienced, grasped as a form or symbol and finally rendered
 in poetical and artistic conceptions.*”  
-She continued: “Aurva, the history that your cousin took to be real
+She continued: “Aurva, the history that your cousin took to be real
 history would be the one of the śūla-puruṣa’s pure nature-picture while
 that which declared as non-history by him and his professor would be the
 śarmaṇya’s history-picture\! Rather paradoxical indeed. Thus, we see two
@@ -459,7 +459,7 @@ the yavana-s of yore used the word theorio – to behold – what the
 the dianoia of the Platonists. Heisenberg says: ‘*Episteme is precisely
 that immediate awareness at which one can halt and behind which there is
 no need to seek anything further. Dianoia is the ability to analyze in
-detail, the result of logical deduction \[Footnote 1\].*‘ Of the former
+detail, the result of logical deduction \[Footnote 1\].*‘ Of the former
 we would say: tasya dṛṣṭyāṃ parokṣaṃ pratyakṣaṃ bhavati ।. It was such a
 process by which Goethe apprehended the basis of homeotic transformation
 of floral whorls to arrive at the theory of the origin of flowers (his

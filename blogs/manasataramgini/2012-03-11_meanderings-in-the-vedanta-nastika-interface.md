@@ -20,7 +20,7 @@ extracted this nectar \[the mANDukya kArika-s\], difficult to obtain
 even for the immortals, from the midst of the ocean known as the veda,
 churned by the insertion of the churning rod in the form of his
 intellect, seeing the beings sinking in the dreadful ocean of the
-enmeshment of the \[cycle of\] death and rebirth.
+enmeshment of the \[cycle of\] death and rebirth.
 
 Tradition declares gauDapAda as being a student of the shUka, the son of
 vyAsa. This anachronistic legend obscures the advaita tradition before
@@ -160,8 +160,8 @@ he questions the brAhmaNa of the vasiShTha clan as to whether the
 ancient R^iShi-s had really attained unity with brahman:
 
 kiM pana vAseTTha ye.api tevijjAnaM brAhmaNAnaM pubbakA isayo mantAnaM
-kattAro mantAnaM pavattAro yesam idaM etarahi tevijjA brAhmaNA porANaM
-mantapadaM gItaM pavuttaM samUhitaM tad anugAyanti tad anubhAsanti
+kattAro mantAnaM pavattAro yesam idaM etarahi tevijjA brAhmaNA porANaM
+mantapadaM gItaM pavuttaM samUhitaM tad anugAyanti tad anubhAsanti
 bhAsitam anubhAsanti vAchitam anuvAchenti, seyyathIdaM: aTTako vAmako
 vAmadevo vessAmitto yamataggi a\~Ngiraso bhAradvAjo vAseTTho kassapo
 bhagu, te.api evam AhaMsu: mayam etaM jAnAma mayam etaM passAma yattha
@@ -253,7 +253,7 @@ The twelfth class of heretics, the followers of mAThara (a nAstika term
 for the epic author) say that the adherents of nArAyaNa teach as
 follows. “*I create all things. I am the supreme one dwelling in all
 creatures. I create all things of the world, the living and the
-lifeless. Of all mountains I am the great Sumeru, the king of mountains.
+lifeless. Of all mountains I am the great Sumeru, the king of mountains.
 Of all waters I am the great ocean. Of all medicines I am the grain. Of
 all muni-s I am the muni kapila. If a man offers to me with devotion
 water, leaves, flowers or fruit, then I dwell in him and he dwells in
@@ -298,7 +298,7 @@ te .api mAmeva kaunteya yajanty avidhipUrvakaM ||BhG 9.23
 Even the worshipers, who with conviction worship other deities, worship
 only me, O son of kunti, but with the incorrect procedures.
 
-sarva dharmAn parityajya mAm ekaM sharaNaM vraja |   
+sarva dharmAn parityajya mAm ekaM sharaNaM vraja |   
 ahaM tvA sarva pApebhyo mokShayiShyAmi mA shuchaH || BhG 18.66  
 Forsaking all other dharma-s, come under my refuge alone; I will
 liberate you from all sins; have no sorrow.
@@ -367,8 +367,8 @@ reverse order.
 We shall now consider some of these similarities.  
 *The charioteer motif:* It is interesting to note the charioteer motif
 in both the gItA and the bauddha teachings. Of course the motif of the
-charioteer is central the very plot of the gItA, where kR^iShNa, the
-incarnate vAsudeva provides counsel to indra’s son. In the the bauddha
+charioteer is central the very plot of the gItA, where kR^iShNa, the
+incarnate vAsudeva provides counsel to indra’s son. In the the bauddha
 world the buddha appears to use the conversation between indra and
 mAtali the charioteer of indra in several sermons to introduce the
 bauddha dharma and to subtly demote the great indra of the veda-s. For

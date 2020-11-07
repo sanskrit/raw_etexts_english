@@ -10,7 +10,7 @@ were some which contained nasty problems in mathematics and physics that
 were used for boasting rights in our circle. Some of the more
 curricularly oriented students in my class apparently used those books
 for entrance exams to certain Indian undergraduate institutes that we
-had no interest in joining. We were reminded of  the Soviet penchant for
+had no interest in joining. We were reminded of  the Soviet penchant for
 such problems recently by an acquaintance. She brought to my attention a
 Euclidean problem which was allegedly part of a set of difficult
 mathematical questions which were used by the Soviet authorities to

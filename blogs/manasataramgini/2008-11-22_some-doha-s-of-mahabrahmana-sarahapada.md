@@ -11,7 +11,7 @@ a certain sense to one entrenched in smArta praxis, there is still
 something in the fellow’s free spirit that one cannot but help smile and
 chuckle at.
 
- 
+ 
 
 *dohAkosha-gIti 96-97: (in apabhraMsha for which Itrans is adapted just
 as for Prakrit – but not suitable to conversion to nAgari):  

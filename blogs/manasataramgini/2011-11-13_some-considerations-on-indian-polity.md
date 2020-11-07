@@ -145,7 +145,7 @@ poor understanding of their own legacy, especially in the old language
 of the Hindu cosmopolis. We can easily see that this lacuna in their
 understanding results in disastrous formulations of strategy – a rather
 sordid situation for the successors of bhIShma, vidura or viShNugupta.
-Instead,  we are provided with are strategic constructs informed by
+Instead,  we are provided with are strategic constructs informed by
 facile ideas, such as those held by chAchAjI and the mahAtmA. Thus,
 looking into classical rAja-dharma is a necessary corrective to avoid
 the catastrophic course taken by Greece or Egypt. Third, modern

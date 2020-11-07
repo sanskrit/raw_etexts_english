@@ -83,20 +83,20 @@ spear like that of kumAra, a bunch of severed heads, a khaTvA\~Nga, a
 utkrAntida (death-dealing rod) and an ashani (thunderbolt).
 
 shakunI; for fighting enemies he uses: OM namaH padmapatrAkShI
-kalyANa-vadane shive | imAm Ahutim saMgR^ihya jayaM dehi sushobhane ||
+kalyANa-vadane shive | imAm Ahutim saMgR^ihya jayaM dehi sushobhane ||
 +svAhA
 
-For pediatric use: OM namaH padmapatrAkShI kalyANa-vadane shive | imAm
+For pediatric use: OM namaH padmapatrAkShI kalyANa-vadane shive | imAm
 Ahutim saMgR^ihya bAlam mu\~ncha sushobhane || +svAhA  
 As oblations he may offer guggulu, ghee and polikA-s. He visualizes her
 as slender-waisted with well-formed breasts, having large eyes. She
 holds a spear and a water pot.
 
 pishAchikA; for fighting enemies he uses: OM namaH sarvabhUteshI
-shobhane tvaM pishAchike | hutim chaiva puraskR^itya tvaritaM bha\~nja
+shobhane tvaM pishAchike | hutim chaiva puraskR^itya tvaritaM bha\~nja
 duShkR^itam ||  
 For pediatric use: OM namaH sarvabhUteshI shobhane tvaM pishAchike
-| hutim chaiva puraskR^itya tvaritaM mu\~ncha bAlakam ||  
+| hutim chaiva puraskR^itya tvaritaM mu\~ncha bAlakam ||  
 As oblations he may offer ghee rice.He visualizes her as black in color,
 with a cleaver and a skull bowl.
 

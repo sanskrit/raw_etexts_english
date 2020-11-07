@@ -77,7 +77,7 @@ them to intrude on to very character of India. Before going ahead, let
 us briefly take up one issue that many a naive Hindu brings up: “Is
 Kosambi not a great intellectual? Hence, what sense does it make to
 criticize him and replace him with your typical Hindu
-obscurantism?” Etc. Yes, Kosambi himself was certainly an admirable
+obscurantism?” Etc. Yes, Kosambi himself was certainly an admirable
 polymath and I have myself expressed some level of intellectual kinship
 with him (To clarify there is some overlap on many topics though not
 reaching a “bhavabhUtian equivalence”, as in:  

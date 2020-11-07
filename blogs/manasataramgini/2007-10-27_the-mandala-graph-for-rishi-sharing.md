@@ -174,7 +174,7 @@ seeing some of these elements had their own problems. I was mentally
 distracted by the need to rebutt their theories, but then I thought it
 was just not worth it. Anyone who studies the veda, and does not dismiss
 Hindu tradition as meaningless, can see that what I outline above is the
-essence of the whole thing, and is about as much as we can draw in a
+essence of the whole thing, and is about as much as we can draw in a
 cursory analysis. Of course there are numerous specific points
 concerning specific aspects of the shrauta ritual and to some extant the
 gR^ihya rituals that we might cover if we feel so inclined in the

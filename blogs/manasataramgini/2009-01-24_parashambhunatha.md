@@ -14,7 +14,7 @@ the kulayoginI: s-h-rauM.
 In the middle of the chakra dwells the conjoined pair of chitparAMbA and
 parashaMbhunAtha. Around them are the 32 emanations of parA devI seated
 on the laps the 32 bhairava-s emanating from parashaMbhunAtha.  
- 
+ 
 
 |                |                     |
 | :------------: | :-----------------: |

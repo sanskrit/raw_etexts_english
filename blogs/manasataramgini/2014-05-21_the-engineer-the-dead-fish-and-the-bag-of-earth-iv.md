@@ -22,7 +22,7 @@ their way. The dull drone of the plane lulled her to sleep and she had a
 dream where the encounter with the vetAla they had many years ago
 replayed itself. She woke up and thought what could all this mean –
 Somakhya’s parakAyapraveshanaM was as dramatic as the coming of the
-vetAla. These might be linked she thought. But nothing really made
+vetAla. These might be linked she thought. But nothing really made
 complete sense to her. Finally, the plane landed in Moscow and she had
 to wait for her flight to Ulaanbaatar. She decided to send off mail to
 inform her family of her whereabouts – they had greatly disapproved of
@@ -78,7 +78,7 @@ message. After sleeping off the jet lag she ventured with Temülen to get
 some milk when they were accosted by a mlechCha wearing dark glasses.
 Immediately, it struck Lootika that the fellow looked like a mlechCha
 praNidhi who used to be lionized as a great hero in movies fabricated by
-the mlechCha-s, though in reality such were barbarous harbingers of
+the mlechCha-s, though in reality such were barbarous harbingers of
 trouble to other nations. He was built like a pR^iShThabhettR^i and
 Lootika realized he meant trouble. He was being very friendly and trying
 to chat them up but they deftly brushed him off and quickly walked into
@@ -167,7 +167,7 @@ would make big news and cause a foreign-relations scandal for the
 mlechCha-s they knew the mlechCha-s would have to shut their mouth and
 keep their hands off them. Then they drove back to an encampment near
 the mouth of the Sujekht valley and having rented horses rode to a
-desolate camp site to enjoy the night skies.  Temülen remarked that
+desolate camp site to enjoy the night skies.  Temülen remarked that
 truly the god one experienced here was möngke ṭngri; to Lootika it
 echoed back as the presence of the great asura varuNa.
 

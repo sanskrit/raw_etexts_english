@@ -42,7 +42,7 @@ the second wheel is a point which in turn is the center of yet another
 wheel rotating at yet another speed and so on. Now what curve would a
 point on the rim of the terminal wheel of this system would trace out?
 \[See link for
-[animation](https://app.box.com/s/xplwovnkox5nz6wspt0mua4lufeu6ktm)\] 
+[animation](https://app.box.com/s/xplwovnkox5nz6wspt0mua4lufeu6ktm)\] 
 
 More than 20 years ago mathematician Frank Farris, who has a great eye
 for symmetry and beauty, showed that this can be described rather simply

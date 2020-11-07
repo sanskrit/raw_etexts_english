@@ -141,7 +141,7 @@ The western Lithuanian spell against the White Russian (\#3) also
 reminds one of the spell of the Atri-s invoking Parjanya against
 evil-doers:
 
-utānāgā īṣate vṛṣṇyāvato yat parjanya stanayan hanti duṣkṛtaḥ | RV
+utānāgā īṣate vṛṣṇyāvato yat parjanya stanayan hanti duṣkṛtaḥ | RV
 5.083.02cd  
 Even the guiltless fly away from him of bull-like might when thundering
 Parjanya strikes the evil-doers.
@@ -314,8 +314,8 @@ Abrahamisms in their dominion unlike the other contemporary states of
 Europe.
 
 Thus, from 1283 CE onward despite a near continuous three front holy
-war: 1) waged by the German crusaders from the north and south
-i.e. Livonia and Prussia; 2) by Russian Orthodox church from the east;
+war: 1) waged by the German crusaders from the north and south
+i.e. Livonia and Prussia; 2) by Russian Orthodox church from the east;
 3) The Hungarian and Polish crusades from the south, as the historian of
 Lithuania, S.C. Rowell points out, the expansion of the heathen
 Lithuanian state continued unabated reaching its peak under the
@@ -356,7 +356,7 @@ Lithuanians a message that the crusades would stop if they converted
 situation\]. Even as the Christians thought the fall of Lithuania to
 Abrahamism was at hand, the heathens regrouped and lead a major
 counter-attack the next year. Strengthened by Mongol Bauddha-s and
-shamanists fleeing from the Golden Horde they were able to route the
+shamanists fleeing from the Golden Horde they were able to route the
 Polish crusaders and reconquer the territories they had taken and
 further expand into the Rus land. By 1352 CE the Lithuanian heathens
 invaded the Polish-held Galich in southwest Rus and captured several

@@ -111,7 +111,7 @@ Indra and Prahlāda.
 named Pramathin and Vajravega. He captures Sugrīva. Lakṣmaṇa pursues him
 and after a fierce fight kill him with brahmāstra. Then Hanūmat and Nala
 kill the other two rakṣas-es.  
-\-After the fall of Kumbhakarṇa, Megannāda enters the field and after a
+\-After the fall of Kumbhakarṇa, Megannāda enters the field and after a
 fierce fight became invisible in the sky and struck down Rāma and
 Lakṣmaṇa with his missiles. Then he tied them with his magical arrow
 net. Vibhīṣaṇa having successfully accomplished victory against the
@@ -169,7 +169,7 @@ neśur brahmāstra-nirdagdhā na ca bhasmāpy adṛśyata ||
 All his bodily substances, indeed his flesh and blood, were burnt by the
 brahma missile such that not even ash was seen.
 
-\-Rāma then conferred Lankā on Vibhīṣaṇa. He along with Avindhya came
+\-Rāma then conferred Lankā on Vibhīṣaṇa. He along with Avindhya came
 out bringing Sītā.  
 \-Rāma then tells Sītā that she is free and may go wherever she would
 like. He says that he has done his duty of freeing her but irrespective
@@ -206,7 +206,7 @@ to Kubera.
 In conclusion, the upākhyāna clearly represents a distinct tradition but
 generally recapitulates all the key elements of the extant VR. Notably,
 in the this version Vibhīṣaṇa is a major positive figure – he does not
-appear a like traitor, having joined Kubera early in his life he plays a
+appear a like traitor, having joined Kubera early in his life he plays a
 major role in the war. Lakṣmaṇa-s profile is also higher in this
 version. No special role is allotted to Hanūmat such as bringing the
 medicinal mountain from the Himālaya or in the war to the exclusion of

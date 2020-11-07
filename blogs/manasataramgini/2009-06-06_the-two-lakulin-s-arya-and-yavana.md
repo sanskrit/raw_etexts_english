@@ -218,7 +218,7 @@ taken up by ascetics with a vedic mantra which is cited in many texts
 including saMnyAsa upaniShad-s and also the dharma sUtra-s (e.g. NpU 169
 or BauSu 2.17.32):  
 sakhA mA gopAya | ojah sakhAyo.asiindrasya vajro.asi vArtragnaH sharma
-me bhava yatpApaM tannivAraye ||  
+me bhava yatpApaM tannivAraye ||  
 Now it should be noted the daNDa taken by the ascetic is explicitly
 identified as the vajra of indra. Interesting, the Greek cognate uagros
 is used for the club of Herakles. Thus, even in this case it is not

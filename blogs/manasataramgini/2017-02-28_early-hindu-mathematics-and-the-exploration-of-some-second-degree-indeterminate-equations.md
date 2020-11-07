@@ -441,7 +441,7 @@ y=189073995951839020880499780706260)](https://s0.wp.com/latex.php?latex=%28x%3D3
 "(x=3879474045914926879468217167061449,\\\\ y=189073995951839020880499780706260)")
 which is roughly the diameter of an apple (6.27 cm) in Planck’s lengths.
 We provide this
-[table](https://manasataramgini.files.wordpress.com/2017/02/chakravala_padded.pdf "chakravala_padded") for
+[table](https://manasataramgini.files.wordpress.com/2017/02/chakravala_padded.pdf "chakravala_padded") for
 the reader’s enjoyment as such information does not seem to be easily
 available. The first two columns give the jyeṣṭa and hrasva. The next
 two columns
@@ -708,7 +708,7 @@ cutting the surface of the generative cone of the conic (Figure 7).
 
 The intricacy of their actual pattern arises from the interplay of this
 more obvious feature with the distribution of coprimes with opposite
-parity.  One specific aspect of this arrangement is the presence of
+parity.  One specific aspect of this arrangement is the presence of
 certain
 ![(x,y)](https://s0.wp.com/latex.php?latex=%28x%2Cy%29&bg=ffffff&fg=333333&s=0
 "(x,y)") pairs that differ by 1, e.g. (3,4), i.e. triples with legs
@@ -743,13 +743,13 @@ magnitude of their hypotenuse.
 ![\\lim \\limits\_{z\_i \\to \\infty} \\dfrac{N(z)}{z\_i}
 =\\dfrac{1}{2\\pi}](https://s0.wp.com/latex.php?latex=%5Clim+%5Climits_%7Bz_i+%5Cto+%5Cinfty%7D+%5Cdfrac%7BN%28z%29%7D%7Bz_i%7D+%3D%5Cdfrac%7B1%7D%7B2%5Cpi%7D&bg=ffffff&fg=333333&s=0
 "\\lim \\limits_{z_i \\to \\infty} \\dfrac{N(z)}{z_i} =\\dfrac{1}{2\\pi}")  
-This convergence is illustrated in Figure 8.  Thus, remarkably, as is
+This convergence is illustrated in Figure 8.  Thus, remarkably, as is
 typical of mathematics, we start with the elementary geometry of right
 triangles which are part of the rectilinear figures of the vaidika
 ritual, pass on to conics, intersect with the object of the cakravāla,
 and end up with a nice appearance of that quintessential number
 ![\\pi](https://s0.wp.com/latex.php?latex=%5Cpi&bg=ffffff&fg=333333&s=0
-"\\pi").  Thus, one appreciates Gauss’s famous statement: “ἀεὶ ὁ θεὸς
+"\\pi").  Thus, one appreciates Gauss’s famous statement: “ἀεὶ ὁ θεὸς
 ἀριθμετἰζεῖ (the god always arithmeticizes)”.
 
-![triples\_2pi\_convergence](https://manasataramgini.files.wordpress.com/2017/02/triples_2pi_convergence.png?w=640)Figure 8
+![triples\_2pi\_convergence](https://manasataramgini.files.wordpress.com/2017/02/triples_2pi_convergence.png?w=640)Figure 8

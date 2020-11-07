@@ -11,7 +11,7 @@ is shown below the lotus. Another is supposed to have contained a
 4-armed naTarAja. Another had a li\~nga while and yet another had a
 umA-maheshvara on a bull. The complex also contained shrines of: indranI
 with 4 arms in seated lalitAsana; gaNapati with 4 arms; kubera with his
-wife, holding a purse; 8 armed chAmuNDA;  4 armed kumAra, temples of
+wife, holding a purse; 8 armed chAmuNDA;  4 armed kumAra, temples of
 vAyu, varuNa and yama, each depicted with 4 arms; and one of viShNu near
 a river.
 
@@ -24,7 +24,7 @@ similar to the southern ones (eg. naTarAja, li\~nga with nandi, kumAra
 and the like, were not exclusive to the south). Its glory is borne out
 in a testimony of a twelth century poem:
 
-*Fourteen storeys rise above the earth and seven thousand pillars,  In
+*Fourteen storeys rise above the earth and seven thousand pillars,  In
 row after row, while eighteen hundred statues studded with emeralds
 adorn it.*   
 *It is endowed with thirty thousand flagstaffs with stems carved and

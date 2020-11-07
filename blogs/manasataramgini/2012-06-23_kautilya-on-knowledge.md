@@ -228,7 +228,7 @@ acquire new knowledge and revise what he learns.
 
 He states :  
 shrutAd hi praj\~nA^upajAyate praj\~nAyA yogo yogAd AtmavattA^iti
-vidyAnAM sAmarthyam || 1.5.16
+vidyAnAM sAmarthyam || 1.5.16
 
 Verily from hearing (i.e. gathering information) emerges knowledge; that
 knowledge allows its application; from its application one becomes

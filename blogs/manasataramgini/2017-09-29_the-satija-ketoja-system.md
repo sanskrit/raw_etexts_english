@@ -182,17 +182,17 @@ Indeed, certain properties of our distribution are captured quite well
 by this Cauchy distribution. For example, for the above run of the S-K
 system we compare probabilities for different values being reached with
 Cauchy distribution:  
-S-K system                             Cauchy distribution  
+S-K system                             Cauchy distribution  
 ![p(|x\_n|\>100)=0.00253](https://s0.wp.com/latex.php?latex=p%28%7Cx_n%7C%3E100%29%3D0.00253&bg=ffffff&fg=333333&s=0
-"p(|x_n|\>100)=0.00253")    
+"p(|x_n|\>100)=0.00253")    
 ![p(|x|\>100)=0.00381](https://s0.wp.com/latex.php?latex=p%28%7Cx%7C%3E100%29%3D0.00381&bg=ffffff&fg=333333&s=0
 "p(|x|\>100)=0.00381")  
 ![p(|x\_n|\>500)=0.00058](https://s0.wp.com/latex.php?latex=p%28%7Cx_n%7C%3E500%29%3D0.00058&bg=ffffff&fg=333333&s=0
-"p(|x_n|\>500)=0.00058")    
+"p(|x_n|\>500)=0.00058")    
 ![p(|x|\>500)=0.000763](https://s0.wp.com/latex.php?latex=p%28%7Cx%7C%3E500%29%3D0.000763&bg=ffffff&fg=333333&s=0
 "p(|x|\>500)=0.000763")  
 ![p(|x\_n|\>1000)=0.00031](https://s0.wp.com/latex.php?latex=p%28%7Cx_n%7C%3E1000%29%3D0.00031&bg=ffffff&fg=333333&s=0
-"p(|x_n|\>1000)=0.00031")  
+"p(|x_n|\>1000)=0.00031")  
 ![p(|x|\>1000)=0.000381](https://s0.wp.com/latex.php?latex=p%28%7Cx%7C%3E1000%29%3D0.000381&bg=ffffff&fg=333333&s=0
 "p(|x|\>1000)=0.000381")
 

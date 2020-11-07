@@ -4,8 +4,8 @@ title = "skanda prINanaM of the sAmavedic tradition"
 +++
 We had earlier see how the R^igvedic hymns have been [adapted for the
 worship of
-kumAra](https://manasataramgini.wordpress.com/2006/10/18/vedic-mantras-adapted-for-kaumara-ritual/) as
-specified in the Kashmirian kaumAra ritual of the kaTha yajurvedin-s.
+kumAra](https://manasataramgini.wordpress.com/2006/10/18/vedic-mantras-adapted-for-kaumara-ritual/) as
+specified in the Kashmirian kaumAra ritual of the kaTha yajurvedin-s.
 The [devI-bhAgavataM states that the worship of
 ShaShThi](https://manasataramgini.wordpress.com/2006/01/28/the-vrata-of-our-dear-goddess/)
 is connected with the kauthuma school of the sAmaveda. When one digs

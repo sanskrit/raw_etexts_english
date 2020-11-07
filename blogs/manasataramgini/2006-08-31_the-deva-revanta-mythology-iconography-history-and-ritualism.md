@@ -6,7 +6,7 @@ title = "The deva revanta: Mythology, iconography, history and ritualism"
 
 Like kArttikeya, revanta, a once popular deity, has faded from the Hindu
 mind, with decline of Indic civilization. However, in the south his
-successor ectype shAstR^i is still worshiped in the folk religion.  We
+successor ectype shAstR^i is still worshiped in the folk religion.  We
 have long wanted collate a file on this deva and revive his rites as we
 are amongst the few still adhering to his worship. We have been made
 aware of some other works on him but we have not read those.  
@@ -49,13 +49,13 @@ throughout the early medieval period throughout Greater India from
 Afghanistan (as reported by Priyatosh Banerjee) to the Vanga country.
 Typically he is shown with hunting attendants and is invariably
 accompanied by a dog. As with sUrya he is also shown with high-legged
-shoes and usually wields a sword and bow. revanta in his classical form
-appears to be attested (prior to 1100 of the CE)  only in the zone from
+shoes and usually wields a sword and bow. revanta in his classical form
+appears to be attested (prior to 1100 of the CE)  only in the zone from
 the northwest to the east. His southern most spread in the classical
 form is seen Orissa. However, there are indicators that revanta once had
-a pan-Indian presence in some form comparable to the late
+a pan-Indian presence in some form comparable to the late
 vedic/”itihasic” deities such as kArttikeya, the pA\~ncharatric tetrad
-and the rapidly evolving vinAyaka. revanta’s iconography is strikingly
+and the rapidly evolving vinAyaka. revanta’s iconography is strikingly
 similar to that of the deity popular in mahAraShTra, karnATaka and
 Andhra known as khaNDoba or mallaNNa. He is depicted as riding a horse
 with a a dog accompanying him and holding a sword. Further, khaNDoba is
@@ -63,10 +63,10 @@ known as a manifestation of mArtaNDa-bhairava and an explicit connection
 with the solar cult through this link is seen in some khaNDoba temples
 of Maharashtra where he is shown with a solar emblem. Thus, it is likely
 that revanta evolved into the local khaNDoba cult after the 12th century
-CE in middle India. In this process khaNDoba derivative appears to
-have lost connection with the classical revanta. A parallel variant
+CE in middle India. In this process khaNDoba derivative appears to
+have lost connection with the classical revanta. A parallel variant
 appears to have reached the deep south early in the form of the
-comparable equestrian deity shAstR^i also known as Arya (tamiL:
+comparable equestrian deity shAstR^i also known as Arya (tamiL:
 chAttAn/ayyanAr). In this case he has been made the son of rudra and
 mohinI but there is a faint memory of his original roots in the form of
 a poorly known parallel tradition that sees him as a son of sUrya. In
@@ -76,7 +76,7 @@ still known in his famous shrine at the shabari hill). In addition the
 companions of shAstR^i, like the
 [karappu-chuvami-s](https://manasataramgini.wordpress.com/2007/06/16/shasta-in-the-dravida-country/ "shAstA in the drAviDa country")
 appear to be parallels of the equestrian companions with whom the
-classical revanta is often depicted.  In the north and west he has a
+classical revanta is often depicted.  In the north and west he has a
 prominent presence in Rajasthan and Gujarat which also correspond with
 the western zone of the [old saura
 sect](https://manasataramgini.wordpress.com/2005/11/21/saura-mata/). A

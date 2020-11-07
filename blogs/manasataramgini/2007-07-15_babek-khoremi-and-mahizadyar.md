@@ -106,7 +106,7 @@ was ransomed for a large sum of money from the Arabs (824 CE).
 \-Then the Arab general Mohammed ibn Ummayad tried to take on Babek in
 829 CE. He initially won some battles against the Iranians and for 6
 months advanced deep into Iranian territory. Here he was ambushed by
-Babek, who out-maneuvered him to occupy a higher position and with his
+Babek, who out-maneuvered him to occupy a higher position and with his
 archers killed ibn Ummayad and his chief officers.  
 \-Babek started inducing Islamic governors like ibn Haitham in Qom and
 Ispahan to give up Islam and join his cause. Utterly defeated the Kalif
@@ -143,7 +143,7 @@ Armenia.
 \-But Afsin followed him and blockaded him. In starvation he sought help
 of the governor of Armenia who betrayed him to Afsin. In the subsequent
 battle the Moslems also captured Mahizadyar.  
-\-They were sent to Baghdad where the Kalif paraded Babek on an elephant
+\-They were sent to Baghdad where the Kalif paraded Babek on an elephant
 bought from India. Then his hands and legs were cut and finally his
 head. His body parts were hung on gibbet in a public square in Baghdad.
 In the same place Mahizadyar was beheaded and his corpse put on display.

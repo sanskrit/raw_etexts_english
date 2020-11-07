@@ -156,7 +156,7 @@ were overcome by the urge to measure the arc of the ellipse. We realized
 for ourselves that this cannot be achieved using trigonometric functions
 and thus discovered for ourselves the existence of something known as
 the elliptic functions and elliptic integrals. It was again in this
-context we came across a remarkable approximate formula for the
+context we came across a remarkable approximate formula for the
 perimeter of an ellipse by 27 year old shrInivAsa rAmAnujan, which we
 still cannot stop being amazed by (yet another testimony of his
 unimaginable genius):

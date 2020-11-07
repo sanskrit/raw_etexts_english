@@ -89,7 +89,7 @@ chakra to save people from the terror of the Ghazis
 
 Succor finally came in the form the bukka-rAya-I of Vijayanagara, who
 along with his brothers had initiated the Hindu revival. He commanded
-his son kumAra kaMpaNa, to destroy the Islamic power in the south,
+his son kumAra kaMpaNa, to destroy the Islamic power in the south,
 including the Sultan of Madhurai who had established himself in the
 pANDyan domain. For this great campaign of 1365-1371 CE he divided his
 army into three wings, of which one was led by himself, another was
@@ -103,7 +103,7 @@ ShaDakSharI mantra early in his life from the vaiShNava teacher vedAnta
 deshika. His father who moved to the Andhra country to serve the
 Vijayanagaran empire rose to the rank of an amAtya of the southern zone
 under harihara-I. Due to his administrative and military abilities
-gopaNArya was appointed as amAtya under bukka’s son kumAra kaMpaNa.
+gopaNArya was appointed as amAtya under bukka’s son kumAra kaMpaNa.
 
 The combined Vijayanagaran army first seized Arcot from the
 shAmbhuvarAya (a vahni-kula rAjpUt settled in the drAviDa country) who

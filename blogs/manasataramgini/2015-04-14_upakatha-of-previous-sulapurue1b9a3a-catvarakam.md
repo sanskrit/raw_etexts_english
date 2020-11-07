@@ -84,7 +84,7 @@ harm putting down a lot on paper. Moreover, given that today science is
 done by the mleccha-rIti, we should be ready to move fast to strike
 before our bhrātṛvyas.”
 
-L: “One thing which caught my attention is in regard to the little that
+L: “One thing which caught my attention is in regard to the little that
 we know of the peculiar philosophical positions of Gauss. Among these
 was his alteration of a statement of Plato recorded by Plutarch ‘ἀεὶ ὁ
 θεὸς γεωμετρεῖ (the god always always geometrizes)’ to ‘ἀεὶ ὁ θεὸς
@@ -145,8 +145,8 @@ the two other guṇa-s, energy maps to rajas and mass to tamas. The deva-s
 were seen as manifestations of that underlying information the sattva:
 thus one may see them as the limbs of the code that operates the
 universe-computer. In this conception one might say we are the ones
-closer to the Platonists. But there is no place for the θεὸς outside of
-the universe-computer, as Gauss, due the vāsana-s of the preta-delusion
+closer to the Platonists. But there is no place for the θεὸς outside of
+the universe-computer, as Gauss, due the vāsana-s of the preta-delusion
 might have imagined.”
 
 L: “Hence, it would seem to me that when those entities of the

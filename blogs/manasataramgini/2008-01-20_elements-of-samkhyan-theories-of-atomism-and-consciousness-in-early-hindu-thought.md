@@ -85,7 +85,7 @@ commentary to the sUtra 3.44 \[on the “subjugation” of matter by the
 yogin\] the vyAsa-bhAShya provides an introduction to sAmkhyan atomism.
 
 sthUla-svarUpa-sUkShma-anvaya-arthavattva saMyamAd bhUta jayaH ||
-YS 3.44
+YS 3.44
 
 The vyAsa bhAShya explains that sthUla is the bulk matter, which in turn
 in made up of an assembly of molecules or atoms – denoted by the term

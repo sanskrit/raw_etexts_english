@@ -67,7 +67,7 @@ mahAbhArata:
 apAM phenopamaM lokaM viShNormAyA shatair-vR^itam |  
 chitta-bhitti pratIkAshaM nala sAramanarthakam || (Mbh-critical
 12.290.57)  
-“The universe is like the foam of water enveloped by hundreds of mAyA-s
+“The universe is like the foam of water enveloped by hundreds of mAyA-s
 of viShNu, like a painted wall and ephemeral as a hollow reed.”
 
 So we feel sAmkhyan thinking was always there in some form in the

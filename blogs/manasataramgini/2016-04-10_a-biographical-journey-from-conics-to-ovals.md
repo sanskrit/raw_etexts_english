@@ -3,7 +3,7 @@ title = "A biographical journey from conics to ovals"
 
 +++
 As this article needed a lot of figures with some mathematical notation
-it is being presented as a PDF file: [A biographical journey from conics
+it is being presented as a PDF file: [A biographical journey from conics
 to ovals](https://app.box.com/s/t4mastdc8f4vraf4an6xsvh9n7hpcy5b)
 
 This may be read a continuation of earlier notes such as:  

@@ -72,7 +72,7 @@ dispatched his half-brother Anandrao and commander Prataprao, each with
 around 7500 troops to preemptively attack Bijapur. The Maratha generals
 rapidly surged forth and fell on Bahlol Khan at Umrani close to Bijapur
 before the Mogols could join him. On a hot April day the Marathas
-cut off the water supply of the Moslems and fell upon them in a
+cut off the water supply of the Moslems and fell upon them in a
 combined attack by Prataprao and Anandrao. The Moslems were completely
 outclassed in the fierce battle, the Marathas routed them, and Bahlol
 Khan was completely surrounded by the former. He secretly sent a message

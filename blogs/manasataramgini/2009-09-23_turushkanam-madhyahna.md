@@ -26,7 +26,7 @@ lord of the orthodox church leading them in their own religious war. In
 the Mohammedan world Suleyman was accompanied by Shah Ismail of Iran who
 saw himself as a jihadist for the Shia cause. Further east, Padishah
 Akbar saw himself as the true ghazi who was rooting out the kaffirs of
-Hind. The trajectory each of these took was to set the tune of history
+Hind. The trajectory each of these took was to set the tune of history
 to this date. With the ascendancy of Akbar and Suleyman in the east and
 west it was the zenith of Mohammedanism on one hand and the Turkic
 military system on the other. There are striking similarities as well as

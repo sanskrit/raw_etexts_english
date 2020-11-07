@@ -252,7 +252,7 @@ venerable seat of ārya culture in India, they found its modern harshness
 and decadence behind the facade of opulence to be jarring. Smeared with
 the grime of the long journey, which was made longer by the delay from
 the collision of their train with a buffalo, they tried to get to their
-guesthouse as fast as they could upon disembarking. Having occupied 
+guesthouse as fast as they could upon disembarking. Having occupied 
 their rooms, bathed and refreshed, they took in some cool air of the
 north on the terrace of their guesthouse. That evening Somakhya’s family
 had been invited to visit the home of their clansman, who was a

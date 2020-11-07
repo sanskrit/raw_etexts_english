@@ -96,7 +96,7 @@ alliance. There were two nations that we \*might\* be able to count on
 as allies \[and that too specifically only in tactical or arms sales
 related issues\] – Israel (on a personal note, I was touched by the kind
 inquiry by an Israeli acquaintance on the unfolding invasion) and the
-Rus. However, we should be prepared to do all fighting on our own, with
+Rus. However, we should be prepared to do all fighting on our own, with
 at best some hardware support from these allies — everyone ultimately
 has to fight their own battles.
 

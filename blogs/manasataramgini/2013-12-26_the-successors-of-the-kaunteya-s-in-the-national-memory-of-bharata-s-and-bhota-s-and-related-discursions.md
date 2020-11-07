@@ -35,11 +35,11 @@ reality most certainly culturally Arya. This group was also contending
 for power in this period against the yadu-s led by kR^iShNa. [The
 pANDu-s coming from the Iranian border zone appear to have subsequently
 emerged as key
-players](https://manasataramgini.wordpress.com/2006/05/04/the-mystery-of-the-pandava-s/ "The mystery of the pANDava-s").
+players](https://manasataramgini.wordpress.com/2006/05/04/the-mystery-of-the-pandava-s/ "The mystery of the pANDava-s").
 Initially they allied with the yadu-s to gain territory from the nAga-s.
 This sparked off a long standing feud between the latter and the pANDu-s
 with some nAga groups allying themselves to the pANDu-s and other
-fiercely opposing them. Subsequently, the pANDu alliance destroyed the
+fiercely opposing them. Subsequently, the pANDu alliance destroyed the
 surviving kuru power in alliance with the remnants of the pa\~nchAla-s
 and the yadu-s. Finally they placed themselves as rulers after
 completing the destruction of the nAga power. Their joint queen draupadI
@@ -362,9 +362,9 @@ not merely a retro-superposition after the bauddha-mata was established.
 The early Tibetans of history were not deeply influenced by the
 bauddha-mata and had their own endogenous polytheistic religion.
 However, this religion was [influenced by Hindu
-motifs](https://manasataramgini.wordpress.com/2011/06/26/notes-on-hayagriva-siddhi-among-the-nastika-s/ "Notes on hayagrIva siddhi among the nAstika-s")
+motifs](https://manasataramgini.wordpress.com/2011/06/26/notes-on-hayagriva-siddhi-among-the-nastika-s/ "Notes on hayagrIva siddhi among the nAstika-s")
 and remnants of such influence [can be seen in the surviving Bön
-tradition](https://manasataramgini.wordpress.com/2011/07/06/some-notes-on-the-goddess-sipe-gyalmo/ "Some notes on the goddess Sipe Gyalmo"),
+tradition](https://manasataramgini.wordpress.com/2011/07/06/some-notes-on-the-goddess-sipe-gyalmo/ "Some notes on the goddess Sipe Gyalmo"),
 though bauddhized. The fact that Songtsen Gampo sent Tonmi Sambhota to
 India to acquire a script and his links to narendradeva indicate that
 they already had ties with the indosphere before their conversion to the

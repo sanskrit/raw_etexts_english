@@ -232,7 +232,7 @@ had forgotten the guy’s name. So he made it up: If there could be a
 Gandhi of the frontier in Afghanistan, why could we not have yet another
 Gandhi in Andhra. So let us call him the Andhra Gandhi\]. At first B.G.
 Tilak had suggested a saffron flag with the picture of gaṇeśa. Aurobindo
-and Vankimchandra wanted the image to be that of a fierce Kālī with an
+and Vankimchandra wanted the image to be that of a fierce Kālī with an
 upraised scimitar. Some other Hindu leaders wanted a cow on it. But the
 secularists wanted none of this. Eventually a flag was made to
 incorporate Gandhi’s wheel, a sign that the technology invented in the
@@ -260,7 +260,7 @@ they floated down from the realm of the great, pitiless vāyu who was
 praised in the days of yore by abhipratāriṇa kākṣasenī in the same
 lands. In their minds they were thinking that each one of them,
 supposedly tall, fair, ram-gulping central Asian warriors, were capable
-of slaughtering at least ten short, dark, taṇḍulāmbu sipping hīndūka-s
+of slaughtering at least ten short, dark, taṇḍulāmbu sipping hīndūka-s
 in one go. But they were in for a rude surprise. Upon landing, the mere
 NCCs aided by local farmers armed with just daṇḍa-s and curikā-s made
 short work of the vaunted warriors of the old mahāmado marusaṃbhavaḥ and
@@ -433,9 +433,9 @@ mekhalā that day.”
 Indrasena: “Remember the regular articles in the newspapers and that
 Svatantratā journal decrying Dr. al-Zaman’s arrest as an appalling
 failure of justice and deliberate targeting of minorities?”  
-Vrishchika: “Not only that, while in jail, he was awarded the Edmond
-Glympton Global Initiative prize and the mleccha physicians’ council
-prize for his selfless service.”  
+Vrishchika: “Not only that, while in jail, he was awarded the Edmond
+Glympton Global Initiative prize and the mleccha physicians’ council
+prize for his selfless service.”  
 Lootika: “Listen to this.” She then read from the news item: “In passing
 his judgment overturning the high court conviction the Chief Justice
 Mashanand Kukroo said that by arresting a blameless surgeon with a

@@ -4,7 +4,7 @@ title = "A zarathuShtrian exit at a Hindu funeral"
 +++
 This note continues with the examples we have been providing on these
 pages illustrating the role of the kavi as a naturalist or an observer
-of nature. The verse below is a macabre one composed by one of  the
+of nature. The verse below is a macabre one composed by one of  the
 greatest men among our people, pANini. It might not be an exaggeration
 to say that we owe the language that was the purveyor Hindu culture and
 the lingua franca of the Indosphere to him. This verse, like several

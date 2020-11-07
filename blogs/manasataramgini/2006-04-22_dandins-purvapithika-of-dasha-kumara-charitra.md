@@ -29,7 +29,7 @@ his great strides. This represents the new axis being established and
 the constellation of the Great Bear (represented as the bear jAmbavant)
 making a circle of the north celestial pole. Indeed viShNu himself is
 identified with the constellation of the shishumAra or Draco associated
-with the old north pole from earlier period of Aryan memory.  As the
+with the old north pole from earlier period of Aryan memory.  As the
 knowledge of precession is very subtle (even alluded in the opening of
 the maitrayaNi brAhmaNa fragment by shAkAyanya who was well aware of
 these matters) the third step of viShNu is secret and was only know to

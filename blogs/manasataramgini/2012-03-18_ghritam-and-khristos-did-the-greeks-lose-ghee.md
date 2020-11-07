@@ -162,7 +162,7 @@ sAmrAjyenAbhiShi\~nchAmIndrasya bR^ihaspates tvA
 sAmrAjyeNAbhiShi\~nchAmi ||
 
 Footnote 3: ye kIlAlena tarpayatho ye ghR^itena yAbhyAm R^ite na kiM
-chana shaknuvanti | AV-vulgate 4.26.6ab (offering to the
+chana shaknuvanti | AV-vulgate 4.26.6ab (offering to the
 dyAvApR^ithivI)  
 ye kIlAlena tarpayanti ye ghR^itena ye vA vayo medasA saMsR^ijanti |
 AV-vulgate 4.27.6ab (offering to the marut-s)

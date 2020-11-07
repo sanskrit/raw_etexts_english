@@ -15,7 +15,7 @@ smashing sixes off the Rainbow Republic bowlers. The real challenges
 will come with the rising balls of integration.”
 
 Lootika amplified the matter like an accompanying musician: “If you
-think you have mastered math, remember this tale in  Greek tradition: it
+think you have mastered math, remember this tale in  Greek tradition: it
 was said that there was a mortal named Stentor who could yell with the
 voice of many men in unison. But once he attempted to contest with the
 god Hermes on hearing whose loud yell he died. Thus, when the

@@ -212,7 +212,7 @@ by an angle of
 "\\theta"), where
 ![\\theta=\\sin^{-1}\\left(\\dfrac{2}{2\\phi-1}\\right)=\\cos^{-1}\\left(\\dfrac{1}{2\\phi-1}\\right)=\\tan^{-1}(2)
 \\approx63.43^o](https://s0.wp.com/latex.php?latex=%5Ctheta%3D%5Csin%5E%7B-1%7D%5Cleft%28%5Cdfrac%7B2%7D%7B2%5Cphi-1%7D%5Cright%29%3D%5Ccos%5E%7B-1%7D%5Cleft%28%5Cdfrac%7B1%7D%7B2%5Cphi-1%7D%5Cright%29%3D%5Ctan%5E%7B-1%7D%282%29+%5Capprox63.43%5Eo&bg=ffffff&fg=333333&s=0
-"\\theta=\\sin^{-1}\\left(\\dfrac{2}{2\\phi-1}\\right)=\\cos^{-1}\\left(\\dfrac{1}{2\\phi-1}\\right)=\\tan^{-1}(2) \\approx63.43^o"). This
+"\\theta=\\sin^{-1}\\left(\\dfrac{2}{2\\phi-1}\\right)=\\cos^{-1}\\left(\\dfrac{1}{2\\phi-1}\\right)=\\tan^{-1}(2) \\approx63.43^o"). This
 angle is the supplementary angle of the dihedral angle of a
 dodecahedron.  
 3\) From the construction we can show the shortest of the vectors is:  

@@ -25,7 +25,7 @@ In Śatapatha-brāhmaṇa 14.1.1.25 it is stated that the privileged
 knowledge possessed by Dadhyaṅc Ātharvaṇa concerns the Pravargya ritual
 by which the Soma-yāga is made “whole”. The Pravargya ritual again
 refers to a severed head, that of Makha, Viṣṇu, or Rudra in different
-brāhmaṇa-s, which is represented by the central implement of the
+brāhmaṇa-s, which is represented by the central implement of the
 ritual, the Gharma pot. The Śatapatha-brāhmaṇa 14.1.4.13 further
 elaborates this Madhu-vidyā and it is presented as the high teaching of
 the upaniṣat in 14.5.5 (i.e. the Bṛhadāraṇyakopaniṣat).
@@ -34,8 +34,8 @@ This mythic nucleus serves as a locus for further elaboration in later
 Hindu tradition. The Purāṇa-s incorporate the frame of the Pravargya
 myth into a narrative to explain how the horse-headed Viṣṇu came into
 being. His head is described as being severed, even as it was in one
-of the Pravargya legend, and was then replaced with that of horse. This
-horse-headed Viṣṇu is then able to slay a horse-headed asura, who had
+of the Pravargya legend, and was then replaced with that of horse. This
+horse-headed Viṣṇu is then able to slay a horse-headed asura, who had
 invulnerability from everyone else, except another with a horse’s head.
 
 Interestingly, Russian archaeologists claimed that such a chimeric form,
@@ -70,7 +70,7 @@ the mantra honoring the ancient Aṅgiras-es and Bhṛgu-s. Once he has
 burned his remains are collected sprinkled with milk and collected in an
 urn mixed with scented powders and unguents. Then the urn with the
 remains or just the remains are buried and a śmaśāna is piled over it. A
-version of a similar cremation is narrated in the Greek epic by
+version of a similar cremation is narrated in the Greek epic by
 Agamemnon’s ghost to Achilles about his own funeral:
 
 *The daughters of the “Old Man of the Sea” stood around your
@@ -100,7 +100,7 @@ Atharvan version (and more generally the Vaidika version) is apparent.
 The use of sweet honey is interesting for the Atharvanic injunction for
 a kṣatriya’s corpse is: “madhūtsiktena kṣatriyasyāvasiñcati” (A stream
 of honey is poured over the kṣatriya’s); thus, Achilles was being given
-a kṣatriya’s funeral. Eating of Achilles by the fires of Hephaestus may
+a kṣatriya’s funeral. Eating of Achilles by the fires of Hephaestus may
 be compared with the phrase of the corpse-eating Agni Kravyāda in the
 Veda. The Kurgan custom of the steppes is also retained by the Greeks
 who pile a Kurgan for Achilles, even as described in the Atharvan and
@@ -119,7 +119,7 @@ Prajāpati emitted Agni.
 
 so ‘smāt sṛṣṭaḥ prāṅ prādaravat tasmā aśvam praty āsyat |  
 He (Agni) \[when\] emitted ran away east from him (Prajāpati); he
-(Prajāpati) hurled a horse at him (Agni).
+(Prajāpati) hurled a horse at him (Agni).
 
 sa dakṣiṇāvartata tasmai vṛṣṇim praty āsyat |  
 He (Agni) turned to the south; he (Prajāpati) hurled a ram at him
@@ -179,8 +179,8 @@ enclosing the food his food becomes more.
 Thus, the different animal-heads being placed at the base of the soma
 ritual altar are reminiscent of the multiple heads of different animals
 found at the Celtic site. While in many modern performances clay or
-golden heads might be used, it is clear that in the earlier ritual
-actual heads were used. As for the human head it is apparent that it was
+golden heads might be used, it is clear that in the earlier ritual
+actual heads were used. As for the human head it is apparent that it was
 not obtained by human sacrifice in the core śrauta tradition. Āpastamba
 clarifies that the corpse of a Kṣatriya or Vaiśya who has been slain in
 warfare by an arrow or struck dead by lightning is purchased for 7 or 21

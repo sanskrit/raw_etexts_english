@@ -166,7 +166,7 @@ related Allqokirus. They were followed by more advanced forms like the
 Brazilian Patene from the end of Palaeocene emerge, and in the Eocene
 the borhyaenoid sparassodonts spawned several massive forms such as
 Callistoe, Arminiheringia and Proborhyaena which was larger than a
-grizzly bear. By the Miocene these marsupials had diversified into a
+grizzly bear. By the Miocene these marsupials had diversified into a
 range of carnivore niches: otter-like Cladosictis, a marten-like
 Prothylacinus, a peculiar long-snouted ambush predator Lycopsis,
 mongoose-like hathlyacynids, leopard-like Borhyaena, saber-toothed

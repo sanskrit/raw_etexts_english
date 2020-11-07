@@ -18,7 +18,7 @@ vIrunnIDakapotakUjitam anukrandanty adhaH kukkubhAH ||
 
 kAshmaryAH=*Gmelina* trees; kR^itamAlam=*Cassia* tree; udgata-dalaM=
 spread-out leaves; koyaShTikaSh=lapwing; TIkate=hops up; nIrAshmantaka=
-river *Bauhinia*; shimbi=pod chumbana-mukhA= touching mouth;
+river *Bauhinia*; shimbi=pod chumbana-mukhA= touching mouth;
 dhAvanty=run; apaH=water; pUrNikAH=hornbills ; dAtyUhais= purple
 moorhens; tinishasya= of *Dalbergia* tree; koTaravati= with a hollow;
 skandhe= branch; nilIya=settles in; sthitaM= situated; vIrunnIDa= tree

@@ -81,7 +81,7 @@ that apparently persisted in Asia into the Holocene.”
 Vrishchika continued: “Perhaps\! The said brāhmaṇa became exceedingly
 agitated and his hair stood on end. He panicked and wandered about
 hoping to find someone who might help him. To his horror he saw that the
-forest was surrounded by a net that blocked his escape and he also saw a
+forest was surrounded by a net that blocked his escape and he also saw a
 large, frightful woman lying in wait with her arms stretched out, along
 with many broad-hooded cobras. Everywhere there were trees that seemed
 so tall that they were touching the sky. In their midst was a deep
@@ -104,7 +104,7 @@ sustained himself by licking that honey. However, in that distressed
 state he could not satiate himself satisfactorily with that honey and
 tried to lick more of it. Then he saw white and black rodents gnawing
 away the roots of the tree on which the hive was situated. Thus, he
-remained suspended from the wall of the waterhole fearing the snake
+remained suspended from the wall of the waterhole fearing the snake
 beneath, the elephant-like animal above, the angry bees, and the fear of
 the tree coming crashing down upon its roots being cut away by the
 rodents. Even if he did make it out, he still had the snakes in the
@@ -115,7 +115,7 @@ continued to hope that he would live on.
 That is it, Jhilleeka. It is a narrative with no ending but one that you
 should think about.”
 
-Jhilleeka: “It is indeed a dark narrative. It seems frightening to think
+Jhilleeka: “It is indeed a dark narrative. It seems frightening to think
 about. Could it mean that is how life is supposed to be?”
 
 Lootika chimed in: “That is correct Jhilleeka. It is not impossible that
@@ -253,7 +253,7 @@ what manifests in paleontology as the famous ‘*Law of Extinction*‘,
 which states that the background rates of extinction (i.e. leaving out
 catastrophic mass extinctions) for any group of related organisms is
 constant. A corollary is that organisms need to continually adapt
-primarily to avoid extinction from competition with others in face of an
+primarily to avoid extinction from competition with others in face of an
 environment changing over time. Thus, the history of life is inherently
 a constant 0-sum game; hence, the only victory here is survival. Thus,
 the siddhānta is that the organism which leaves behind more of itself is
@@ -345,7 +345,7 @@ heathen past, thought not of their own but of the yavana-romākau and the
 ārya-s. As a result they were able to access aspects of the completeness
 of knowledge and perhaps that allowed them to channel part of it into
 scientific insight. Let me read out another statement of the pramatta,
-which reveals that heathen inspiration with respect to  his theory of
+which reveals that heathen inspiration with respect to  his theory of
 the totality of aesthetic understanding, but may also be more generally
 true of knowledge –
 
@@ -384,7 +384,7 @@ earlier with the other eka-rākṣasavāda, namely marūnmāda, when
 encountering the heathen knowledge of the yavana-s and Hindus. There it
 was eventually smothered by the marūnmatta-s so firmly that it had, and
 will have, no opportunity of raising its head again. The age was
-different when it did raise its head this time around among the
+different when it did raise its head this time around among the
 mlecchas, and its earlier assaults had already weakened the ability of
 the mlecchas to smother it in the fashion of the marūnmatta-s before
 them. However, the meme of rākṣasavāda was not to be defeated by such
@@ -413,17 +413,17 @@ proper understanding of the essence of Darwin who lay at the core of the
 doctrine. By then, for a long time the Hindus had been rather smug with
 the insights of uttara mīmāṃsa in its various evolutes and
 manifestations. In the process they had turned their back in large part
-on their deeper genius ensuing both from the original śruti and that of
+on their deeper genius ensuing both from the original śruti and that of
 ancient sāmkhya in the great epic, Āryabhaṭa, Caraka, Suśruta, Kaṇāda
 and Akṣapāda. Even though Annambhaṭṭa had emphasized that Pāṇinīyam and
 Kāṇādam should be combined and form the basis of knowledge there were
 few listeners. As a result, we were left we few who could surf on the
-ripples from the mleccha lands to facilitate a reanimation with our own
+ripples from the mleccha lands to facilitate a reanimation with our own
 past – in all this only the vaṇga Brajendranath Seal made a solitary but
 commendable attempt. Hence, as you say such a reanimation is still
 necessary if a larger Hindu system of knowledge were to rise again.
 
-With the fight back by the ekarākṣasavāda the Dionysian and the
+With the fight back by the ekarākṣasavāda the Dionysian and the
 Apollonian ceased to coexist. Among those smoldering ruins of the
 revolution in the mleccha lands arose the fourth of the śūlapuruṣa-s you
 have studied and he saw their course far into future with few scattered

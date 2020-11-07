@@ -348,7 +348,7 @@ arbuda-parvata (the temple on mount Abu in Rajasthan)
 devIkoTa (most likely the city in Bengal ruined by the Moslems); 8)
 mAlava  
 2 kShetra-s: 9)kAmAkhya; 10) oDra; 2 upakShetra-s: 11) trishAkuni;12)
-ayodhyA (koshala)  
+ayodhyA (koshala)  
 2 Chandoha-s: 13) kali\~Nga; 14) lampAka; 2 upach-Chandoha-s: 15)
 kA\~nchipuri; 16) kailAsa (himAlayA)  
 2 melApaka-s 17) pretapuri (Tibetan sources state that this is Tibet);

@@ -16,4 +16,4 @@ publication. It provided as a pdf file because of the length and the
 number of illustrations in it.
 
 [Śiva-gaṇa-s and Andhakāsura-vadha in the
-Vāmana-purāṇa ](https://manasataramgini.files.wordpress.com/2019/04/shiva_gana-s-1.pdf)
+Vāmana-purāṇa ](https://manasataramgini.files.wordpress.com/2019/04/shiva_gana-s-1.pdf)

@@ -77,12 +77,12 @@ protect Hindus from their monstrous atrocities and wished to eventually
 sweep them off Goa. Later in 1659 he occupied positions close to Bassein
 and Chaul and sent warships to launch a sortie on the Portuguese. The
 viceroy of Goa sent an alarm to the king of Portugal after this raid on
-their outposts. In 1660 he built the sea fort of  Suvarnadurg to launch
+their outposts. In 1660 he built the sea fort of  Suvarnadurg to launch
 further attacks on the Isaists and recruited the black naval officer
 Siddi Misri to strengthen his naval artillery. The English intelligence
 dispatch sent by Abbe Carre mentions that shivAjI had started a
 cartography division to prepare accurate maps of both the land and coast
-in preparation of occupying strategic geography along the coastline. In
+in preparation of occupying strategic geography along the coastline. In
 early 1660, shivAjI attacked the port of Dabhol and conquered it from
 the Adil Shahi governor Mohammed Sharif. But Sharif and Fazl Khan took 3
 ships belonging to Afzal Khan, who had been killed earlier, with the
@@ -124,7 +124,7 @@ considerably especially in campaigns against renegade Hindus, like the
 mauryan at Javli. Then netAjI pALkar became the chief of staff until he
 was captured, converted to Mohammedanism and dispatched to Afghanistan.
 Then pratAprav gujjar became the next chief of staff, who died in the
-mad charge at Bahlol Khan at Nessari. In the interim shivAjI appointed
+mad charge at Bahlol Khan at Nessari. In the interim shivAjI appointed
 his half-brother AnandrAv bhosle to lead the forces. AnandrAv had the
 unusual command of a haft-hazAri, though he was not officially ever made
 the chief. However, in many encounters he was the de facto field

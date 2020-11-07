@@ -574,7 +574,7 @@ We offer sacrifice to Verethraghna, made by Ahura.
 peresat zarathushtrô ahurem mazdãm:  
 ahura mazda mainyô spênishta dâtare gaêthanãm  
 astvaitinãm ashâum ýat bavâni aiwi-sastô aiwi-shmaretô  
-pouru-narãm tbishyañtãm cish ainghe asti baêshazô.   
+pouru-narãm tbishyañtãm cish ainghe asti baêshazô.   
 Zarathuštra asked Ahura Mazda:  
 “O Ahura Mazda, most beneficent mind, creator of the material world,  
 you O holy one\! If I have a curse upon me, a spell cast upon me  

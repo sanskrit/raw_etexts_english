@@ -234,7 +234,7 @@ Apart from direct meddling, the leftist academics serve as the
 intellectual resource for the attack on the Hindus – they have already
 created material that shows the Hindu structures as depraved and
 decadent. So there are ready references in the form of their works to be
-used when such  incidents with an amukAnanda need to be given an airing.
+used when such  incidents with an amukAnanda need to be given an airing.
 It should be noted that this type of mlechCha scholarship is a part of
 the psy-ops going on since the English conquest of India. Rabindranath
 Tagore in his history of bhAratavarSha (1903 CE) states:

@@ -34,7 +34,7 @@ which the evils perpetrated by pretāradhaka-s and marūnmatta-s are
 routinely downplayed or suppressed, be it the “bomb in Bengal”, the
 predatory activities of śava-bhāṇaka-s, the holdouts of the Nizam’s
 merry Razakars gaining new ground, or seizure of Hindu strī-s by
-both sādharaṇa and pracchanna dāḍhīka-s. 2) Another notable case was
+both sādharaṇa and pracchanna dāḍhīka-s. 2) Another notable case was
 the willful incitement of people, including a street-fight with a person
 supporting the lāṭānarta-siṃha in navyarkapura by a ruffianly
 propagandist. Despite his actions having been caught on video, the
@@ -74,11 +74,11 @@ on these pages that the Western liberals are not friends, but venomous
 enemies, of Hindus. The NYT is commonly read by Hindus for articles on
 science, culture and technology, but as far as Hindus/India goes it is
 patently toxic. This pattern is a replica of the US academia, in which
-there is active Hindu participation, and is likewise enriched in
+there is active Hindu participation, and is likewise enriched in
 individuals with views similar to the NYT. Next come CNN, ABC and BBC.
 The first of these is a propaganda organ of the mleccha rulers of USA;
 thus, its concerted attack reflects in a sense the unofficial view of
-the Department of State and also the office of the mlecchādhipati, who
+the Department of State and also the office of the mlecchādhipati, who
 has a special dislike for the lāṭendra. The BBC, together with Reuters
 (which comes next) headquartered in UK, is the echo from across the
 Atlantic showing the unity of Anglospheric thought we saw in the above
@@ -86,21 +86,21 @@ picture. The Economic Times and The Hindu represent the deśī purchased
 agents, though in part the latter is also an organ for the cīna-s. The
 Gulf News represent the rākṣasavādin contribution to the action.
 
-On the whole, we might note that while the entire political spectrum of
+On the whole, we might note that while the entire political spectrum of
 the Anglosphere is involved in the attack on Hindu India, it is the
 liberal side of the spectrum which packs the biggest punch. Why is this
 so? To understand this we might note that even though the
 prathamonmatta-s are part of this matrix of media outlets, their deśa
-has complained of bias against it from the same NYT. This suggests that
+has complained of bias against it from the same NYT. This suggests that
 all these relate in large part to the underpinnings of western
 liberalism. The people who constitute this category are to a notable
-extent genetically predisposed to yearn for internal sensations
+extent genetically predisposed to yearn for internal sensations
 characterized by the attitudes of “holier than thou” and moral
 superiority. We note that they feel a tremendous uptick in these
 feelings when they read and write such articles especially pertaining to
 a heathen nation, which the Abrahamistic preconditioning makes them see
 as deeply revolting. The same Abrahamistic conditioning can be seen in
-how the same outlets, which root for various marūnmatta-s, do not even
+how the same outlets, which root for various marūnmatta-s, do not even
 let out the merest whimper for the heathen Yazidis who are being
 exterminated by the Mohammedans in West Asia .
 

@@ -141,7 +141,7 @@ like idiots in allowing them to triumph.
 In the Veda the ṛṣi Vāmadeva Gautama said:  
 uta tyā sadya āryā sarayor indra pārataḥ | arṇā-citrarathāvadhīḥ ||  
 Though arṇa and citraratha were ārya-s, Indra mercilessly slew them
-beyond the Sarayu river just as he had slain the dasyu-s. Thus, we have
+beyond the Sarayu river just as he had slain the dasyu-s. Thus, we have
 people in our own pakṣa who need to be dealt with like those rogue
 ārya-s.
 

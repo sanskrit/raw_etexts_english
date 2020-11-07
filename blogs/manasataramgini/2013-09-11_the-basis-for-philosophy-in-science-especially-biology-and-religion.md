@@ -281,7 +281,7 @@ can act like “Platonic ideals” or “attractors” that allow convergence
 towards them (e.g. the case of the repeated emergence of the biological
 spear but the restriction of the biological wheel to molecular
 assemblies, [which we discussed
-before](https://manasataramgini.wordpress.com/2012/09/21/macranthropy-and-the-sambandha-s-between-microcosm-and-macrocosm/ "Macranthropy and the saMbandha-s between microcosm and macrocosm")).
+before](https://manasataramgini.wordpress.com/2012/09/21/macranthropy-and-the-sambandha-s-between-microcosm-and-macrocosm/ "Macranthropy and the saMbandha-s between microcosm and macrocosm")).
 
 Together, these axioms imply that in their early stages of development
 biological systems are unlikely to be capable of using intelligent
@@ -398,10 +398,10 @@ memeplex, [but there is no denial of their potential fitness enhancing
 effects, even if only in the short
 term](https://manasataramgini.wordpress.com/2013/07/20/khilonmada-charcha/ "khilonmAda-charchA").
 To his credit, when I met the said teacher more recently, he declared
-that he should not have said so to me earlier and that he now had his
+that he should not have said so to me earlier and that he now had his
 own evolutionary theory for religion.
 
-Now religion is some what fuzzy in its definition but is typically seen
+Now religion is some what fuzzy in its definition but is typically seen
 to include three elements: 1) Household and public rituals along with
 their body of vocalizations, actions and backdrop of legend (often
 termed mythology); 2) Experience of atypical first person experiences;
@@ -410,7 +410,7 @@ termed “values”, “ethics” and “morals”. An examination of humans sho
 that all branches of humanity, be it the early-branching bushmen, the
 pygmies or the Denisovan-admixed Australians primitively have religion.
 Archaeological evidence pushes it back to the [Middle Stone
-Age](https://manasataramgini.wordpress.com/2006/12/04/oldest-archaeological-signs-of-ritual/ "Oldest archaeological signs of ritual?")
+Age](https://manasataramgini.wordpress.com/2006/12/04/oldest-archaeological-signs-of-ritual/ "Oldest archaeological signs of ritual?")
 (\~7\*10^4 years). There are elements of the behavior of other closely
 related apes that might be cognates of religion. Thus, the empirical
 evidence suggests that it was there in the common ancestor of extant
@@ -469,7 +469,7 @@ in the bhagavadgIta in similar light – i.e. the vibhava appears as an
 epitome of the respective self category rather than one image across all
 categories, such as: ashvatthaH sarvavR^ikShANAM; uchchaiHshravasam
 ashvAnAM; airAvataM gajendrANAM; narANAM cha narAdhipam; sarpANAm asmi
-vAsukiH | : Each organism has to be well-established in its own self
+vAsukiH | : Each organism has to be well-established in its own self
 group and not be anchored in nonself signals.
 
 This leaves us with \#2: Why then are the atypical first person
@@ -496,7 +496,7 @@ the biologically relevant immortality through genetic transmission
 (prajA). Addiction to this state can thus result in a
 fitness-nullification, which is typical of most yati-s even to this
 date. Similarly, in a [parallel
-essay](https://manasataramgini.wordpress.com/2012/09/21/macranthropy-and-the-sambandha-s-between-microcosm-and-macrocosm/ "Macranthropy and the saMbandha-s between microcosm and macrocosm")
+essay](https://manasataramgini.wordpress.com/2012/09/21/macranthropy-and-the-sambandha-s-between-microcosm-and-macrocosm/ "Macranthropy and the saMbandha-s between microcosm and macrocosm")
 we had described how certain atypical first person experiences induced
 by substances could potentially nullify fitness.
 
@@ -563,7 +563,7 @@ view; To borrow terminology from sAMkhya we could have two world views:
 one is based on prakR^iti wherein the evolutionary theory and philosophy
 of science operates. This is in a sense a modern version of the [ancient
 evolutionary
-models](https://manasataramgini.wordpress.com/2007/05/02/empedocles-and-vasishtha-agrigentum-and-mithila/ "Empedocles and vasiShTha : Agrigentum and Mithila")
+models](https://manasataramgini.wordpress.com/2007/05/02/empedocles-and-vasishtha-agrigentum-and-mithila/ "Empedocles and vasiShTha : Agrigentum and Mithila")
 proposed by the early sAMkhya thinkers. The other is based on puruSha.
 This tends to take those atypical experience as a genuine starting point
 for discourse and uses them as axioms for explaining all else. Thus, it
@@ -573,7 +573,7 @@ one day one may wake up in brahman and realize that that reality of
 wakeful existence was just like a dream. The pauruSha approach tends to
 be dominant in several expressions of religion but that itself neither
 negates nor casts the prAkR^ita view in [lower
-category](https://manasataramgini.wordpress.com/2012/06/16/the-broken-chain-and-the-chain-of-knowledge/ "The broken chain and the chain of knowledge").
+category](https://manasataramgini.wordpress.com/2012/06/16/the-broken-chain-and-the-chain-of-knowledge/ "The broken chain and the chain of knowledge").
 
 As the old Hindus would say, by vichAra alone on the mundane first
 person experience we can perceive the existence of the difficult to
@@ -599,7 +599,7 @@ tend to show an element of this.
 
 Footnote 3: [We had earlier argued that this issue of science and
 religion being compartmentalized is not really applicable to
-Hindus](https://manasataramgini.wordpress.com/2007/07/09/western-generalizations-of-religiosity/ "Western generalizations of religiosity").
+Hindus](https://manasataramgini.wordpress.com/2007/07/09/western-generalizations-of-religiosity/ "Western generalizations of religiosity").
 Rather it was something unique to the mlechCha situation that is
 unnecessarily absorbed by Hindus who been cut off from their moorings.
 In essence, the so called science-religion divide can be simply

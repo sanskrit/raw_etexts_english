@@ -376,7 +376,7 @@ nava-koṣṭhaka-viṣaṃagarbha-bhadra-s. But the several other magic
 figurate numbers described in Hindu tradition might have other
 interesting mathematics lurking in them. Notably, the great Srinivasa
 Ramanujan also (re)discovered several saṃagarbha-bhadra-s similar to
-traditional Hindu versions (like the ones found on Candrātreya temples,
+traditional Hindu versions (like the ones found on Candrātreya temples,
 including one demolished by the Moslem tyrant Baboor at Gwalior) with
 interesting properties. Additional also gives the above formula for the
 general nava-koṣṭhaka-viṣaṃagarbha-bhadra-s

@@ -15,8 +15,8 @@ kAverI-taTa-tADi-tADana-taTatkArottaro mArutaH ||
 While the smooth and delicate alliterative effects of this verse are not
 easily rendered from the devabhASha, one may roughly see it thus:  
 The southwest monsoon wind blowing from the waves of the ocean of the
-muralA land (northern Kerala) which,  it has tasted and abandoned,
- shakes up the trees of clove, Symplocos racemosa, star fruit and
+muralA land (northern Kerala) which,  it has tasted and abandoned,
+ shakes up the trees of clove, Symplocos racemosa, star fruit and
 Millettia pinnata beans. The wind born in the southern sea slopes with
 banana groves blows at will rustling and beating the palms on the banks
 of the kAverI.
@@ -62,7 +62,7 @@ pollen from the hairdo of the kerala wifes which have been loosened by
 the pulling by their paramours. Then the winds grow motionless upon
 colliding with the breasts of the women of the Tamil country endowed
 with good hips. Then they are said to bear the streams of water from the
-revA peak and remove the self-consciousness of the women of the andhra
+revA peak and remove the self-consciousness of the women of the andhra
 and murala countries, shrieking like a young female cuckoo.
 
 All these are good examples of tropes working shR^i\~NgAra into the

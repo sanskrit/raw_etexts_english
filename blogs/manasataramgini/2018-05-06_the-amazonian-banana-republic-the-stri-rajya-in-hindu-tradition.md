@@ -190,7 +190,7 @@ liṅgena praviśanti hutāśanam |”). This also reminds one of the Greek
 legend of the destruction of men by the sirens or Kirke during
 wanderings of Odysseus. There is indeed a reversal similar to that of
 Odysseus and Kirke in the Matsyendranatha tale where the women
-of strīrājya attack Gorakṣa when he leaves with the former, [but by
+of strīrājya attack Gorakṣa when he leaves with the former, [but by
 his yoga he turns them into
 birds](https://manasataramgini.wordpress.com/2010/02/10/a-pan-indian-tale-of-the-natha-yogin-s/).
 

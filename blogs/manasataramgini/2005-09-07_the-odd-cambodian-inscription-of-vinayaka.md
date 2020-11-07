@@ -33,5 +33,5 @@ AyAto mokShanArthA\~N jayati gaNapatis tvad-dhitAyeva so yaM
 comes this gaNapati who for your welfare conquers for the purpose of
 liberating.
 
-I wonder what mythological tale this alludes to ? May the terrible
+I wonder what mythological tale this alludes to ? May the terrible
 gaNapa be pacified

@@ -60,7 +60,7 @@ a confedration of Hindu kings including the kalachuri lakShmI-karNa, the
 ChahamAna and other rAjpUts to fight the Ghaznavid Maliq Salar Masud. In
 the great battle of Bahraich the Hindu confedracy fought a pitched
 battle for about a month with the Moslems and completely defeated
-them, killing Salar Masud in the process. They then went on to liberate
+them, killing Salar Masud in the process. They then went on to liberate
 Hansi, Thaneshvar, Nagarkot and other cities taken by the Ghaznavids and
 marched against Lahore and besieged it. Just at the point Lahore was
 about to fall to them, the Hindu kings had a disagreement over who would

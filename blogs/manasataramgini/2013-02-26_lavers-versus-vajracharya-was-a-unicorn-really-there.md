@@ -297,7 +297,7 @@ kR^ityAM kR^ityAkR^ite devA niShkam iva prati mu\~nchata ||
 
 vajrAchArya translates this as:  
 O gods, chop off the spell like the single horn of the R^ishya around
-its skin and fasten the spell upon him, who prepares it, as (one
+its skin and fasten the spell upon him, who prepares it, as (one
 fastens) an ornament.  
 \*In our oral tradition and also Gujarat the first word is typically
 recited as R^ishya; however, chanters from the mahArATTa country recite

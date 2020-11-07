@@ -226,13 +226,13 @@ sadyojAtaM prapadyAmi sadyojAtAya vai namo namaH |
 bhave bhave nAtibhave bhavasva mAm |  
 bhavodbhavAya namaH ||
 
-vAmadevAya namo jyeshThAya namash shreshThAya namo rudrAya namaH kAlAya
+vAmadevAya namo jyeshThAya namash shreshThAya namo rudrAya namaH kAlAya
 namaH kalavikaraNAya namo balavikaraNAya namo balAya
-namo balapramathanAya namas sarva-bhUtadamanAya namo manonmanAya namaH
+namo balapramathanAya namas sarva-bhUtadamanAya namo manonmanAya namaH
 ||
 
 aghorebhyo .atha ghorebhyo ghora-ghoratarebhyaH |  
-sarvebhyas sarva-sharvebhyo namaste astu rudra rUpebhyaH ||
+sarvebhyas sarva-sharvebhyo namaste astu rudra rUpebhyaH ||
 
 tat puruShAya vidmahe mahAdevAya dhImahi |  
 tanno rudraH prachodayAt ||

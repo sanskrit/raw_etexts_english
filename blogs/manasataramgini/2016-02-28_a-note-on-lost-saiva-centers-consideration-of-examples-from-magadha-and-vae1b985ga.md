@@ -46,7 +46,7 @@ of the grandeur of the old saiddhāntika system in the north. The
 evidence needs to be gathered from relatively obscure archaeological and
 iconographic records, and what we learn is a staggering loss of old
 Hindu civilizational centers. While our collection is large, putting
-the examples out in a digested form does not seem easy to us. Hence,
+the examples out in a digested form does not seem easy to us. Hence,
 what is presented here is just a small note on some specific sites,
 which may seem whimsical, but we just need to do this remind ourselves
 of the bigger picture that we have in our minds.
@@ -127,7 +127,7 @@ pradyumneśvara\[-śavdabda\]-lāñcanam adhiṣṭhānaṃ namaskūrmahe ।
 yatrā+āliṅgana-bhaṅga-kātaratayā sthitvā+antare kāntayor  
 devībhyām apy abhinna-tanutā Śilpe ‘ntarayāḥ kṛtaḥ ॥
 
-Words in \[\] are unclear to me but the verse can be understood as:
+Words in \[\] are unclear to me but the verse can be understood as:
 
 We pay obeisance to the temple bearing the designation of
 Pradyumneśvara,  

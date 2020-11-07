@@ -33,7 +33,7 @@ son of the fallen bhArgava ajigarta composed after he was adopted by
 vishvAmitra:  
 yoge-yoge tavastaraM | vAje-vAje havAmahe | sakhAya indram Utaye ||  
 In every junction of life, in every booty-winning contest, like
-\[calling\] friends we call the mightiest indra for aid.
+\[calling\] friends we call the mightiest indra for aid.
 
 A ghA gamad yadi shravat | sahasriNIbhir UtibhiH | vAjebhir upa no havam
 ||  
@@ -95,7 +95,7 @@ shastra:
 pro droNe harayaH karmAgman punAnAsa R^ijyanto abhUvan |  
 indro no asya pUrvyaH papIyAd dyukSho madasya somyasya rAjA ||  
 Forth to the droNa-kalasha the tawny stream flows for the ritual, and
-purified flows straight ahead. May indra, heavenly  king, as in the
+purified flows straight ahead. May indra, heavenly  king, as in the
 past, drink of this exhilarating soma.
 
 After the second:  
@@ -103,7 +103,7 @@ progrAm pItiM vR^iShNa iyarmi satyAm prayai sutasya haryashva tubhyam
 |  
 indra dhenAbhir iha mAdayasva dhIbhir vishvAbhiH shachyA gR^iNAnaH ||  
 To make you start \[for our ritual\], I offer you a strong, true
-libation, the manly one,  whom the tawny horses carry to the \[soma\]
+libation, the manly one,  whom the tawny horses carry to the \[soma\]
 pressing. Here, O indra, be delighted in our milk-effused soma
 offerings, as we offer recitations skillfully crafted with all our
 intelligence.  

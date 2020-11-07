@@ -10,7 +10,7 @@ Western Ghats. The first major wave of Islamic onslaughts on the region
 was initiated by Alla-ad-din Khalji when he dispatched his ace commander
 Maliq Kaffr to wage Jihad on the ancient dynasty of the Kadambas, who
 were the principal rulers of the Konkans. In 1312, the Army of Islam
-entered the Konkan with a large cavalry force and devastated
+entered the Konkan with a large cavalry force and devastated
 Gopakapattana the capital of the Kadambas. The routed Kadambas fled
 inwards to Chandrapura, an ancient city of great significance in the
 shaiva tAntrika tradition, with their surviving army and defended the
@@ -41,7 +41,7 @@ launched a large scale invasion of the Konkans to wrest it completely
 from Vijayanagara and the Hindu chiefs. The Kadambas were completely
 broken in this attack and they had to bury their family idol of
 Saptakoteshvara to prevent it from being destroyed by the Moslems; the
-survivors scattered over Maharashtra and survive as the Kadam clan of
+survivors scattered over Maharashtra and survive as the Kadam clan of
 Marathas. The Hindus were savagely persecuted by the Turkic hordes under
 this sultan as well as his successor Sultan Mujahiddin Fath Khan. As the
 Hindus called for help, Bukka Raya began operations in Goa in 1377 but
@@ -71,7 +71,7 @@ Vishalgad and also in the interior south in Bankapur from where they
 controlled Goa. The Hindu chiefs realized that controlling the Konkan
 was important to prevent the Moslem tyrants of Bijapur from gaining
 supplies from Arabia and the Turkic world via the sea route. Most
-importantly, the good warhorse that was scarce in the Deccan and
+importantly, the good warhorse that was scarce in the Deccan and
 artillery, which held the key in the struggle with Vijayanagara could be
 alternatively obtained by the sea route. The chiefs of Samgameshvar and
 Vishalgad held this frontier for the Hindus. They attacked the Turkish
@@ -89,10 +89,10 @@ region.
 
 In 1453, Khwaja Mahmud Gawan, a Turko-Mongol merchant and renowned
 Islamist from Iraq, arrived in Bidar. His Islamic scholarship and
-knowledge of the Sharia’t was unparalleled amongst the Moslems of India
+knowledge of the Sharia’t was unparalleled amongst the Moslems of India
 and he was soon appointed as the prime minister of the Bahmanid empire
 and went about the task of enforcing correct Islamic practice by
-inviting Mullahs from the West and Central Asia. In the mean time, would
+inviting Mullahs from the West and Central Asia. In the mean time, would
 be conqueror of Constantinople, the Ottoman sultan Mehmed II came to
 power in Turkey and tried to assassinate his brother Yusuf Adil Khan who
 was also contending for the throne. However, Yusuf escaped by ship and

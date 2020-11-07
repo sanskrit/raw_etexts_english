@@ -7,7 +7,7 @@ some classmates who had an unbridled admiration and enthusiasm for the
 Anglosphere and a rather deep-seated self-identification with it. While
 their English had little in it to commend itself, they felt more
 American than Indian. From New York to San Francisco they would know of
-all places great and small in the leader nation of the Anglosphere and
+all places great and small in the leader nation of the Anglosphere and
 imagine themselves as part of its existence – living out a vicarious
 American life via the medium of movies, cartoons, picture-books, and
 dime novels. We, in contrast, held the view that the Anglosphere was to
@@ -54,7 +54,7 @@ mlecchas had put in place long-term measures to completely finish off
 the Rus and make them geopolitically insignificant. When Putin revived
 the Rus, some said the Rus had found their feet again. But we felt that
 Putin might not be able to stem the slide. Rather, he would only
-incite the western mleccha-s headed by the Anglosphere to deploy the
+incite the western mleccha-s headed by the Anglosphere to deploy the
 next round of action against the Rus. This indeed came in the form of
 Georgia and Ukraine. But Putin’s resolute action in both places
 minimized the damage. At least on the Georgian front the Rus seem to be
@@ -72,7 +72,7 @@ India. Flushed with triumph they played their age old card of the
 Suleyman kānūni the Osman Sultan or Moulay Ismail the Bloodthirsty of
 Morocco. Now the English used the Osman Turks as a front end to limit
 Rus westward ambitions. As the Rus smashed the Turk navy at Sinop the
-English entered the war together with the French on the side of the
+English entered the war together with the French on the side of the
 Mohammedan Khalifa to attack the Rus. Several Rus towns in Crimea were
 taken by the English and French by the end of the war in 1856 despite
 strong action of the Rus generals. The Rus even eventually lost Russian
@@ -102,7 +102,7 @@ Qaeda affiliates in Syria to overthrow al Assad probably to help their
 ally and civilizational guide the agravātula-s, and their dear friends
 from the hellhole of Saud. They hoped that the Rus fearing the loss of
 Syria, their conduit to West Asia, would intervene. Their objective was
-to catch the Rus in a quagmire with the marūnmatta-s and destroy them,
+to catch the Rus in a quagmire with the marūnmatta-s and destroy them,
 even as they had done in the Afghan war. The Rus indeed responded and
 their swift action seemed to put both the Khalifa and other Mohammedan
 terrorists backed by the Anglosphere on the retreat. But the Anglosphere

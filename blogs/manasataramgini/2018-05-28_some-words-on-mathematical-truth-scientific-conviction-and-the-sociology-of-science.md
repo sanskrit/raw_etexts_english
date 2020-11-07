@@ -142,7 +142,7 @@ and ādguṇaḥ | (6.1.87) which finally result in mahoraskaḥ (Footnote 1)
 Thus, this system provides a means of “proving” the formation of a
 compound as per the Pāṇinian axioms.
 
-While, as we saw above,  there is a distinction between scientific
+While, as we saw above,  there is a distinction between scientific
 conviction and mathematical proof, the “hidden hand” of geometry
 underlies the establishment of a scientific conviction. In physics this
 is actually not so hidden – it might be directly operating via the

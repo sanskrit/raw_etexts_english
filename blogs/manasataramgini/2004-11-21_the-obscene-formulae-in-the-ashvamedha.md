@@ -7,7 +7,7 @@ ambe ambAlyambike na mA yabhati kashchana | sa sastyashvakaH | haye cha
 haye asau ||
 
 Ladies (ambA, ambAli and ambikA) no one seems to have sex with me. The
-bad horse is sleeping. That is the horse and you are the mare princess.
+bad horse is sleeping. That is the horse and you are the mare princess.
 
 The princess says the following anuShTubh (one of the dialogs ):  
 iyaM yakA shakuntikA .ahalamiti sarpati | AhataM gabhe pasu ni jalgulIti

@@ -2,7 +2,7 @@
 title = "A rambling talk on the śaiva mantra tradition"
 
 +++
-A rambling talk we had given on the śaiva tradition. Talking is easier
+A rambling talk we had given on the śaiva tradition. Talking is easier
 but less precise than writing. So please be aware of the insufficiency
 that goes with the domain of any talk while perusing this material.
 
@@ -44,7 +44,7 @@ yoga:
 <https://app.box.com/s/vd6xak6jqyuxoacv9nbesigm690de876>
 
 **A very basic introduction to aspects of śaiva iconography with an
-emphasis on the icons depicted in saiddhāntika sthāpana tradition.**  
+emphasis on the icons depicted in saiddhāntika sthāpana tradition.**  
 <https://app.box.com/s/byb5yqght94gtqq9fnk867xbg6ca881q>
 
 continued…

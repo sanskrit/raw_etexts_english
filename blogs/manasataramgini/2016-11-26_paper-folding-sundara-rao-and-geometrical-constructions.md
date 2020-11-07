@@ -104,7 +104,7 @@ Sanskrit or Marathi on paper.
 
 Rao’s constructions span the entire range from the trivial to the fairly
 complex but throughout they display a deep familiarity with geometry and
-opened a new type of understanding for old problems.
+opened a new type of understanding for old problems.
 
 ![equilateral\_triangle2](https://manasataramgini.files.wordpress.com/2016/11/equilateral_triangle2.jpg?w=640)*Figure
 2: Equilateral triangle*
@@ -163,7 +163,7 @@ square piece of paper and use this to fold a regular pentagon:
 of the paper to lie along crease
 ![EC](https://s0.wp.com/latex.php?latex=EC&bg=ffffff&fg=333333&s=0
 "EC").  
-6\) Keeping the fold mentioned in the above step use crease
+6\) Keeping the fold mentioned in the above step use crease
 ![HI](https://s0.wp.com/latex.php?latex=HI&bg=ffffff&fg=333333&s=0 "HI")
 and again fold along it. This will produce crease
 ![KG'](https://s0.wp.com/latex.php?latex=KG%27&bg=ffffff&fg=333333&s=0

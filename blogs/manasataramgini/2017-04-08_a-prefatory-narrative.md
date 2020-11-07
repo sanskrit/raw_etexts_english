@@ -34,7 +34,7 @@ Prachetas: “Thus, attacked by surprise by my future patnī I succumbed to
 the seizure by the vetāla. I took a bus in that state to seizure and
 went to what in those days was a little hamlet at the outskirts of
 Turushkarajanagara. There, I walked at the dead of night to the boundary
-of a cemetery. Despite being a just a hamlet there seemed to be a brisk
+of a cemetery. Despite being a just a hamlet there seemed to be a brisk
 flow of corpses which were being fed to Kravyāda. I wandering under the
 possession sneaked in through a hole in fence of the cemetery to enter
 the grounds. Evidently the vetāla was guiding me there for some reason.
@@ -71,7 +71,7 @@ out of control in the floor below us and it smashed through our floor
 and struck me. Thus, I expired. As I had no close relatives, my corpse
 was dumped by the cops after their investigation at the cremation ground
 for the general cremation which would take place at 4:00 AM. I glad you
-have heard my story. In my pocket lies a letter for a girl who lives in
+have heard my story. In my pocket lies a letter for a girl who lives in
 the Bhatahata sector the city. If you post it so that it might reach her
 then good would come to you. But I tell you a death not different from
 mine could be yours and your wife’s too unless you become the master of

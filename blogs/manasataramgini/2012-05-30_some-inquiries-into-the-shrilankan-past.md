@@ -17,7 +17,7 @@ of dharma in the island. This has several historical dimensions that
 include: 1) The greater Astika influence and presence on the island in
 the past; 2) The worship of Astika devatA-s within the bauddha framework
 originally practiced on the island. 3) The role of the dramiDa-s,
-chera-s and kali\~Nga-s at different points in the development of
+chera-s and kali\~Nga-s at different points in the development of
 practices in the island. A complete consideration of all this will
 require a monograph, but that is not our intention here. Instead, we
 simply collect a few vignettes that illustrate certain aspects of the

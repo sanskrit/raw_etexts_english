@@ -3,11 +3,11 @@ title = "A mysterious verse of a siddha"
 
 +++
 The siddha [tirumUlar or
-sundarnAtha](https://manasataramgini.wordpress.com/2006/08/25/sundaranatha-tirumulars-lineage/ "sundaranAtha (tirumUlar)’s lineage")
+sundarnAtha](https://manasataramgini.wordpress.com/2006/08/25/sundaranatha-tirumulars-lineage/ "sundaranAtha (tirumUlar)’s lineage")
 is supposed to have journeyed from Kashmir to the Tamil country to teach
 a distinctive flavor of the shaiva mantramArga, which is encapsulated in
 his famous but obscure
-[tirumantiram](https://manasataramgini.wordpress.com/2006/08/25/the-mythology-of-tirumular/ "The mythology of tirumUlar").
+[tirumantiram](https://manasataramgini.wordpress.com/2006/08/25/the-mythology-of-tirumular/ "The mythology of tirumUlar").
 While the tirumantiram is widely known among the practicing brAhmaNa-s
 of the Tamil country it is not understood by most of them due to: 1) the
 saMdhyA bhAShA typical of tAntrika encodings; 2) its allusions to
@@ -177,7 +177,7 @@ This ladle is now in his internal sky that in that in the tAntrika
 parlance is the chidAkAsha. The stream of ghee pouring from this ladle
 is consistent with a well-known metaphor of the stream of nectar which
 the tAntrika drinks during the performance of
-[khecharI](https://manasataramgini.wordpress.com/2009/07/02/some-notes-on-khechari-mudra/ "Some notes on khecharI mudra")
+[khecharI](https://manasataramgini.wordpress.com/2009/07/02/some-notes-on-khechari-mudra/ "Some notes on khecharI mudra")
 or from his head as he meditates of on a deity in the head or the
 conjunction of the deities in the sahasrAra chakra in the cranial crown
 (in the kaula traditions). Hence, it appears that as in the upaniShad,
@@ -208,7 +208,7 @@ yA chaiShA vishrutA rAjaMs trailokye sAdhu-saMmatA |
 arundhatI tayApy eSha vasiShThaH pR^iShThataH kR^itaH ||
 
 She, O king, who is well-known in the three worlds and respected by the
-good, even that arundhatI has made vasiShTha stand to her rear\!
+good, even that arundhatI has made vasiShTha stand to her rear\!
 
 Interesting as this is, it might not necessarily imply knowledge of the
 revolution of arundhati and vasiShTha – alternative explanations could

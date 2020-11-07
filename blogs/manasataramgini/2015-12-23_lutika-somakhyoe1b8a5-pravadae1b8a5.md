@@ -53,7 +53,7 @@ By then Lootika had taken in their social structure: “Somakhya, it looks
 as though he is monopolizing a large harem like tyrant Akbar.”  
 Somakhya: “It appears that it has taken him some effort to get there.
 That sulking male in the distance appears to have been trashed by him
-and the former’s females have been attached to his harem.”  
+and the former’s females have been attached to his harem.”  
 Lootika: “That seems rather different the Steamer Ducks I saw while
 visiting dakṣiṇa-krauñca-dvīpa after graduating. There a male-female
 pair defends their territory against other such. But in the combat the
@@ -249,7 +249,7 @@ to me that finding this sweet spot is hardly a trivial operation.”
 Somakhya: “Hardly trivial indeed, but if we need an ideal we may turn to
 the great sage Pāṇini – he first went about data collection to the point
 he had good enough coverage in his gaṇapāṭha and then came up with an
-appropriate number of first principles to completely describe his data.
+appropriate number of first principles to completely describe his data.
 With that we may lay down our sūtra-s in regard to this discussion, O
 Bārhadukthī: parokṣa-pratyakṣav ālocanādiniyama-vādav ityādi dvandvāni
 | anyatarasyātiśayenāvivekaḥ |

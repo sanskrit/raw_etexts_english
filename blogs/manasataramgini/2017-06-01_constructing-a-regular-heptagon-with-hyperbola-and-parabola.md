@@ -21,7 +21,7 @@ famous construction of the 17-gon of with just a compass and
 straight-edge is one of those Gaussian conquests which shows why there
 is Gauss and there are the rest. Additionally, Gauss provides the
 general principles which can be used for conic constructions of other
-polygons. We present below the construction of the regular heptagon
+polygons. We present below the construction of the regular heptagon
 using these Gaussian principles in lay terms. The constructions assumes
 you can draw conics given certain necessary and sufficient prerequisites
 as we have earlier demonstrated on these pages.

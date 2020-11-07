@@ -211,7 +211,7 @@ manonmanAya namaH ||*
 
 PSu, TA:  
 *aghorebhyo.atha ghorebhyo ghora-ghoratarebhyaH | sarvebhyaH
-sarva-sharvebhyo namas te astu rudrarUpebhyaH ||*  
+sarva-sharvebhyo namas te astu rudrarUpebhyaH ||*  
 kauNDinya bhAShya:  
 *aghorebhyo.atha ghorebhyo ghoraghoratarebhyash cha |  
 sarvataH sharva sarvebhyo namaste .astu rudrarUpebhyaH ||* ** (Regular

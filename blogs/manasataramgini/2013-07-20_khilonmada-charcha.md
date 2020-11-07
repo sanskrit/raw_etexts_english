@@ -272,7 +272,7 @@ social structure with the spread of Islam resulted in much lower
 capability to withstand famine from El Niño oscillations. Thus larger
 numbers of those who had converted to Islam in the Bahmanid sultanate
 perished (e.g. the [durgAdevI
-famine](https://manasataramgini.wordpress.com/2010/07/31/mahasamanta-%e2%80%9cfeudalism%e2%80%9d/ "mAhAsamanta “feudalism”?")).
+famine](https://manasataramgini.wordpress.com/2010/07/31/mahasamanta-%e2%80%9cfeudalism%e2%80%9d/ "mAhAsamanta “feudalism”?")).
 This possibly explains why most pagan societies fought the coming of the
 khilimoha tooth-and-nail before it was forcibly thrust upon them by
 military defeat. If not, it seized them during period of social decline

@@ -15,7 +15,7 @@ India is not just about cows. All this said, the evidence suggests that
 the spread of the Indo-Aryans within bhAratavarSha itself was
 accompanied by the spread of their bovine herds and at the genetic the
 spread of a certain strain of [lactose
-tolerance](https://manasataramgini.wordpress.com/2009/02/12/genetic-determinism-sociology-and-history/ "Genetic determinism, sociology and history").
+tolerance](https://manasataramgini.wordpress.com/2009/02/12/genetic-determinism-sociology-and-history/ "Genetic determinism, sociology and history").
 Not surprisingly, bovine symbolism is central to Aryan ritual and
 thought, be it in the plaint of the Iranian zaotar zarathushtra, i.e.,
 geush urvan or the many ritual incantations of the atharvaveda. Indeed,
@@ -33,7 +33,7 @@ Among others the taurocentric Weltanschauung of the atharvan-s is best
 captured in a yajush incantation from the vulgate atharvaveda (AV 9.7),
 which provides a remarkable parallel to the Iranian legend of the
 gav-aēvō-dātā or the
-[ratu](https://manasataramgini.wordpress.com/2012/06/16/the-broken-chain-and-the-chain-of-knowledge/ "The broken chain and the chain of knowledge")
+[ratu](https://manasataramgini.wordpress.com/2012/06/16/the-broken-chain-and-the-chain-of-knowledge/ "The broken chain and the chain of knowledge")
 of the bovine (eventually slain by angra mainyu). This incantation is
 part of the offering verses belonging to a now largely forgotten ritual
 performed by the bhR^igu-s and a\~Ngirasa-s of the atharvan tradition.
@@ -177,7 +177,7 @@ Omniformed cattle, of all forms attend on him who knows thus\!
 At first sight this collection of mantra-s epitomizes the macranthropic
 (or macrotherian) theme. Seen abundantly in Hindu traditions from the
 veda onwards, which we have earlier discussed on [these
-pages](https://manasataramgini.wordpress.com/2012/09/21/macranthropy-and-the-sambandha-s-between-microcosm-and-macrocosm/ "Macranthropy and the saMbandha-s between microcosm and macrocosm").
+pages](https://manasataramgini.wordpress.com/2012/09/21/macranthropy-and-the-sambandha-s-between-microcosm-and-macrocosm/ "Macranthropy and the saMbandha-s between microcosm and macrocosm").
 However, a closer examination shows that it is not just any macrotherian
 theme but a specific version, which we may term stellar macranthropy. In
 this form we have the explicit equation of parts of the macranthropic
@@ -329,9 +329,9 @@ ends, drawing himself together in the bull’s station.
 The first hemistich refers to the 3 manifestations of agni: the ritual
 fire, the celestial fire and the atmospheric fire. Here, as Santillana
 and von Dechend argued in the Hamlet’s Mill the [heavenly fire
-(vaishvAnara)](https://manasataramgini.wordpress.com/2006/11/21/the-path-of-fire/ "The path of fire")
+(vaishvAnara)](https://manasataramgini.wordpress.com/2006/11/21/the-path-of-fire/ "The path of fire")
 is associated with the [equinoctial
-colure](https://manasataramgini.wordpress.com/2006/11/26/the-crossing-of-ashmanvati/ "The crossing of ashmanvatI"):
+colure](https://manasataramgini.wordpress.com/2006/11/26/the-crossing-of-ashmanvati/ "The crossing of ashmanvatI"):
 This is implied in this mantra by the statement that his ends come
 together – i.e. the ecliptic ends meet and this happens in the station
 of the bull. Here again we see an allusion the vernal equinox in a

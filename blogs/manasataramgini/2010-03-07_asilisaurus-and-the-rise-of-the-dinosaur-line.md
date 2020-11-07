@@ -90,7 +90,7 @@ the first archosauriform. The crown was soon to pass to the descendents
 of this lineage. After the P/T event the anomodonts like Lystrosaurus
 survived to populate the world but faced stiff competition from the
 archosauromorphs, the rhynchosaurs. Among the carnivores the mammal-line
-eventually lost their dominance to the rising archosauriforms.
+eventually lost their dominance to the rising archosauriforms.
 
 Immediately, after the P/T event we see that forms very similar to
 Archosaurus were growing in size and expanding to achieve global

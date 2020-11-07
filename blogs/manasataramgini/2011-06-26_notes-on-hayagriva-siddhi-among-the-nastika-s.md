@@ -240,7 +240,7 @@ its transmission of the bauddha version and appears early in the
 Dunhuang texts, which was temporally closer to the apparent period of
 transmission to the Bön.  
 ………………………  
-Footnote 1: From the Bön text this mantra appears to be:  
+Footnote 1: From the Bön text this mantra appears to be:  
 vsauH OM vajra rakSha krodha rava rava hayagrIva huM phaT ||  
 It appears to be a nAstika distortion of the mantra found in shaiva and
 vaiShNava tAntrika contexts:  

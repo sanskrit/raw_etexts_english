@@ -283,5 +283,5 @@ misguided and subversive thinker from the city of my youth. However, his
 adherence to baseless and delusive ideologies inherited from his father
 resulted in him not correctly grasping their history. These indeed need
 to be revisited with a proper evolutionary framework that should take
-heed of what  happens in the study of biological evolution and
+heed of what  happens in the study of biological evolution and
 paleontology.

@@ -193,7 +193,7 @@ Freedom Report…*
 relationship with NGOs working on human rights issues and on religious
 tolerance. NGOs often criticize state bodies for not doing enough to
 deal with extremism. In Gujarat in particular, NGOs have pointed out
-just how widespread the state was involved in the fueling of the 2002
+just how widespread the state was involved in the fueling of the 2002
 riots and how it has failed to bring those responsible to justice. We
 tend to support such NGO views on Gujarat.”*
 

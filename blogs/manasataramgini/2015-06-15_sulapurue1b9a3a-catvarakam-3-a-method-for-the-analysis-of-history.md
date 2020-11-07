@@ -499,8 +499,8 @@ exist in this one. Then if those ideas still sound empty to you at least
 we should at least bring down the skambha even as the yuga-cakra turns,
 for when the time come there is the teaching regarding the great
 axe-wielding Rāma’s battle with the Vītahavya-s, Tuṇḍikera-s, and
-Tālajaṅgha-s \[Not given, as it cannot be stated in public\]. But
-then ladies we have wandered from our purpose of meeting –  time is
+Tālajaṅgha-s \[Not given, as it cannot be stated in public\]. But
+then ladies we have wandered from our purpose of meeting –  time is
 running short and let us get back to our mucor.”
 
 What they discovered that day was to be a big story in their lives, one

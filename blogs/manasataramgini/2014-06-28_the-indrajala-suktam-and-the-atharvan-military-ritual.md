@@ -26,7 +26,7 @@ pUtirajjur upadhmAnI pUtiM senAM kR^iNotv amUm |
 When he sees the rope smoking he utters the incantation:  
 dhUmam parAdR^ishyA .amitrA hR^itsu A dadhatAM bhayam |
 
-When the rope catches fire he recites the mantra:  
+When the rope catches fire he recites the mantra:  
 agnim parAdR^ishyA .amitrA hR^itsu A dadhatAM bhayam |
 
 These are derived from the R^ik  
@@ -91,7 +91,7 @@ mantras, toil, lassitude, and delusion with these I entrap the enemy
 army.
 
 mR^ityave .amUn pra yaChAmi mR^ityupAshair amI sitAH |  
-mR^ityor ye aghalA dUtAs tebhya enAn prati nayAmi baddhvA ||10||   
+mR^ityor ye aghalA dUtAs tebhya enAn prati nayAmi baddhvA ||10||   
 To death I deliver the enemy army, with the nooses of death the enemy
 army is bound, having bound them I take them to meet the funereal
 messengers of death\!

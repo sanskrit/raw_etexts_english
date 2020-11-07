@@ -73,7 +73,7 @@ deserving a genuine historical investigation by Hindus for Hindus.
 
 \~o\~O\~o\~
 
-[![](https://lh5.googleusercontent.com/-4ccm0-ppzaM/Th6LTKyqcXI/AAAAAAAACJQ/7se46Jg2OL0/s400/Sample%252520Pictures1.jpg)](https://picasaweb.google.com/lh/photo/g9A0zp5p3o72IgvnG0Sdlg?feat=embedwebsite) Dice
+[![](https://lh5.googleusercontent.com/-4ccm0-ppzaM/Th6LTKyqcXI/AAAAAAAACJQ/7se46Jg2OL0/s400/Sample%252520Pictures1.jpg)](https://picasaweb.google.com/lh/photo/g9A0zp5p3o72IgvnG0Sdlg?feat=embedwebsite) Dice
 from the Indus sites, and gaming pieces from Indus (right) and PGW sites
 (below): games proscribed by the buddha
 

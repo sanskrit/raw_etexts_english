@@ -180,7 +180,7 @@ kArttikeya shrine in rohitaka and another one of nejameSha at
 pA\~NchAla; another indra at vaidisha; there was a lambodara (a
 vinAyaka?) in Orissa.
 
-An onomatopoeic mantra attributed to indra from the MVR:  
+An onomatopoeic mantra attributed to indra from the MVR:  
 jalA jantule chApeTi jantule mathani ghaTani grasani hari hari shiri
 dyoti shire tataru tataru Nabati siMhA hA hA hA hA hA siMhe dhiti dhiti
 kuru kuru shabare vajre jyoti tuTa tuTasi baTa baTasi sili sili kapile

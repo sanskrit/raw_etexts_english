@@ -367,7 +367,7 @@ forms of great interest:
 3\\pi](https://s0.wp.com/latex.php?latex=r%3Da%5Ccdot%5Ctextrm%7BDdiff2%7D%28%5Ctheta%29%3B+0+%5Cle+%5Ctheta+%5Cle+3%5Cpi&bg=ffffff&fg=333333&s=0
 "r=a\\cdot\\textrm{Ddiff2}(\\theta); 0 \\le \\theta \\le 3\\pi")
 
- 
+ 
 
 ![Devdiff\_round](https://manasataramgini.files.wordpress.com/2017/03/devdiff_round.png?w=453&h=453)Figure
 4 ![r=a\\cdot\\textrm{Ddifr2}(\\theta); 0 \\le \\theta \\le

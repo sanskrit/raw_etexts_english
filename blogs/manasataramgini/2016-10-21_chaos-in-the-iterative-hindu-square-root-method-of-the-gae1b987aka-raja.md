@@ -291,7 +291,7 @@ historical evolution of systems. Even with same basic parameter (
 "\\sqrt{q}")), clearly predictable bulk statistics (e.g. median and
 range of most frequent values) and similar starting values we see: 1)
 clear differences in long term evolution with non-overlapping chaotic
-extreme events different in both magnitude and direction. 2) Extreme
+extreme events different in both magnitude and direction. 2) Extreme
 events that can disproportionately contribute to the total numerical
 measure of the events in the series. A historical system evolving under
 such a model shows us how with very similar starting material and bulk

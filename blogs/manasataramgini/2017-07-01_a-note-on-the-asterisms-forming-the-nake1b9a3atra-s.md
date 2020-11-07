@@ -485,7 +485,7 @@ tvāṣṭra-guru-vāruṇa+ārdra+anila-pauṣṇāny eka tārāṇi ॥
 brahma+indra-yama-hari+indu-tritayam ṣaḍ-vahni-bhujaga-pitryāṇi ।  
 maitrāṣāḍa-catuṣkam vasu-ravi-rohiṇya iti pañca ॥
 
-Clearly by the early medieval period Hindu asterism-reckoning had
+Clearly by the early medieval period Hindu asterism-reckoning had
 changed to a degree from the Vedic period. Now the number of stars in
 each asterism was specified as:  
 Kṛttikā: 6; Rohiṇī: 5 (likely whole Hyades+Aldebaran); Mṛgaśiras: 3;

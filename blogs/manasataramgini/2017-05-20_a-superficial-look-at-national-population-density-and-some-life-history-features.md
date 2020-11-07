@@ -98,12 +98,12 @@ home to a brilliant expression of the Hindu civilization. So why is it
 there? The answer quite plainly is the memetic disease known as the
 ekarākṣasonmāda. In Asia, Japan and India present extremes for similar
 population densities in terms of life-expectancy (both circled again).
-The Asian city-states enjoy a similar life-expectancy as Japan. We hold
+The Asian city-states enjoy a similar life-expectancy as Japan. We hold
 that India too is damaged by the same memetic diseases. Given India’s
 human biodiversity and tropical position we may not be able to reach
 Japan or the Asian city states in terms of life expectancy. However, Sri
 Lanka shows us that with similar population density, without the
-unmāda-s having any power, what can be in the least achieved in
+unmāda-s having any power, what can be in the least achieved in
 principle. I am sure people will think I am trying to connect unrelated
 things and shift the blame on the unmāda-s for India’s intrinsic
 problems. But those who are discerning enough will see why this is not

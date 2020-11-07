@@ -112,7 +112,7 @@ sAmUthiri had by then developed a sufficiently strong navy and won a
 major victory at sea against the Christians.
 
 \-In 1533 CE taking advantage of the internecine war in Lanka
-the general from the Tamil division of the empire narasingharAyar
+the general from the Tamil division of the empire narasingharAyar
 invaded Lanka and made it a tributary of kR^iShNadeva rAya. These
 activities are supported by the Pudukotai inscription of narasingharAyar
 and the Piranmalai inscription mentioning kR^iShNadeva sending a force

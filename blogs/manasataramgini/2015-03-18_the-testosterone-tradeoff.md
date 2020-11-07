@@ -31,9 +31,9 @@ females. At first sight the latter tactic might seem the obvious winner.
 Among birds, species with persistently high levels of testosterone
 throughout the mating season tend to sing more and mate with multiple
 females. However, juncos, like other examples across the vertebrate
-tree, are nominally monogamous, with biparental care, though not without
+tree, are nominally monogamous, with biparental care, though not without
 extra-pair copulations. It would hence, appear that some tradeoff might
-be involved. The effects of exogenous testosterone implantation in male
+be involved. The effects of exogenous testosterone implantation in male
 juncos was used to assess the role of the possible tradeoffs involved.
 The males with testosterone implantation, as opposed to those with
 control null implantation, flew around a wider swath of territory, sang
@@ -50,7 +50,7 @@ on females of males from adjacent territories. Thus, they were indeed
 accruing more fitness from extra-pair copulations than the control
 birds. However, it was also observed that they themselves were getting
 cuckolded more often by other males unlike the control birds. It was
-noted that the fitness gained from extra-pair copulations was balanced
+noted that the fitness gained from extra-pair copulations was balanced
 by the fitness lost due to cuckolding.
 
 ***Testosterone and immunity***  
@@ -81,9 +81,9 @@ aggressive displays.
 In another set of experiments using the junco model the levels of
 endogenous testosterone through the mating season were measured and
 compared with the endogenous concentration of complement and
-total immunoglobulin IgG concentration in blood. The latter two were
+total immunoglobulin IgG concentration in blood. The latter two were
 seen as proxies of innate immunity, which represents the readily
-available immune capacity to neutralize pathogens. It was observed that
+available immune capacity to neutralize pathogens. It was observed that
 there was a good negative correlation in the male birds between
 testosterone and the two proxies of innate immunity. Other experiments
 on the junco had also shown that injections of testosterone in males
@@ -130,9 +130,9 @@ responses remain very much the same. It is common to believe that
 tendencies towards monogamy in humans result from selection for shared
 parental care. This is not entirely supported because in most mammals
 the female provides the bulk of the parental care, with male, if
-involved at all, playing a primarily protective role against rival males
-who may kill his offspring. The possibility that risk of cuckoldry as in
-the case of the junco could be a major factor favoring tendencies of
+involved at all, playing a primarily protective role against rival males
+who may kill his offspring. The possibility that risk of cuckoldry as in
+the case of the junco could be a major factor favoring tendencies of
 monogamy in extant *Homo* should be considered. In this regard, one may
 also ponder over the effects of modern Anglospheric social engineering
 and the kind of males and females they are favoring.

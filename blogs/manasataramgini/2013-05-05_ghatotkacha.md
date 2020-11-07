@@ -33,7 +33,7 @@ strength.
 vikachaH paruSha-sparsho vikaTodbaddha-piNDikaH |  
 sthUlasphig gUDhanAbhish cha shithilopachayo mahAn ||  
 With hairless, rugged skin, and hair on head tied into a terrifying
-knot. With great hips, a deep navel and a great mass of flexible muscle.
+knot. With great hips, a deep navel and a great mass of flexible muscle.
 
 tathaiva hastAbharaNI mahAmAyo .a\~NgadI tathA |  
 urasA dhArayan niShkam agnimAlAM yathAchalaH ||  

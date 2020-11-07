@@ -147,7 +147,7 @@ lives and crime is a thin one. In some areas it is quite possible
 preta-sAdhaka-s from south India join in.”
 
 “Public services need all of society to have some common stakes. Large
-transient populations of uncultured youth means few have shared stakes
+transient populations of uncultured youth means few have shared stakes
 in investing common civic services – they simply want to use them but do
 not want to put anything into them. Some use the road as a public toilet
 while others brush their teeth in the balconies of their apartments and

@@ -22,7 +22,7 @@ incantations of the bharadvAja-s:
 
 AlAktA yA rurushIrShNy atho yasyA ayo mukham |  
 idam parjanyaretasa iShvai devyai bR^ihan namaH || RV 6.75.15  
-Obeisance to the arrow goddess, this born of parjanya, smeared with
+Obeisance to the arrow goddess, this born of parjanya, smeared with
 venom, with a point of deer-horn and metal.
 
 Among the yavana-s we encounter the poisoned arrows being used by the

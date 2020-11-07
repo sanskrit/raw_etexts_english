@@ -75,7 +75,7 @@ good about herself and was brimming with quiet excitement of the
 impending clash. Some schools from big city of Visphotaka were very
 competitive and holding mock rounds in preparation for the competition
 that was to occur the next day. Her teacher came up to Varoli and said
-that she had arranged with the teachers of those schools for her to
+that she had arranged with the teachers of those schools for her to
 compete in the mock rounds too. The dormant competitive spirit that ran
 in all the four sisters was suddenly kindled like the god Agni praised
 in the mantras “kṛṇuṣva pājaḥ…” by her ancestors of yore. So she decided

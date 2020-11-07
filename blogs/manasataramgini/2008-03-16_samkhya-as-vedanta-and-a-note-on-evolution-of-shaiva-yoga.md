@@ -11,7 +11,7 @@ Sanderson of Oxford who has also been a learned Sanskrit scholar
 diligently studying various tantric texts. This publication is an
 instance of the efforts of a western indologist making a positive
 contribution to Hindus in their “svAdhyAya”. We had earlier pointed out
-how the roots of classical sAMkhya lie plainly in the later layer of
+how the roots of classical sAMkhya lie plainly in the later layer of
 brAhmaNa texts, which encompass the upaniShad-s. Thus, a major component
 of vedAnta (in the literal sense as the terminal teaching of the veda-s)
 is sAMkhya. In this context it is interesting to note how the

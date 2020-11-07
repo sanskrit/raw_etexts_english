@@ -81,7 +81,7 @@ maNDala.
 
 For performing the yogeshvara sAdhana, the ritualist then meditates on
 one of the ShaDakSharI-s: “OM vachadbhuve namaH (as stated above)” or
-“OM bhuve namaH svAhA” or if he has learned the atharvaNa shruti  “OM
+“OM bhuve namaH svAhA” or if he has learned the atharvaNa shruti  “OM
 svachChandAya svAhA” or the sadyojAta mantra in its kaumAra form.
 
 Footnote 1: This is the oldest surviving system of the mAtR^ikA-s. They

@@ -228,7 +228,7 @@ clutching that bag of mud sitting beside the cabinet in her lab. She
 rubbed her eyes: “Is this a dream? I thought I had just woken up at 2.00
 AM. Then I felt certain I was in bhArata talking to Vidrum. Now here I
 am in my lab.” She was scared and shaken: “I thought I went home early
-today. Is it that I had somehow lost my senses – may be I had a stroke
+today. Is it that I had somehow lost my senses – may be I had a stroke
 or something.” She rubbed her eyes again and checked her tablet. She saw
 a mail from Somakhya: “*Do not worry go home and sleep. We’ll unite
 again but do not forget to get along the bag of mud which you have just

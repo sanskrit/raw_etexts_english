@@ -33,7 +33,7 @@ To illustrate these let us consider the below relationship:
 ![cot(cos^{3} (x-y)+sin^{2} (x+y))\>|sin(x+y)-cos(x-y)|
 ](https://s0.wp.com/latex.php?latex=cot%28cos%5E%7B3%7D+%28x-y%29%2Bsin%5E%7B2%7D+%28x%2By%29%29%3E%7Csin%28x%2By%29-cos%28x-y%29%7C+&bg=ffffff&fg=333333&s=1
 "cot(cos^{3} (x-y)+sin^{2} (x+y))\>|sin(x+y)-cos(x-y)| ")  
-It produces the below figure below which includes both partitions and
+It produces the below figure below which includes both partitions and
 perforations (the rhombuses with concave sides).
 
 [![](https://lh4.googleusercontent.com/-OkzDlBDxfi4/VENhygDC6fI/AAAAAAAADI4/CLoQoPxRdTY/s800/Rhomboid_perforation.jpg)](https://picasaweb.google.com/lh/photo/dD55iIF8uNfmEsqGvrubXdMTjNZETYmyPJy0liipFm0?feat=embedwebsite)

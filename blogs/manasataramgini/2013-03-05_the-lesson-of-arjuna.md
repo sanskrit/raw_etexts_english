@@ -51,7 +51,7 @@ pacific and peaceful.
 na hi pashyAmi jIvantaM loke kaM chid ahiMsayA |  
 sattvaiH sattvAni jIvanti durbalair balavattarAH ||  
 I do not see an organism in this world that lives without doing any harm
-to others. Organisms live upon other organisms, the stronger upon the
+to others. Organisms live upon other organisms, the stronger upon the
 weaker \[Footnote 2\].
 
 nakulo mUShakAn atti biDAlo nakulaM tathA |  
@@ -61,7 +61,7 @@ O king the dog is then \[consumed\] by the cheetah .
 
 tAn atti puruShaH sarvAn pashya dharmo yathAgataH |  
 prANasyAnnam idaM sarvaM ja\~NgamaM sthAvaraM cha yat ||  
-All of these are eaten by man , behold \[this\] dharma \[i.e. yama\]
+All of these are eaten by man , behold \[this\] dharma \[i.e. yama\]
 which comes for all. All that is mobile and immobile are food for \[the
 continuation\] of prANa \[Footnote 3\].
 
@@ -104,7 +104,7 @@ motives (sadhuhiMsa), the superior action is that by which dharma is
 maintained.
 
 nAtyanta guNavAn kash chin na chApy atyanta nirguNaH |  
-ubhayaM sarva-kAryeShu dR^ishyate sAdhv asAdhu cha || Mbh 12.15.49-50  
+ubhayaM sarva-kAryeShu dR^ishyate sAdhv asAdhu cha || Mbh 12.15.49-50  
 There is no act that is entirely meritorious, nor any that is entirely
 wrong. In all acts, something of both, right and wrong, is \[always\]
 seen.

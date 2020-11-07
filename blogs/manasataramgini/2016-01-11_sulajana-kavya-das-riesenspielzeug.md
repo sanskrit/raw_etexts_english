@@ -88,7 +88,7 @@ than what is seen in the protein-universe. In fact Fenya and Menya as
 endless turneresses of the mill represent a motif going back to early
 Indo-European times. They appear in the great Bhārata as the two
 mysterious girls Dhātā and Vidhātā who were seen endless plying the
-loom by Utaṅka. This in turn is stems from the old brahmodaya of the
+loom by Utaṅka. This in turn is stems from the old brahmodaya of the
 Bhṛgu-s and Aṅgiras-es:  
 tantram eke yuvatī virūpe abhyākrāmaṃ vayataḥ ṣaṇ-mayūkham |  
 prānyā tantūṃs tirate dhatte anyā nāpa vṛñjāte na gamāto antam ||  
@@ -127,7 +127,7 @@ emerged the material that formed the sun, the moon, the earth and other
 aspects of existence. The great tortoise complained to the Sat-puruṣa of
 the violence of Nirañjana. Then the Sat-puruṣa cursed Nirañjana that he
 should never enter his Platonic sat-loka. While the genesis of much of
-the universe had proceed Nirañjana failed to make man. So he ate up
+the universe had proceed Nirañjana failed to make man. So he ate up
 three of the severed chelonian heads and meditated upon Sat-puruṣa
 asking him for a kṣetra. The Sat-puruṣa emanated a woman called Māyā.
 She was first unable to get her eyes of the Sat-puruṣa but gradually she
@@ -196,7 +196,7 @@ und Städte dort und Dörfer und das bestellte Feld
 erschienen ihren Augen gar eine fremde Welt.  
 \[With a few quick steps she crossed through the forest,  
 soon \[she\] arrived beside Haslach, the land of men,  
-and there cities and villages and the plowed field  
+and there cities and villages and the plowed field  
 became visible to her eyes, verily an alien world.\]
 
 Wie jetzt zu ihren Füßen sie spähend niederschaut,  
@@ -241,7 +241,7 @@ wie alles auf dem Tische sie zierlich aufgebaut,
 so klatscht sie in die Hände und springt und jubelt laut.  
 \[She spreads out her handkerchief and gently begins  
 to place the farmer, the plow and his team;  
-like everything else placed on the table they are made small,  
+like everything else placed on the table they are made small,  
 she claps her hands and jumps and cheers loudly.\]
 
 Der Alte wird gar ernsthaft und wiegt sein Haupt und spricht:  
@@ -258,8 +258,8 @@ denn wäre nicht der Bauer, so hättest du kein Brot;
 es sprießt der Stamm der Riesen aus Bauernmark hervor,  
 der Bauer ist kein Spielzeug, da sei uns Gott davor.  
 \[Right now, without grumbling fulfill my command;  
-because without the farmer, you will not have any bread;  
-the race of giants springs from the farmer stock,  
+because without the farmer, you will not have any bread;  
+the race of giants springs from the farmer stock,  
 the farmer is not a toy, god-forbid.\]
 
 Burg Nideck ist im Elsaß der Sage wohl bekannt,  

@@ -4,7 +4,7 @@ title = "Denisovans, Sherpas and Tibetans"
 +++
 [![](https://lh5.googleusercontent.com/-pROy10QSE7o/U7UACC9jxcI/AAAAAAAAC9M/2E9kS9PZztI/s800/tibetan_denisovan.jpg)](https://picasaweb.google.com/lh/photo/DN7tPzT-gCynZxe8qC1sDNMTjNZETYmyPJy0liipFm0?feat=embedwebsite)
 
-Many years ago we discovered that EGLN1 and its orthologs were  iron and
+Many years ago we discovered that EGLN1 and its orthologs were  iron and
 2-oxoglutarate-dependent dioxygenase that hydroxylated prolines. About 8
 months after we had published a paper detailing this discovery a band of
 mlechCha-s led by an English robber-baron said essentially the same
@@ -12,7 +12,7 @@ thing, as though it was a new discovery, while failing to cite us
 entirely – iti mlechChAnAM mlechChatvaM | But this EGLN1 was destined to
 have a long and interesting career at the foundation of many an
 interesting discovery. Years later, studies on the genetic adaptations
-that help Tibetans thrive at high altitudes revealed a role for EGLN1
+that help Tibetans thrive at high altitudes revealed a role for EGLN1
 and another gene EPAS1, which had also crossed our path. The latter
 protein had a domain which we were among the first to characterize and
 discover to be a binder of small molecule ligands. The recovery of these

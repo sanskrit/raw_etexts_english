@@ -44,10 +44,10 @@ of the original humans of Papua New Guinea and finally Australia
 (together greater Australia) before 50,000 years BP. This wave appears
 to have mated with the archaic sister group of the Neanderthals, the
 Denisovans, in South-East Asia and up to 7% of their genome originally
-came to be Denisovan in origin. This suggests that the aborigines and
+came to be Denisovan in origin. This suggests that the aborigines and
 Papuans are one surviving group of humans outside Africa for which we
 are certain of substantial archaic Homo admixture, well over the
-Neanderthal levels. The second branch is currently represented in an
+Neanderthal levels. The second branch is currently represented in an
 apparently pristine form by the stoneage Onge tribe of the Andamans – a
 negrito group. This branch clearly shows no Denisovan admixture. This
 branch spread over the the Malay archipelago and became the second wave

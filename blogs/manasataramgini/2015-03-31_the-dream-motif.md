@@ -221,7 +221,7 @@ which have established a cohabitation relationship with ants. I suggest
 you add them to your survey for there is lot of interesting biology
 there\!”  
 Lootika: “Old Darwin had said – *Whenever I hear of the capture of rare
-beetles, I feel like an old warhorse at the sound of a trumpet* – I feel
+beetles, I feel like an old warhorse at the sound of a trumpet* – I feel
 the same hearing your words.”  
 Somakhya: “Then hop on to your horse and let’s be going.”
 
@@ -421,7 +421,7 @@ proceeded to the maṭha and decided drive off the attackers. There he was
 joined by Vāmaśaṃbhu deśika in the great battle against the attackers.
 Taking cover behind an arch the brave vaṇij showered arrows and deftly
 jumping down when a bearded attacker passed by he struck down the
-attacker with his sword. After an hour or so they felt they had repulsed
+attacker with his sword. After an hour or so they felt they had repulsed
 the beards, when to their horror more of them poured in with their black
 flags waving in the afternoon sun. However, he decided to keep fighting
 till the end. Through an interpreter the attackers announced that they

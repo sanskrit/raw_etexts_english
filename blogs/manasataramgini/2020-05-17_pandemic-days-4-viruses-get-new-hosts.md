@@ -312,7 +312,7 @@ Asia where consumption of such animals is prevalent. Africa is another
 possibility, though the relatively low connectivity of Africa to the
 rest of the world until not long ago makes it less likely. The 2007, the
 camelids known as alpacas (llamas) were found to be infected by a novel
-coronavirus closely related to HCoV 229E resulting in the  alpaca
+coronavirus closely related to HCoV 229E resulting in the  alpaca
 respiratory disease. This points to a recent crossover from another
 animal source — this evidently parallels the original crossover of the
 related virus to humans. These pre-modern events probably spread more

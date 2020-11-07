@@ -6,7 +6,7 @@ title = "Panchatantra- India’s great product: origin and evolution"
 brAhmaNa viShNusharman?  
 It is said that he composed to these tales to teach nIti to the errant
 sons of the king amarashakti of the southern janapada of mahilAropya
-\[meaning city of ascendant women\]. In his opening verse he salutes the
+\[meaning city of ascendant women\]. In his opening verse he salutes the
 great teachers of politics and declares the pa\~nchtantra to be an
 epitome of the arthashAstra:  
 **manave vAchaspataye shukrAya parAsharAya sa-sutAya |  
@@ -15,7 +15,7 @@ cANakyAya ca viduShe namo .astu naya-shAstra-kartR^ibhyaH ||**
 sakalArtha-shAstra-sAraM jagati samAlokya viShNuSharmedam |  
 tantraiH pa\~ncabhir etac cakAra sumanoharaM shAstraM ||  
 To manu, to bR^ihaspati, shukra, parAshara and his son and chANakya the
-learned, we salute; these great makers of shAstras. Having examined the
+learned, we salute; these great makers of shAstras. Having examined the
 essence of all shAstras, viShNusharman too, has composed these five
 volumes, a delightful text.
 

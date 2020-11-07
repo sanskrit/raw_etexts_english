@@ -10,7 +10,7 @@ tradition, we had thought of a 3-way collaboration with shAradA and R to
 produce a more scholarly piece on the various aspects of this tradition
 — both in terms of the printed texts and what ever little information
 we could gather about unpublished manuscripts of this tradition.
-However, the travails from saMsAra-bandha-s have prevented us from doing
+However, the travails from saMsAra-bandha-s have prevented us from doing
 this. In any case here are some notes on the topic.
 
 Many tangled lines of our investigations over the years led to this body

@@ -16,6 +16,6 @@ heard a cat state that Doldrum is dead. Immediately his cat yelled: “I
 shall soon be king of the cats” and climbed up the wall and departed.
 
 Thus, when he said “mujhe lagta hai ki, udar koi bhoot rahta hai”, I
-realized that the sprite will be transferred to him.  As we had passed
+realized that the sprite will be transferred to him.  As we had passed
 through kAkodakapura we had heard the words of the epitome of kAkatva.
 We grasped those not then, but now we understand.

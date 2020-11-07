@@ -403,7 +403,7 @@ in battle or driven out, even as indra had slaughtered the hundreds of
 thousands of dAsa-s led by varchin…
 
 It was around 1.00 PM. The English convoy was led by Capt David Low
-along with white officers Lt Richard Hayes and Lt Konrad Bassler,  a
+along with white officers Lt Richard Hayes and Lt Konrad Bassler,  a
 Swiss missionary who was now working for the English corps. They were
 accompanied by a company of sepoys who were sandwiched between the white
 officers and grunts. They guarded the collections of revenue which was

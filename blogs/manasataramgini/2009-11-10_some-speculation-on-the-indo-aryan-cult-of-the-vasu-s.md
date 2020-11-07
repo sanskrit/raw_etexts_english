@@ -137,7 +137,7 @@ raNAjire vItabhayau virejatuH samAnayAnAviva viShNuvAsavau |;
 All these are examples of the survival of the vedic indrAviShNu simile
 in the itihAsa.
 
-Though we do not find the word vAsava in the RV,  in the R^ik-s of the
+Though we do not find the word vAsava in the RV,  in the R^ik-s of the
 vasiShTha-s alone do we find a clear association of indra with the
 vasu-s:  
 shaM na indro vasubhir devo astu sham Adityebhir varuNaH sushaMsaH | (RV

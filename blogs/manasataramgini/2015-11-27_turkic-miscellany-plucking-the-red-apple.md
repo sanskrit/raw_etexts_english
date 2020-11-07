@@ -138,7 +138,7 @@ go unchallenged. The vicissitudes of history eventually raised the
 successor state of the Khaganate of the Rus, the tsardom of Russia over
 the Osmans. The tsar of all Russias indeed shared a title with the Osman
 Sultans after the conquest of Constantinople – tsar and Kayser-i Rum.
-It was not just limited to that. As the most powerful force in the
+It was not just limited to that. As the most powerful force in the
 world of orthodox Christianity, Russia saw itself as a protector of the
 Church against Islam. In the 1850s the Russians had inflicted a heavy
 blow on the declining Osman power by smashing their fleet at Sinope. But

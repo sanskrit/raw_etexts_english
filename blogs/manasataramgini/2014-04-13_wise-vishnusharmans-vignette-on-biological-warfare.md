@@ -64,8 +64,8 @@ their way in via the perforations from the wounds. By this means he (the
 bull) will cause your destruction.
 
 Thus, viShNusharman’s account is perhaps one of the earliest textual
-references of excreta  having a major role in parasite-transmission as
-part of predator-herbivore interactions. Of course modern studies
+references of excreta  having a major role in parasite-transmission as
+part of predator-herbivore interactions. Of course modern studies
 suggest that parasites transmitted by carnivorans (example the
 apicomplexan *Sarcocystis*) can infect herbivores and weaken their
 muscles/other organs, thereby making them easier prey and furthering

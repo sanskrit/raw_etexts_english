@@ -8,7 +8,7 @@ Bonaparte](https://manasataramgini.wordpress.com/2014/12/28/some-trivia-on-equil
 regarding triangles. It is easy to prove once you know the upāya, even
 as the yogin-s would say ānanda is easily achieved once you know the
 right upāya. The upāya here is the kind of vector algebra problem one
-used to see on ones college entrance exam. One may ask why we need to
+used to see on ones college entrance exam. One may ask why we need to
 present such trivialities here. There are certain things that fascinate
 you when you are young. When you grow old you think about those often
 with a nostalgia and you think of re-experiencing it. For us this

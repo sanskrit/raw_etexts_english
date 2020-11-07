@@ -533,7 +533,7 @@ equilateral triangle
 
 [![120deg\_60deg\_triangles](https://manasataramgini.files.wordpress.com/2019/12/120deg_60deg_triangles.png?w=448&h=393)](https://manasataramgini.files.wordpress.com/2019/12/120deg_60deg_triangles.png)
 
-Figure 8. 2 $latex T\_{60}=(a, c, a+b); (b, c, a+b)$ can be derived from
+Figure 8. 2 $latex T\_{60}=(a, c, a+b); (b, c, a+b)$ can be derived from
 a ![T\_{120}=(a, b,
 c)](https://s0.wp.com/latex.php?latex=T_%7B120%7D%3D%28a%2C+b%2C+c%29&bg=ffffff&fg=333333&s=0
 "T_{120}=(a, b, c)")

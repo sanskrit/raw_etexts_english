@@ -58,18 +58,18 @@ shUdra-s I have spoken to were well aware of the connection between
 mArtANDa bhairava and khaNDobA, and also generally know the Sanskrit
 version of the story. The colloquial version is usually narrated by a
 pious shUdra bard called a vAghyA or in the midst of the shepherds by a
-sooth-sayer termed the “devarShi”. The Andhra and marAThA version differ
+sooth-sayer termed the “devarShi”. The Andhra and marAThA version differ
 in minor points, mainly place names. Some Andhras seem to have located
 the tale to Mallikarjuna or shrIshailam; in the kaNNaDa country I have
 noticed some say that it was malleshvaraM, now within Bangalore city.
-Clearly these places were there in the marAThA mind too, because shivAjI
+Clearly these places were there in the marAThA mind too, because shivAjI
 bhosle and his clan, great worshipers of khaNDobA, associated him with
 shrIshailaM and malleshvaraM. shivAjI even wanted to renounce the world
 and become a mendicant at shrIshailaM, but his men reminded him of his
 great role to play for svarAjya. This grandson emperor shAhu himself,
 like a vAghyA came to his court along with his dog on which he placed
 the royal crown thinking of khaNDoba. But I supply below the story as
-narrated in the frame of the marAThA country, for that is where I have
+narrated in the frame of the marAThA country, for that is where I have
 explored the many shrines of the deity:
 
 The brAhmaNa-s asked shiva to help the people from the depredations of

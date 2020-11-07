@@ -359,7 +359,7 @@ tAbhir yAsi dUtyAM sUryasya kAmena kR^ita shrava ichChamAnaH || RV
 
 Footnote 2: A rare exception being the conversion of section of the
 [Khazar Turks to their
-religion](https://manasataramgini.wordpress.com/2009/09/07/turning-of-the-turkic-wheel-the-khazar-khanate/ "Turning of the Turkic wheel: the Khazar Khanate").
+religion](https://manasataramgini.wordpress.com/2009/09/07/turning-of-the-turkic-wheel-the-khazar-khanate/ "Turning of the Turkic wheel: the Khazar Khanate").
 But even in their midst it appears to have been muted for records
 mention the continued presence of the Tengri-worshiping ritualists in
 the Khazar court even after their conversion. However, this conversion

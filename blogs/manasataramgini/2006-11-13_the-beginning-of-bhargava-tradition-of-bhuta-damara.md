@@ -9,23 +9,25 @@ core section of the ancestral bhArgava tradition of the bhUtaDAmaraM and
 unmattabhairavaM that was obtained from nIlarudra begins with the
 following rites and mantras. Their connections to the older atharvan
 tradition is reasonably transparent.  
-\-The section begins by saying that one must proceed to procure
+
+- The section begins by saying that one must proceed to procure
 oShadhi-s (technically termed oShadhi grahaNa vidhi by the bhArgava-s
 and a\~Ngirasas) for medical and ritual use only by applying the
 appropriate mantra-s otherwise, instead of a bheShaja one merely gets a
 pile of wood.  
-\-It advised that plants growing on termite nests, wells, at the base of
+- It advised that plants growing on termite nests, wells, at the base of
 shady trees, on chariot roads, groves of gods or graveyards be avoided
 for collection.  
-\-Plants that are damaged by fire, water or parasitic infestations,
+- Plants that are damaged by fire, water or parasitic infestations,
 unseasonally growing, or trampled to the ground should be avoided.
 Plants should be collected only in the prescribed amount required for
 the user.  
-\-One gets up in the morning and worships rudra surrounded by his hordes
+- One gets up in the morning and worships rudra surrounded by his hordes
 of bhUta-s. Then with worshipful attitude to The god one set forth for
 collection.  
-\-Going to the plant that one wishes to obtain one utters the spell:  
-OM vetAlAshca piShAchAshcha rAkShasAshcha sarIsR^ipA: |  
+- Going to the plant that one wishes to obtain one utters the spell:  
+
+> OM vetAlAshca piShAchAshcha rAkShasAshcha sarIsR^ipA: |  
 apa sarpantu te sarve vR^ikShAdasmAchChivAj\~nayA ||  
 One thus invokes rudra to command the vetAla-s, pishAcha-s, rAkShasas
 and reptiles to crawl away from the plant.  
@@ -37,7 +39,8 @@ fertility and long life and remove pApa-s
 
 Then thinking of the mAyA and pratya\~ngirA bIja-s one utters the
 following incantation:  
-yena tvAM khanate brahmA yena tvAM khanate bhR^igu | yena indro.atha
+
+> yena tvAM khanate brahmA yena tvAM khanate bhR^igu | yena indro.atha
 varuNo yena tvAM upachakrame | tenAhaM khaniShyAmi mantra pUtena pANinA
 ||  
 mA te pAte mAnipAti mA te tejo.anyathAbhavet |  
@@ -68,5 +71,6 @@ head.
 
 It also gives a long version of the mahiShamardini formula used for
 agni-stambhana prayoga:  
-OM hrIM mahiShamardini laha laha hala hala kaTha kaTha stambhaya
+
+> OM hrIM mahiShamardini laha laha hala hala kaTha kaTha stambhaya
 stambhaya agniM svAhA ||

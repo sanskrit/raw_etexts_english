@@ -8,7 +8,7 @@ The pUrva srotas of the tantras of rudra is comprised of the garuDa
 tantras, which encompass the glorious prANeshvarI and mR^ityu\~njaya
 vidyAs. However, less known are the aspects of the regular worship of
 mahAdeva in this srotas. The most critical aspect of this the invocation
-of the five-fold shiva through the pa\~chavaktra chakra. Adhara of the
+of the five-fold shiva through the pa\~chavaktra chakra. AdhAra of the
 worship is viShNu, who shall be first invoked with the formula :  
 oM bhUr viShNave AdibhUtAya sarvAdhArAya mUrtaye svAhA ||  
 He is offered an oblation in the fire or a pouring of water.

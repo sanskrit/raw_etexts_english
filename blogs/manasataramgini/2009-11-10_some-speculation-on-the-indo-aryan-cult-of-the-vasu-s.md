@@ -8,7 +8,7 @@ extended discussions with KR.
 The winter solstice/year beginning in the last part of shraviShTha (1300
 BCE)
 
-**The three great categories of gods in the veda and beyond**  
+## The three great categories of gods in the veda and beyond  
 Though absent in the extant Iranian texts, the oldest Indo-Aryan texts
 recognize the presence of three major categories of deva-s — the vasu-s,
 rudra-s and Aditya-s. This triad is mentioned on a number of occasions
@@ -23,7 +23,9 @@ especially of the Urdhva-srotas belonging to a much later era). The vasu
 who is explicitly named in the RV is agni. Three Aditya-s, mitra, varuNa
 and aryaman are frequently mentioned, but the other candidates of this
 category are hazy (beyond aMsha and dakSha who are named but rarely if
-ever made any offerings). In the brAhmaNa texts the number, if not the
+ever made any offerings). 
+
+In the brAhmaNa texts the number, if not the
 identity, of the constituent deities in each category appears to have
 been standardized. The gAyatrI is associated with the vasu-s as they are
 8 in number and so is the number of syllables in a foot of this meter.
@@ -31,7 +33,9 @@ The triShTubh is associated with the rudra-s as they are 11 in number
 and so is the number of syllables in a foot of this meter. The jagati is
 associated with the Aditya-s as they are 12 in number and so is the
 number of syllables in a foot of this meter. Since then, the number of
-deities in each category has remained conserved in Hindu tradition. The
+deities in each category has remained conserved in Hindu tradition. 
+
+The
 constituents of the vasu category were explicitly laid out first in the
 shatapatha brAhmaNa as being the deities who composed the world namely
 agni, vAyu, pR^ithivi, sUrya, antarikSha, dyaus, soma and nakShatra-s
@@ -49,7 +53,7 @@ The tradition recorded in the rAmAyaNa counts the 33 gods (an
 Indo-European number, also known in the shruti) thus: 8 vasu-s+11
 rudra-s+12 Aditya-s+2 ashvin-s:
 
-adityAM jaj\~nire devAs trayastriMshad ariMdama |  
+> adityAM jaj\~nire devAs trayastriMshad ariMdama |  
 AdityA vasavo rudrA ashvinau cha paraMtapa ||
 
 It appears plausible that the early vedic seers too intended these three
@@ -57,27 +61,33 @@ categories to contain a comparable set of deities as those encountered
 in these 3 groups in later Hindu tradition of the itihAsa and purANa.
 Following the lead of Hindu tradition the major R^ig vedic deities can
 be placed in these three categories thus:  
-Among the 8 vasu-s were the deities agni, vAyu, soma, dyaus, pR^ithi(vi)
+
+- Among the 8 vasu-s were the deities agni, vAyu, soma, dyaus, pR^ithi(vi)
 (along with 3 others)  
-Among the 12 Aditya-s were mitra, varuNa, aryaman, indra, viShNu, bhaga,
+- Among the 12 Aditya-s were mitra, varuNa, aryaman, indra, viShNu, bhaga,
 savitar, puShaN, tvaShTar, vivasvAn, aMsha and dakSha.  
-Among the 11 rudra-s were rudra and 10 others.  
+- Among the 11 rudra-s were rudra and 10 others.  
+
 The main factor in favor of accepting the potential R^igvedic antiquity
 of this scheme is that it neatly accommodates all the major old vedic
 who are invoked and worshiped in shrauta rituals. But there are some
 contra-indications too:  
+
 1\) The ashvin-s: were they in any of these categories or out of it?
 From the traditional view on the count of 33 deva-s and their
 distinctness from these 3 classes of deities it appears that they were
 probably outside of these 3 categories even in the R^igvedic world
 view.  
+
 2\) What about the marut-s, one of the most import group of R^igvedic
 deities? In the R^igveda they are occasionally called rudra-s. They are
 sons of rudra and hence called rudriya-s. Hence, at face value it seems
 to me that they were intended to be in the 11 rudra-s i.e. rudra and his
 sons. In support of this we have a hymn of shantanu and devApi in the RV
 which states (RV 10.98.1):  
-Adityair vA yad vasubhir marutvAn sa parjanyaM shantanave vR^iShAya |  
+
+> Adityair vA yad vasubhir marutvAn sa parjanyaM shantanave vR^iShAya |  
+
 Here the Aditya and vasu gaNa-s are mentioned, but instead of the
 tradition rudra-s we have marut-s supporting the idea that they were
 included in the rudra category. However, there is one inconsistency that
@@ -90,6 +100,7 @@ in the older texts summing up to 11 (we have 8 names like those used in
 the shUlagava sacrifice; the shatapatha brAhmaNa adds kumAra as the
 9th). Certainly by the epic period the marut-s had been dissociated from
 rudra and were placed in a category of their own.  
+
 3\) Further, within the vedic tradition itself we observe a number of
 different enumerations in an attempt to include the new god prajApati.
 For example in SB 11.6.3.5 yAj\~nvalkya lists the 33 deva-s as being 12
@@ -97,7 +108,7 @@ Aditya-s+11 rudra-s+ 8 vasu-s + indra + prajApati. This would suggest
 that there was clearly some variability in the exact composition of the
 categories in the vedic period.
 
-**indra and the marut-s : vAsava and vasu-s**  
+## indra and the marut-s : vAsava and vasu-s  
 While members of each of the three categories were retained as
 well-defined entities in the post-vedic tradition, most of them were
 reduced to abstractions as they lost the dimensionality and prominence
@@ -110,10 +121,13 @@ vR^itrahan, maghavan, shatakratu and the like. All these names are
 repeatedly used in the RV and are also frequently used in the itihAsa-s
 establishing the continuity between them and the shruti. However, in the
 itihAsa-s we observe a new, prevalent name for indra, namely vAsava.  
-E.g. in the rAmAyaNa:  
+
+> E.g. in the rAmAyaNa:  
 atha vA rAmarUpeNa vAsavaH svayam AgataH |  
-E.g. in the mahAbhArata:  
+
+> E.g. in the mahAbhArata:  
 bhImaseno mahAbAhuH savajra iva vAsavaH |  
+
 This name is missing in the RV and nearly absent in the whole shruti.
 This is peculiar given that it has the same or greater prevalence than
 the vedic epithets in the itihAsa-s. The word vAsava clearly connects
@@ -122,25 +136,31 @@ itihAsa-s is he explicitly placed inside the vasu category. Now, in the
 veda indra is frequently described as being accompanied by the marut-s
 (i.e. marutvAn) and sometimes by viShNu. Both these associations are
 preserved in the itihAsa-s. E.g.:  
-In the rAmAyaNa:  
+
+> In the rAmAyaNa:  
 vijitya tarasA lokAn marudbhir iva vAsavaH |;  
 upopaviShTaM sachivair marudbhir iva vAsavam |;  
 vAsavaM parivAryeva marutAM vAhinI sthitA |;  
-In the mahAbhArata:  
+
+> In the mahAbhArata:  
 abhigupto mahAbAhur marudbhir iva vAsavaH |;  
 All the above use a simile of indra accompanied by the marut-s.  
-In the rAmAyaNa:  
+
+> In the rAmAyaNa:  
 yathA shatruShu shatrughno viShNunA saha vAsavaH |;  
 lakShmaNena saha bhrAtrA viShNunA vAsavaM yathA |;  
-In the mahAbhArata:  
+
+> In the mahAbhArata:  
 raNAjire vItabhayau virejatuH samAnayAnAviva viShNuvAsavau |;  
+
 All these are examples of the survival of the vedic indrAviShNu simile
 in the itihAsa.
 
 Though we do not find the word vAsava in the RV,  in the R^ik-s of the
 vasiShTha-s alone do we find a clear association of indra with the
 vasu-s:  
-shaM na indro vasubhir devo astu sham Adityebhir varuNaH sushaMsaH | (RV
+
+> shaM na indro vasubhir devo astu sham Adityebhir varuNaH sushaMsaH | (RV
 7.35.6)  
 yasmin-nindro vasubhir mAdayAte tam ashyAma devayanto vo adya | (RV
 7.47.2)  
@@ -150,19 +170,28 @@ indro vasubhiH pari pAtu no gayam Adityair no aditH sharma yaChtu | (RV
 While, this link to the vasu-s minor in the veda, it is prevalent in the
 itihAsa-s, consistent with the proliferation of the new name vAsava in
 the latter texts.  
-E.g. in the rAmAyaNa:  
+
+> E.g. in the rAmAyaNa:  
 abhyaShi\~nchan nara-vyAghraM prasannena sugandhinA |  
 salilena sahasrAkShaM vasavo vAsavaM yathA ||  
+
 Here it is said that rAma was anointed with scents even as the vasu-s
 lustrated indra with the pure waters.  
-E.g. in the mahAbhArata:  
+
+> E.g. in the mahAbhArata:  
 tvaM hi bhIShma mahAbAho vasUnAM vAsavopamaH |;  
+
 Here bhIShma is compared to vAsava amongst the vasu-s.  
-parivArya raNe droNaM vasavo vAsavaM yathA |;  
+
+> parivArya raNe droNaM vasavo vAsavaM yathA |;  
+
 Here the warriors are supposed to surround droNa in battle like the
 vasu-s surrounding indra.  
-namas-kurvanti cha sadA vasavo vAsavaM yathA |;  
+
+> namas-kurvanti cha sadA vasavo vAsavaM yathA |;  
+
 Here the vasu-s are said to worship indra their leader.  
+
 Thus, the link limited to the vasiShTha-s in the veda has become common
 currency in the two epics. This link to the vasu-s and the innovation of
 the name vAsava in the itihAsa-s is accompanied by some other
@@ -177,8 +206,8 @@ that in the veda was only recorded in part by the vasiShTha-s, who were
 relative new-comers to the core vedic fold with links to the Iranian
 west.
 
-**The vasu-s, bhIShma and vAsudeva  
-** The vasu-s take the center stage in the opening plot of the Mbh in
+## The vasu-s, bhIShma and vAsudeva  
+The vasu-s take the center stage in the opening plot of the Mbh in
 the birth of one the main heroes of the epic — the pitAmaha bhIShma. In
 this tale the vasu-s thought great gods are cursed by a mere R^iShi
 vasiShTha Apava and hence forced to take birth as humans. But their
@@ -235,8 +264,8 @@ between this and the vasu-indra link of the RV — the vasiShTha-s could
 have been major players in the vasu-centric cult throughout its
 evolution.
 
-**The astronomical foundations of the vasu incarnation/vAsudeva myths  
-** Despite the years of nonsensical insistence to the contrary on part
+## The astronomical foundations of the vasu incarnation/vAsudeva myths  
+Despite the years of nonsensical insistence to the contrary on part
 of the white Indologists and their Japanese fellow travelers, it is
 clear that the language of Hindu myths sparkles with astronomical
 allusions of a distant age. Here again we see the concealed within these
@@ -244,13 +273,14 @@ seemingly meaningless myths a number of allusions to precession, which
 at least partial explain the matter of the vasu-s, vAsudeva and his
 ultimate connection with viShNu. Where are the vasu-s in the sky? The
 taittirIya brAhmaNa tells us:  
-aShTau deva vasavaH somyAsaH | chatasro devIr ajarAH shraviShThAH |  
+
+> aShTau deva vasavaH somyAsaH | chatasro devIr ajarAH shraviShThAH |  
 te yaj\~naM pAntu rajasaH purastAt |saMvatsarINaM amR^itagg svasti |  
 yaj\~naM naH pAntu vasvaH purastAt | dakShiNato. abhiyantu shraviShThaH
 |  
 puNyan nakShatraM abhi visaMshAma | mA no arAtir aghashagMsA .aganna ||
   
-The AV nakShatra kalpa 4.6 states:  
+> The AV nakShatra kalpa 4.6 states:  
 shravaNe viShNur uchyate shraviShThA vasudevatyA
 
 This indicates that constellation of the vasu-s was shraviShTha
@@ -270,18 +300,23 @@ is considered more current than magha suggesting a movement away from
 magha. This movement brought shraviShTha to the winter solstice, which
 started marking the beginning of the Aryan year. As a consequence we
 find several references to shraviShTha in different texts:  
+
 1\) The maitrAyanIya brAhmaNa upaniShad states that the winter solstice
 was in shraviShTha (MBU 6.14). It apparently refers to the middle of
 shraviShTha.  
+
 2\) The vedA\~Nga jyotiSha states that the winter solistice was in
 shraviShTha, evidently in implies the beginning of shraviShTha.  
+
 3\) In the skandopAkhyAna in the vanaparvan of the Mbh we see the
 statement: dhaniShThAdistadA kAlo brahmaNA parinirmitaH |  
 i.e. brahmA initiated time with dhaniShTha (=shraviShTha).  
+
 4\) In Mbh 14.44.2 we encounter: shraviShThAdIni R^ikShANi R^itavaH
 shishirAdayaH |  
 i.e. the constellation list beginning with shraviShTha while the seasons
 with the frigid season.  
+
 Thus, we have several late vedic or post-vedic references to the
 nakShatra-s beginning with shraviShTha. This, together with earlier
 references to the kR^ittikA-magha position, indicates that there was a
@@ -290,6 +325,7 @@ We also note that there is evidence for knowledge of the passage of the
 solstice within shraviShTha (shatapatha and MBU 6.14). We posit these
 points are central to rise of the vasu incarnation myth.We may
 reconstruct the whole scenario speculatively thus:  
+
 In the borderlands closer to the Iranian zone there existed a system of
 indra as the lord of the vasus, from fairly early in the Indo-Iranian
 history. The early signs of this system are what we observe in
@@ -304,12 +340,16 @@ this as an important portent possibly resulting in the belief that a
 vasu might incarnate on earth. I suspect that this belief arose
 originally as an astronomical allegory in the language of myth of the
 entry of the sun into shraviShTha, and as is usual the myth was
-interpret by the more literal as meaning a physical incarnation. As the
+interpreted by the more literal as meaning a physical incarnation. 
+
+As the
 sun course through the constellation over the next 300 years the myth
 was probably refined into a form that saw 7 of the vasu-s dying
 prematurely before the 8th would be born to live the life of a hero on
 earth. This expectation of the 8th vasu of the chief vasu was the
-central element behind both bhIShma and kR^iShNa vAsudeva. This 8th vasu
+central element behind both bhIShma and kR^iShNa vAsudeva. 
+
+This 8th vasu
 was in all likelihood considered the chief vasu or vAsudeva who was
 endowed with the qualities of vAsava. This belief was responsible for
 multiple contenders for the vAsudeva of the age. As the sun moved to the
@@ -319,13 +359,15 @@ led to a parallel expectation of the incarnation of viShNu. We posit
 that this belief arose among the sAttvata-s who had a vaiShNava streak
 in them. It was probably mixed up with the wider vasu/vAsudeva
 incarnation. Thus, the finally accepted vAsudeva, kR^iShNa, acquired his
-link to viShNu. The time of these events would be the window between
+link to viShNu. 
+
+The time of these events would be the window between
 1500-1200 BCE, which is interestingly close to what is obtained as the
 age of the bhArata by the famous paurANic testimony of parIkShit-s
 birth. It is supposed to have happened 1050 or 1015 years before the
 rule of the nanda-s of Magadha who apparently ruled around 300 BCE.
 
-**Epilogue**  
+## Epilogue  
 One may take this speculation further — the name vasudeva, of his
 father, is merely a caulk to fill in an explanation for the name
 vAsudeva in the tradition of grammar. In light of this, one might note
@@ -353,7 +395,9 @@ core hypothesis and suggest a similar scenario here, wherein the notion
 of the coming of the vAsudeva might have been inspired by a mythic
 description of precession. Of course it is entirely possible that the
 notion remained in the realm of myth and was simply superimposed on the
-history of the hero of the age, kR^iShNa devakIputra. Finally I must
+history of the hero of the age, kR^iShNa devakIputra. 
+
+Finally I must
 note that de Santillana and von Dechend mention something in passing
 that I have not been able to confirm but if true may be of interest in
 this context. The Greek original he cites goes thus:  
@@ -364,7 +408,7 @@ Sirius and the mysterious cry of the “death of the great god Pan heard
 on the voyage to Italy”.
 
 Footnote 1: KR goes as far as to state that bhIShma himself was a 3rd
-claimant for the vAsudeva post who probably lived a before the prime
+claimant for the vAsudeva post who probably lived before the prime
 claimant devakIputra and his rival pauNDraka. He lost out as kR^iShNa
 was accepted as the vAsudeva and only a more negative version of the
 vasu-birth myth was retained for bhIShma.

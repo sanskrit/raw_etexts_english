@@ -34,6 +34,7 @@ the words themselves are not.
 This brings us to the major question: why do modern Hindus, while
 according high respect to the shruti, fail to understand what is in
 it?  
+
 I do not necessarily have the answer but believe that is linked to the
 denudation of brahminical intellectual activity. It is clear that even
 with in the Hindu orthodoxy there is a huge need for reanalyses,

@@ -8,6 +8,7 @@ the Indians seem to have persisted with elephants until very recently.
 They first started using elephants right at the dawn of their
 civilization in the Indus period. What is the truth behind the
 elephant’s utility?  
+
 “bhagadatta on his elephant, supratika, showering arrows on his foes,
 looked like the resplendent Sun scattering his rays on the earth… Like a
 cowherd driving his cattle in the forest, bhagadatta charged on his
@@ -47,7 +48,8 @@ made the mlecchas victorious. We are often told that the elephants
 proved the down fall of the Hindus in this battle however, closer
 scrutiny shows that this was not all the truth. From an account of the
 battle:  
-“Some Macedonians were stamped underfoot crushing them to a bloody pulp
+
+> “Some Macedonians were stamped underfoot crushing them to a bloody pulp
 armour and all. Others were hoisted with their trunks and dashed to he
 ground. Others, again found themselves impaled by the great beasts
 tusks… The Macedonians never again wanted to face the elephants again

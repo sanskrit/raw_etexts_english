@@ -9,6 +9,7 @@ means of writing several prolix papers and using sophisticated jargon is
 the same as what Mr. Macaulay briskly delivered in his minute. “The vast
 accumulations of Indian literature is worth less than a shelf of books
 in a good European library.”  
+
 Why is this the case? The learned Pingree tells us that till Alexander’s
 invasion circa 300-400 BC the Indians did not even recognize the planets
 in the sky. The around the 200 AD the Indians with liberal help from the

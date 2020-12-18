@@ -27,7 +27,7 @@ takes saMnyAsa d)the male dies e)the male vanishes during a journey or
 voyage. Ideally if the male dies, the female must take the brother of
 the male.  
   
-5)Same gotra marriage should not happen \[If it doesthe male and female
+5)Same gotra marriage should not happen \[If it does the male and female
 should cancel their marriage and live as a brother and sister avoiding
 intercourse\]. The male and the female should not share a common
 ancestor for 7 generations on the paternal side and 5 on the maternal

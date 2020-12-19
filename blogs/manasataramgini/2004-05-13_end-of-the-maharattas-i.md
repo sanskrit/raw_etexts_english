@@ -70,5 +70,5 @@ Dengle sent another large body of troops to massacre another advancing
 mass of over 15000 tribals. The famine decimated most urban centers and
 the Peshva failed to restore law as he handed the control to brutal
 Patils who came down heavily on farmers. This broke the back of
-Maharastra resulting in the route of the Maharatta armies by the Britons
+Maharastra resulting in the rout of the Maharatta armies by the Britons
 15 years later.

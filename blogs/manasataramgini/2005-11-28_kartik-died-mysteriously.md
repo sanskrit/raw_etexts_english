@@ -107,6 +107,7 @@ that his parents were people steeped in old beliefs and thought he was
 under ill-influences of planets. Coltilde mentioned that it almost
 looked as though he was under a witch’s spell.  
 \*\*\*  
+
 We shall now continue the narrative of the strange tale of Kartik.
 Kartik narrowly survived this existential crisis and was up again. He
 had started a new company with Clotilde and Jenny, and was off to a good
@@ -115,7 +116,7 @@ friends to have food and drink. On his way he saw Pradip, the ill-omened
 one. Kartik’s left eyelid throbbed. Kartik, Jenny and Clotilde had a
 whale of time. Kartik was driving back home and just dropped Jenny, when
 he suddenly saw and highly alluring girl walking on the foot path . He
-could contain himself and stopped his car. He ran to her and she kept
+could not contain himself and stopped his car. He ran to her and she kept
 running away. He followed her and finally after a long chase touched
 her. It was as though a shock had run through his body. Kartik
 instanteously fell to the ground. It was bitterly cold and he started

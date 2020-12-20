@@ -28,7 +28,7 @@ when we took last the step on the setu ?
 vaiShNava yogI had attained his siddhis in haTha yoga. Beside it resided
 the shudra who never worked but earned a lot of money. We being the
 dvija was ever puzzled by the shudra’s way of living. But we understood
-the 4th varNa. We passed by and saw a two more shudras we observed them
+the 4th varNa. We passed by and saw two more shudras we observed them
 and learnt of their paths. The first of them accompanied us through
 thick and thin in the second Great War. At the end of it he was ruined,
 but we survived. Though R asked us not to help him we invoked the devas

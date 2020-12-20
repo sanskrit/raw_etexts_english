@@ -7,7 +7,7 @@ We were trying to take the upward passage when we encountered the
 terrific kR^ityA. The kR^ityA was blocking our path even as the kR^ityA
 of rudra that swallowed our ancient clansman ushanas. We evaded her
 narrowly and moved past despite sustaining a blow from it. The flow of
-internal surA from the brahmarAndhra quieted us even as a morbid
+internal surA from the brahmarandhra quieted us even as a morbid
 yajamAna who has been struck by the fury of soma is quieted by the
 external surA. dhUmrachChAya asked us why this name?
 
@@ -23,7 +23,9 @@ tendencies- he valued all branches of knowledge. More importantly, he
 was an astute observer- for after all, all science is observation and
 lively synthesizer. This was the intellectual Hindu spirit, which also
 produced the brahminical legalistic encyclopedias or the ritualistic
-encylopedias. The Hindu though often “self-absorbed” due making
+encylopedias. 
+
+The Hindu though often “self-absorbed” due making
 consciousness the axiom rather than the outgrowth, on occasion rose
 beyond to observe, accurately enumerate and systematize nature. In his
 systematization he discovered the principles of homology and
@@ -38,7 +40,9 @@ This text the mAnasollAsa (aka abhilaShitArthachintamaNi), has been much
 talked about, but hardly known to the decadent modern Hindus who
 epitomize the downward turn of the kAla-chakra in the fourth mAnuSha
 yuga. While many have talked about it before, let me repeat some of this
-as a praise to the meteor of the chAlukya firmament. The text as we have
+as a praise to the meteor of the chAlukya firmament. 
+
+The text as we have
 it owes its existence ot the unflagging efforts of a maharAShtran
 brahmin, Shirgondekar, who edited the thing over several decades. It
 covers 100 chapters in 5 viMshati-s or 20 chapter divisions. A striking
@@ -58,4 +62,4 @@ bath, footware, umbrellas and clothing. 11) deployment of mantras.
 So in memory of the kShatriya’s great text we decided to name our much
 lesser ramblings, expressing our continuity with the hindu intellectual
 tradition that is all but submerged.  
-****
+

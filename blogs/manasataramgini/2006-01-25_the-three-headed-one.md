@@ -54,12 +54,14 @@ hrUM vaHni chaitanyAya namaH
 He then offers AchamanaM to the great IshvarI of vak. Then the great
 vaishvAnara shoots up as he utters:  
 chit-pi\~Ngala hana hana daha daha pacha pacha sarvaGYAGYApaya svAhA   
+
 In the former days O rAma your illustrious ancestor, the foremost of the
 atharvans, bhR^igu saw many mantras. But this one which the primordial
 bhR^igu saw, who himself has sprung from the retas of prajApati, is the
 base of the new kalpa that is being enunciated. The dull-witted cannot
 grasp it:  
 oM vAishvAnara ihAvaha lohitAkSha sarvakarmANi sAdhaya svAhA  
+
 It is with it the act of sacrifice is achieved. He is then protected by
 the emanations of the 7 bIjas:  
 sryUM | shryUM | ShryUM | vryUM | LR^iryUM |R^iryUM |yryUM ||

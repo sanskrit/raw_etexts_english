@@ -25,13 +25,15 @@ She is kAlI, able to assume any form, and the friend of the destroyer of
 all. She is the sister of the great indra and viShNu, the night of total
 destruction between kalpas and the deluderess.
 
-Mythology of ekAnamshA
+## Mythology of ekAnamshA
 
 In the days of yore deva viShNu in the form of the terrifying nR^isiMha
 had rent apart the entrails of the great daitya hiraNyakashipu at his
 own doorstead, after emerging from a pillar. After that viShNu of a
 thousand heads retired to his eternal loka in the ekArNava, where he lay
-in a deep slumber on the coils of the snake of time. But his sleep was
+in a deep slumber on the coils of the snake of time. 
+
+But his sleep was
 not to last for long — the leadership of the demons had passed on to the
 dAnava kAlanemI- the wheel of death. The other devas came to him to seek
 his aid in the battle against the dAnava emperor. From his forehead
@@ -57,7 +59,9 @@ paTTiShas (flexible blades), shakti-s (broad-headed spears), ulmuka-s
 (fire-throwers), prAsa-s and axes. They shot missiles such as
 nistrimsha-s, bhAllas (broad-headed arrows) and hurled fiery clubs such
 as, parighas (dome-headed mace), mudgara-s (blade-sided mace), and
-bhindipala-s (electrical maces). The demons surrounded indra and
+bhindipala-s (electrical maces). 
+
+The demons surrounded indra and
 attacked him with a shower of shakti-s, but wielding his vijaya bow he
 shot fiery bhAllas that destroyed the dAnavas’ weapons before they left
 their hands. The devas started gaining the upper hand, when kAlanemi
@@ -86,20 +90,25 @@ viShNu deftly avoiding the strike, caught the weapon himself and hurled
 it back at kAlanemI. Unable to bear the trishUla, the dAnava and his
 vAhana were burnt to ashes by it.
 
+### kAlanemi's reappearance
 Though it appeared that kAlanemI was dead towards the end of the
 KR^itayuga he was to re-appear before the beginning of the downward turn
 of the wheel time (the age of kali) as the evil king of the bhojas,
 kaMsa. There were six powerful dAnavas, grandsons of hiraNyakashipu, who
 threatened the world with their invincibility. The all-knowing viShNu,
 entered them in a dream and stole their prANas an kept them in the care
-of ekAnamshA for future use. Aeons later when kAlanemI reincarnated as
+of ekAnamshA for future use. 
+
+Aeons later when kAlanemI reincarnated as
 kaMsa, viShNu was asked by the brAhmaNas and pR^ithivi to intercede and
 save them from the duShTa kShatriyas. viShNu decided to duely incarnate
 and slay kaMsa, but this intelligence was leaked by nArada to kaMsa. So
 viShNu directed ekAnaMshA to place those 6 dAnava prAnas she had
 maintained in suspension in the womb of devakI while she was in prison.
 Each time she gave birth kaMsa killed the child, thus riding the world
-of the 6 dAnavas. On the seventh occasion she brought the kAla-sarpa or
+of the 6 dAnavas. 
+
+On the seventh occasion she brought the kAla-sarpa or
 the saMkarShaNa as an embryo and placed it in the womb of rohiNi, while
 she put the original embryo in rohiNi’s womb into devakI’s womb, where
 it miscarried. Then she converted herself to an embryo and entered
@@ -108,35 +117,43 @@ yashodA, he had actually brought back ekAnaMshA. When kaMsa tries to
 kill her, she slips from his hand flies to the sky and from there
 announces that his future killer still lives.
 
+### Among yadus
 ekAnamshA is said to have been then sent by indra to live amongst the
 yadus, where vasudeva brought her up with great care. kR^iShNa and
 balabhadra are said to have embraced her after returning to dvAravatI
 from their campaigns. She is said to have stood between saMkarShaNa and
 vAsudeva when she was worshiped by the yadus.
 
+## Role in natural cycle
 The harivaMsha then gives detailed account of the associated vaiShNava
-theology of the yAdavas: viShNu is the axis of time. The time coils
-around him in the form of the kAla-sarpa, shesha. It is this terrible
-snake that manifests as saMkarShaNa. At the end of the kalpa the snake
+theology of the yAdavas: **viShNu is the axis of time**. The time coils
+around him in the form of the **kAla-sarpa, shesha**. It is this terrible
+snake that **manifests as saMkarShaNa**. At the end of the kalpa the snake
 spews flaming venom that destroys the loka, the main duty of
-saMkarShaNa. The nidrA of viShNu is the goddess ekAnaMshA, who manifests
-as the dark nights, the kAlarAtri-s between the kalpa. She is the friend
+saMkarShaNa. 
+
+The **nidrA of viShNu** is the goddess **ekAnaMshA**, who manifests
+as the dark nights, the **kAlarAtri-s between the kalpa**. She is the friend
 of samkarShaNa and envelops the world in darkness while he re-absorbs
-it. As the world manifests its components constantly keep emerging or
+it. 
+
+As the world manifests its components constantly keep emerging or
 return to viShNu borne by the flaming waves of his breath. ekAnaMshA as
 the yoginI, consumes all the entities that return. Every year, she
 seizes viShNu with a sleep in the rainy season, when indra takes over
 his place as the supreme being and nourishes the world \[comparable of
 mahAmAya of the mArkaNdeya purANa, who withdraws from viShNu allowing
 him to kill madhu and kaiTabha. In the kula tantric parlance she is
-svapnavArAhI, the goddess of yoganidra\]. She is both the sister of
+svapnavArAhI, the goddess of yoganidra\]. 
+
+She is both the sister of
 indra and viShNu and manifests as kAtyAyani or durgA on the vindhya
 mountains where her principal shrine is present. Thus, the holy triad of
 saMkarShaNa, ekAnaMshA and nArAyaNa was seen by the parama-bhAgavata
 akrUra. Her shrines are said to be all over bhAratavarsha where she is
 offered sacrificial offerings of meat and wine.
 
-Historical worship of ekanamshA  
+## Historical worship of ekanamshA  
 The astronomer varAhamihira recommends (bR^ihat saMhitA, chapter 58)
 that temples should contain triads of saMkarShaNa holding the musala
 known as sunanda, a halAyudha and a sthUNakarNa weapon in his four

@@ -43,7 +43,9 @@ deity and apAM napAt (who is described as being surrounded) by water
 nymphs (another ancient IE concept) can be demonstrated in a number of
 IE myths. A remarkable parallel of the link between sarasvatI and apAM
 napAt and sarasvati as illustrated in the aponaptrIya rite can be seen
-in the ABAN YASHT of the Iranians. The point to note here is that ardvi
+in the ABAN YASHT of the Iranians.
+
+The point to note here is that ardvi
 sura anAhitA is a perfect cognate of sarasvati and not a physical river
 as has been often claimed for the sarasvatI. She is generically as well
 as specifically associated with several rivers: Vitanghuhaiti on whose
@@ -52,25 +54,34 @@ Rasa (also mentioned in the Jaiminiya brAhmaNa) or the great river
 flowing down from Hukriya down to the Vouru kasha. Thus Anahita and
 sarasvatI are archetypal water goddesses, who were worshiped with much
 intensity by the IEans and who may get associated with physical rivers
-as well as apAM napat. In this context it is important to note that the
+as well as apAM napat. 
+
+In this context it is important to note that the
 concept of the fire within water is also connected with the Iranian
 concept of Xwarena- a fiery luster that existed on the floor of the
 Vouru kasha that Frangrasyan tried to obtain but failed but it followed
-the Iranian kings emerging from takshma urupi and keresAspa. Apam napat
+the Iranian kings emerging from takshma urupi and keresAspa. 
+
+Apam napat
 appears in a truncated form as Neptune in the religion of the Romans and
 is a fiery deity associated with the waters. He is said to lead the
 waves (so also his Keltic counter part Nachtan) as he moves along.
+
 Similarly in the Keltic mythosphere we have the goddess Epona who is
 said to have erupted from a spring of water and led a stream of it
 riding a horse. Hence we see that Apam Napat as the fire concealed
 within water and leading the erupting waters either himself or with a
-Sarasvati like deity to be an old Indo-European theme. So it is clear
+Sarasvati like deity to be an old Indo-European theme. 
+
+So it is clear
 that in the Indo-Aryan composers of the brahminical explanation for the
 aponaptrIya founded by kavasha ailusha, drew straight from their ancient
 Indo-European mythosphere, They super-imposed the Apam NapAt myth right
 on to kavasha with all the ‘scorching’ connotation being suggested by
 the desert and his leading sarasvatI away very much like Neptune leading
-the waves or Epona leading the stream away. Hence one may reason that
+the waves or Epona leading the stream away.
+
+Hence one may reason that
 after all the sarasvatI talked about in the myth had nothing much to do
 with the physical river. In general the high degree of conservation of
 sarasvatI related mythology amidst the ancient IEans suggests that it

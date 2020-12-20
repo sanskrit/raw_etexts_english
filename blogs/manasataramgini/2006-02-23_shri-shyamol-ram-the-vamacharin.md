@@ -35,6 +35,7 @@ terrified and retreated. But wanting to deal with shyAmol rAm futher
 they came with reinforcements. But before they could reach him the
 gorkhA capital was attacked by the Chinese invasionary force and they
 were forced to retreat. Many felt it was due to shyAmol rAm’s siddhi.
+
 Later it is said that the British official Malcolm Gardner wanted to
 find a Moslem brigand and approached shyAmol rAm humbly. He using a
 dUradR^iShTi prayoga pointed to where the turushka was hiding and he was

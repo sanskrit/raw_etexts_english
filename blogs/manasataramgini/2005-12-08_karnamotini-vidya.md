@@ -14,7 +14,7 @@ mama shatrUn shoShaya shoShaya |
 oM saumyAyai namaH| oM bhiShaNyai namaH| oM jayAyai namaH| oM vijayAyai
 namaH| oM ajitAyai namaH| oM aparAjitAyai namaH| oM mahAkoTyai namaH| oM
 raudryai namaH|  
-rupa-teja-tattvAtmikAyai namaH|| iti rupa-teja maNDalaM 
+rupa-tejas-tattvAtmikAyai namaH|| iti rupa-teja maNDalaM 
 
 mama shatrUn vidrAvaya vidrAvaya | 
 

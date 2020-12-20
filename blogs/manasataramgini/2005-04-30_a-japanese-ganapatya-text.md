@@ -40,7 +40,7 @@ and yang.
 co-penetration of all ten realms.
 
 The accessible material of this text suggests a rather simple process by
-which the uchChiShTa gaNapati from the mahAchinAchAra tantras was first
+which the uchChiShTa gaNapati from the mahAchInAchAra tantras was first
 “colored” by Taoist material in the land of the chInas where it first
 took root. From China it was then transmitted to Japan and presented in
 canonical form by Kakuban.

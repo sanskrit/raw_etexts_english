@@ -76,4 +76,4 @@ The lesson from the kAlAmukhas leads me to a conjuncture: Strongly
 organized systems are best in propagating socially and politically
 oriented doctrines. They generally fail to preserve intellectual
 traditions over long periods, under volatile conditions, though they may
-be excellent in over the sh0rt to medium range.
+be excellent in over the short to medium range.

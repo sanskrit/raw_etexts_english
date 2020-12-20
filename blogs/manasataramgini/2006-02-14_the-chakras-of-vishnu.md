@@ -9,6 +9,7 @@ deadly sudarshana and discs when used in battle against the dAnavas and
 rAkShasas. They represent the sum of the deadly destructive fury of
 viShNu. Likewise, the sampUrNa chakra prayoga rite invokes these weapons
 to power the countering or attacking mantra missiles.  
+
 The following are the chakras:  
 1\) mahArAtridhara chakra: This powered by mahAmAyA and is dark hued and
 terrifying with a single spoke.  

@@ -20,7 +20,9 @@ had held his court. During the high reign of the reign of king
 kullotu\~Nga, this governor had built a temple of the great deity
 karNamoTini and planted an Acacia tree in the compound. He attained the
 siddhi of the mantras of the deity. The place is now in ruins and in the
-grip of the practioners of adharma. Yet those of the clan that think of
+grip of the practioners of adharma. 
+
+Yet those of the clan that think of
 her see her fiery manifestation completely subduing all before them. The
 learned vaiShNava with whom we conversed in our native city told us of
 his remarkable journey to the most glorious Oddiyana Pitha, where he
@@ -38,14 +40,20 @@ Oddiyana in our minds eye. There the kiri-maNDala of daNDanAyikA shone
 and having circumambulated it we came to the maNDala of kaumarI. Having
 uttered her mantra we moved beyond and reached the AvarNa of
 karNamoTini. We worshipped the devIs:  
+
 chaNDA, ghaNDA, karAlI, sumukhI, durmukhI, revatI, prathamA and ghorA in
-the vAyu chakra Then we worshipped: saumyA, bhiShaNI, jayA, vijayA,
+the vAyu chakra
+
+Then we worshipped: saumyA, bhiShaNI, jayA, vijayA,
 ajitA, aparAjitA, mahAkoTI and raudrI  
+
 Then we worshipped: virUpAkShI, parA, divyA, the AkAshamAtA-s, samharI,
 daMShTrAlA and shuShkarevatI.  
+
 Then we worshipped pipIlikA, puShTiharA, mahApuShTipravardhanA,
 bhadrakAlI, subhadrA, bhadrabhimA, subhadrikA, sthirA, niShThurA, divyA,
 niSkaMpA and gadinI.  
+
 Then we received the nectar of the sUrya and soma through the iDa and
 pi\~Ngala. Out of the cup of our skull the goddess drank the nectar.
 With that we entered the realm of karNamoTini.

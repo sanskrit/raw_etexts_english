@@ -11,7 +11,7 @@ were gone like the sky blown clean of all the clouds to reveal the azure
 heights, with nothing but the midday sun blazing on the cobalt vault.
 His dhanakShaya had been ended. He had suffered one major loss, but
 otherwise had at least emerged on the other shore with his life. He felt
-it was great victory and was ecstatic. But the other clansmen were vary.
+it was great victory and was ecstatic. But the other clansmen were wary.
 While he had finally repulsed the attackers, there could be more. They
 assembled and asked: O bhArgava what do you think? Is this victory
 complete?

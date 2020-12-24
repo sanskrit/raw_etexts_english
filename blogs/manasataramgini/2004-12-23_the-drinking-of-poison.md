@@ -67,7 +67,7 @@ nAbhir nabhas te shvasanaM nabhasvAn sUryash cha chakShUMShi jalaM sma
 retaH/  
 parAvarAtmAshrayaNaM tavAtmA somo mano dyaur bhagavan shiras te//
 
-The coulds are your navel, the atmosphere your breathing, the sun your
+The clouds are your navel, the atmosphere your breathing, the sun your
 eyes and the \[celestial\] waters; verily your semen. Your self is the
 shelter of all beings, primary and secondary, the moon your mind and the
 heavens your head.

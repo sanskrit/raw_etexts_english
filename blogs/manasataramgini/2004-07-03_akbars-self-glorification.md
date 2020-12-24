@@ -93,7 +93,7 @@ Mogol mining. Due to this wound he was unable to mount a horse. So when
 the Mogols started pouring in after breaking though one of the 7 gates
 of Chittor he sat on the shoulders of a soldier and wielding swords in
 both his hands fought bravely in the general throng till he fell
-fighting. Given that right in the begining Akbar states that he tried to
+fighting. Given that right in the beginning Akbar states that he tried to
 shield his royal men from the infidel fire. Given the general range of
 the smooth bore Mogol muskets (90m or so) it is unlikely that Akbar
 struck a specific target from upclose. This suggests that the Fathnamah

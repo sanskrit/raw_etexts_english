@@ -21,7 +21,9 @@ dawn the adhvaryu, the yajamAna and his clansmen start walking towards
 the south. The site for interment should be far away from a place of
 habitation and roads. They should also be away from banyan, pipal
 vibhIdaka and other fig trees. The place should be beautiful and should
-have reeds. An isoceles trapezoidal shmashAna is measured out a man’s
+have reeds. 
+
+An isoceles trapezoidal shmashAna is measured out a man’s
 length in height and the four corners are marked with pegs of palasha
 wood (East), shami wood, varaNa wood and stone. The stone peg should
 have an image of vR^itra on it and be placed in the southern quarter. A
@@ -35,7 +37,9 @@ then sows all kinds of seeds in the furrow with the formula ashvatthe
 vaH. Then the bones are deposited with the formula with ‘savitA te..’.
 An assistant of the brahmin breaks the urn to the south while performing
 a prANAyAma. When he returns the adhvaryu utters the formula ‘param
-mR^ityo..’ The bones are then arranged in **anatomically correct**
+mR^ityo..’ 
+
+The bones are then arranged in **anatomically correct**
 articulation as a stretched out man, with the formula ‘shaM vAtA..’ and
 a brick is placed in the middle. At each side of the trapezium 3 bricks
 are placed, going east to west. Soil is then spread over the bricks. If

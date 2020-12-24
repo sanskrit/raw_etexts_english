@@ -23,25 +23,22 @@ in its basic archana form.
 However its deployment in the specialized form requires a more ardous
 procedure.
 
-\-women are forbidden from performing the procedure as they may not be
-able to sustain some of its effects.-Firstly an idol of kumAra, ideally
+- women are forbidden from performing the procedure as they may not be
+able to sustain some of its effects. 
+  -Firstly an idol of kumAra, ideally
 of the 6-headed form is procured; alternatively a kumAra yantra may be
-used.-the votary then abstains from eating all forbidden foods
+used.
+  -the votary then abstains from eating all forbidden foods
 (including onions, garlics and leeks), meats and liquors.
-
-\-for 3 days he observes total celibacy, not spilling his semen, and
+- for 3 days he observes total celibacy, not spilling his semen, and
 avoiding mentally entertaining sexual thoughts.
-
-\-then he prepares sweet-smelling flavored milk.
-
-\-then he prepares for the rite early in the morning or in the evening.
-
-\-He first offers the twilight offerings to the gods mitra or varuNa.
-
-\-He then mutters 1000 incantations to the god savitA holding the knot
+- then he prepares sweet-smelling flavored milk.
+- then he prepares for the rite early in the morning or in the evening.
+- He first offers the twilight offerings to the gods mitra or varuNa.
+- He then mutters 1000 incantations to the god savitA holding the knot
 of his yaGNyopavIta.
 
-\-He then allows the thoughts coursing in his mind like a raging ocean
+- He then allows the thoughts coursing in his mind like a raging ocean
 to still themselves and concentrates on his chitriNi nADi. At the level
 of the genitalia on the track of the chitriNi nADi within the spinal
 cord he senses the svAdiShThAna chakra. He then percieves the deva
@@ -66,17 +63,17 @@ lap. He needs to now merge his consciousness into the mUla mantra of
 kumAra (as percieved by learned tAntrics like lakShmaNa deshikendra) and
 utter it 600,000 times for best effect.
 
-\-Then he begins making 300 fire oblations to the god kumAra with the
+- Then he begins making 300 fire oblations to the god kumAra with the
 trishati. It becomes the shatru samhAra trishati that destroys all foes.
 
-\-At the end he offers 3 libations of the flavored milk before the idol
+- At the end he offers 3 libations of the flavored milk before the idol
 of kumAra with appropriate gAyatri incantation from the maitrAyaNi text.
 
-\-The next day he makes a special very sweet dish with 5 sweet materials
+- The next day he makes a special very sweet dish with 5 sweet materials
 and covers the idol with it uttering the quenching incantation of the
 bodhAyana text to kumAra and his wife ShaShThi.
 
-\-The votary may then distribute this sweet paste as an offering.
+- The votary may then distribute this sweet paste as an offering.
 
 The votary may experience a throbbing and intense internal sense of
 burning or rise in body temperature if he is a novice at the rite. The

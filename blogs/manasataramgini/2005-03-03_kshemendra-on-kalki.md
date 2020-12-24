@@ -4,7 +4,8 @@ title = "kShemendra on kalki"
 +++
 The great Kashmirian author in his text the dashAvatAracharitra which
 was written in 1066 AD describes the conditions that would prevail on
-the earth just before the coming of kalki.  
+the earth just before the coming of kalki. 
+ 
 “The Turushkas, Pathans, Daradas and dwellers of Shakastan will cause
 the earth to decay as do the leper his open oozing sores. Every
 direction overrun by the dreadful mlechChas, the earth will resound with

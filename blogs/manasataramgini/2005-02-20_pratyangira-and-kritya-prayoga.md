@@ -59,12 +59,14 @@ description of the deity tallies very well with the classical
 description of kR^ityAs in texts like the shiva or bhAgavata purANa\]
 
 Then prescribed oblations are made reciting just 108 times:  
+
 yAM kalpayanti no .arayaH krurAM kR^ityAM vadhumiva /  
 tAM brahmaNA .apanirnudmaH pratyak kartAramR^ichChatu //
 
 This is the paippalAda version of the formula
 
 Then curd oblations are made to indra with the formula:  
+
 yo me pUrva gataH pApmA pAvakeneha karmaNA indrastvaM devo rAjA
 jaMbhayatu staMbhayatu mohayatu vashayatu mArayatu nAshayatu baliM
 tasmai prayachChatu kR^itaM mama shubhaM mama shivaM mama shAntiH

@@ -4,13 +4,14 @@ title = "The odd Cambodian inscription of vinAyaka"
 +++
 Among the old inscriptions of the vinAyaka temples in the far-East are
 the following  
-1\) The Angkor Borei inscription of 611 AD, which mentions the
+
+- 1\) The Angkor Borei inscription of 611 AD, which mentions the
 construction of a shrine to mahAgaNapati.  
-2\) 660 AD the jayavarman II inscription describing a temple built to
+- 2\) 660 AD the jayavarman II inscription describing a temple built to
 shrIgaNapati.  
-3\) 817 AD inscription at Po Nagar in Vietnam of harivarman, the Champa
+- 3\) 817 AD inscription at Po Nagar in Vietnam of harivarman, the Champa
 King mentioning the temple built to shrI gaNapati (vinAyaka).  
-4\) 890 AD inscription of yashovarman I mentioning the building of two
+- 4\) 890 AD inscription of yashovarman I mentioning the building of two
 tantric Ashramas for the worship of vinAyaka known as chandanAdri
 gaNesha (sandal mountain gaNesha).
 

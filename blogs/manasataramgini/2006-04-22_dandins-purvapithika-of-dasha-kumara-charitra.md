@@ -12,16 +12,23 @@ viShNu](https://manasataramgini.wordpress.com/2004/12/06/the-snake-of-vishnu/),
 epic](https://manasataramgini.wordpress.com/2005/09/05/the-finnish-epic/),
 and more obliquely in [fall of
 praHlAda](https://manasataramgini.wordpress.com/2005/08/07/the-fall-of-prahlada/).
+
 The element of the axis and its precession is very much a part of the
-“core mythology” of viShNu: 1) the horn of matsya- the new axis being
-provided for the world after its shift due to precession. 2) The mandAra
+“core mythology” of viShNu: 
+
+- 1) the horn of matsya- the new axis being
+provided for the world after its shift due to precession. 
+- 2) The mandAra
 mountain as the staff for the churning of the world ocean being borne by
-viShNu on his back in the form of kUrma. 3) varAha raising the “world
+viShNu on his back in the form of kUrma. 
+- 3) varAha raising the “world
 plane” with his tusks- the world plane being the equatorial circle
 intersecting the ecliptic. It had sunk because the precession had pushed
-the old intersection with the ecliptic below the plane. 4) nR^isimha
+the old intersection with the ecliptic below the plane. 
+- 4) nR^isimha
 emerging by shattering the pillar- the old axis is broken by the flow of
-time by precession. 5) trivikrama with his three steps stabilizes the
+time by precession. 
+- 5) trivikrama with his three steps stabilizes the
 new world plane (equatorial circle), the ecliptic’s high point (step 2)
 and the precessing axis (step 3). It is in this context that the great
 R^ikSha jAmbavant is described as circumambulating trivikrama as he took

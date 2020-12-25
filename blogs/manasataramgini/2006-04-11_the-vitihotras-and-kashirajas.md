@@ -4,6 +4,7 @@ title = "The vItihotras and kashirAjas"
 +++
 Now we shall narrate the great AkhyAnaM of the vItihotras and the
 kAshirAjas.  
+
 The vItahavya the descendent of sahasrArjuna, had restored the glory of
 the haihayas after it was destroyed by rAmo bhArgava. He and his
 numerous sons the vItahavyas were well-versed in the vedas and the
@@ -13,13 +14,16 @@ yamuna, vItahavya and his sons swept into the territory of the kAshis by
 surprise. haryashva was caught with a small division and surrounded by
 the vitihotras. In the battle that followed they surrounded haryashva
 and riddled him with arrows killing him. Having collected a large booty
-of wealth and cattle they returned to haihaya territory. haryashva’s son
+of wealth and cattle they returned to haihaya territory. 
+
+haryashva’s son
 sudeva ascended the throne and a righteous ruler restored the glory of
 kAshi after a while. But this only attracted the vItahavyas to invade
 the kashi realms again. In the battle that followed, the haihayas slew
 sudeva and having laid waste to his capital itself returned to their
 domains in the vatsa country \[the region developed by the bhArgavas,
 the erstwhile priests of the haihayas, before the dattAtreyas\].
+
 Realizing the threat from the vItahavya and his brother tAlajangha’s
 sons the next king of the kAshis built elaborate fortifications in his
 revived capital named vArANasi, with the help of the great indra. Under

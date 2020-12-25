@@ -7,6 +7,7 @@ dharmaNA |
 apo vA gachCha yadi tatra te hitam oShadhIShu pratitiShThA sharIraiH
 ||*  
 (kaliyuga 5107, month: chaitra, shukla ekAdashi, magha)  
+
 Having reached the end of his span alloted by the son of vivasvAn he has
 joined the line of the long past ones under the star of the manes. He
 has gone the way of the great and first of the atharvaN-s, bhR^igu. He

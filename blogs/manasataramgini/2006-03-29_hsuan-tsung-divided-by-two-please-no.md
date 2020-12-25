@@ -21,7 +21,7 @@ stopped by an enemy division close to where our young captain was being
 pinned down in a saMkula yuddha. General kAmarAja broke through the
 enemy ranks and was wreaking havoc, when he was suddenly attacked by a
 second enemy division. We asked him to extricate himself and attack that
-second division code named indra -jAla 1, and sent our able servants to
+second division code named indra-jAla 1, and sent our able servants to
 reinforce his ranks, as well as covered him with mantra prayogas. He
 scored a spectacular victory on the front indra jAla 1 and returned to
 tackle indra jAla 2 that he hopes control and then decimate it. We also

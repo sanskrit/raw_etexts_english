@@ -29,7 +29,7 @@ His shAkta disposition becomes clear in the little fragments of the
 devIshataka that I obtained, which are truely a masterpiece of Sanskrit
 poetry. On tasting the devIshataka I realized that for a groundling like
 me this is enough to see the heights that alaMkAra and chitra kAvya
-might have reached. I do not go to the kIrATArjunIya or such, the
+might have reached. I do not go to the kIrAtArjunIya or such, the
 devIshakta and the mayurASTakaM are enough. No doubt it is said that it
 was composed after Anandavardhana performed a svapnavArAhI prayoga.
 

@@ -13,4 +13,4 @@ it seized us violently. We had to finally use the “Asandi” to drive her
 away. We thought we had her under check, when she suddenly returned and
 could not be quelled by by “nimbUka” or “mAsha”. She raged for five
 hours and the dhanAkarshaNa bhairava spell was repulsed. Then finally
-with the gaNanAtha a temporary control was effected.
+with the gaNanAthव्a a temporary control was effected.

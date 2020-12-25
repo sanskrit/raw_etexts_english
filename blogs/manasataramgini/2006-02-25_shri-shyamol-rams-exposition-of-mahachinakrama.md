@@ -34,22 +34,24 @@ asthi-kaNThAbharaNaM, asthimekhala (waist-band) and asthiruchka
 (bracelets). She utters a terrifying laugh.
 
 The yoga of mahAchInakrama-tArA is done thus:  
-\-The sAdhaka may choose an appropriate shmashAna for the purpose and
+
+- The sAdhaka may choose an appropriate shmashAna for the purpose and
 retire there at night with his dUtI.  
-\-There he sits on the pa\~ncha muNDa seat with his dUtI and meditates
+- There he sits on the pa\~ncha muNDa seat with his dUtI and meditates
 upon 3 vajras radiating rays pervading the 3 states of existence.  
-\-Then he draws in the rays and meditates upon the empty void of spanda
+- Then he draws in the rays and meditates upon the empty void of spanda
 and mutters the mantra: oM shUnyatAj\~nAna vajra svabhAvAtmako .aham |  
-\-Then he sees the red syllable aH in the sky, which transform into a
+- Then he sees the red syllable aH in the sky, which transform into a
 red lotus.  
-\-Then he sees the white syllable tAM on top of the red lotus, which
+- Then he sees the white syllable tAM on top of the red lotus, which
 then transforms into a skull cup.  
-\-Then the sun appears in the middle of the skull cup. In the middle of
+- Then the sun appears in the middle of the skull cup. In the middle of
 it appears a sun-spot that becomes the dark colored bIJa hUM.  
-\-Then the bIja hUM transforms into a cleaver, which itself is adorned
+- Then the bIja hUM transforms into a cleaver, which itself is adorned
 by the hUM bIja.  
-\-The cleaver then transforms into the sAdhaka performing the yoga.  
-\-The sAdhaka then identifies completely with mahAchInakrama-tArA. It is
+- The cleaver then transforms into the sAdhaka performing the yoga.  
+- The sAdhaka then identifies completely with mahAchInakrama-tArA. It is
 critical that the sAdhaka has transcended ahamkAra at this point else
 the sAdhAna could damage him.  
+
 Then he mutters the mantra oM hrIM strIM hUM phaT and enters japa.

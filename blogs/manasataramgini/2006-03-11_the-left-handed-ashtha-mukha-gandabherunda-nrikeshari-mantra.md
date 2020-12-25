@@ -12,7 +12,9 @@ saMhitA. Not much is know of the full extant of these texts ( if they
 survive in an degree at all they are obviously kept a close secret) but
 fragments relevant to ritual performance have been transmitted to those
 in the know. It is however clear that the left-handed vidya has
-propagated considerably in various guises. AMGN is said to have 8 heads
+propagated considerably in various guises. 
+
+AMGN is said to have 8 heads
 of the leonine form with saber teeth, whereas two heads of the
 dinosaurian form (which are apparently concealed as per the vAma
 mantra). He has 16 hands with a garland of skulls and holds a chakra,
@@ -21,7 +23,7 @@ weapons. The mantra was narrated thus by mahAdeva to ishAnI when she
 embraced him and kissed him:  
   
 vedAnAm AdimaM chaiva ardhendhu-bindu-bhUShitaM |  
-pashchAd aShTAnanayeti pi\~Ngordhva-kesha-vartmane ||  
+pashchAd aShTAnanAyeti pi\~Ngordhva-kesha-vartmane ||  
 chaturviMshatinetrAya tadanu ShoDashabhujAya |  
 kR^iShNa-jImUta-vapuShe kapAla-mAlAneka dhAriNe ||  
 adhyAnta-krUra-chittAya ardhendu-daMShTriNe |  

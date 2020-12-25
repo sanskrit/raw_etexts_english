@@ -42,6 +42,7 @@ himself records in the section on guru-shishya choice that he was a
 student of pragalbhAcharya himself the student of the great brAhmin
 viShNusharman. Thus we have:  
 viShNusharman-\>pragalbhAchArya-\>vidyAraNya yati  
+
 Clearly, this is not the nyAya savant pragalbhAchArya of the later nyAya
 tradition in Navadvipa. Further, R informs me that in Himachal Pradesh
 and Kashmir tradition has it that vidyAraNya yati completed his work in
@@ -54,6 +55,7 @@ lineage from him was:
 mahAbala-\>AchArya pANdita-\>shrI kR^iShNa paNDita-\> lakShmaNa
 deshikendra (the illustrious tantric who compiled the prayogas of the
 shAradA tilakaM).  
+
 As an aside in another direction lakShmaNa deshikendra was also seen as
 the successor for the syncretic trika-kaula schools of tantricism:  
 vasugupta (of shiva sUtra fame)-\>somAnanda-\> utpaladeva -\>
@@ -79,7 +81,9 @@ vidyAraNya was meditating in central India (near a bagalAmukhi sthala)
 when a brahmarAkshasa attacked him. He pacified it with food and water
 and it lead him to sage kR^ishNa dvaipAyana who was making an unseen
 journey to the city of kAlabhairava. vidyAraNaya apparently asked vyAsa
-for the tantra and was revealed the shrIvidyArNava. Another more earthy
+for the tantra and was revealed the shrIvidyArNava. 
+
+Another more earthy
 explanation by the southerners is that vidyAraNya went to Kashi to learn
 from the stated pragalbhAcharya. We find this a little strange, given
 that the Matha at Shringeri is believed to have anyhow traditionally

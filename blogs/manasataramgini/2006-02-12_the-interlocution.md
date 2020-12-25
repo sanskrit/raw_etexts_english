@@ -14,7 +14,7 @@ happen between us. We covered a wide range of topics, which I hope to
 re-visit at a later point if the wind of inspiration blows in the
 desirable direction. But for now I put them down just to keep a record.
 
-  - First we talked of pterosaurs
+## First we talked of pterosaurs
 
 Origins of pterosaurs are murky:They contain an antorbital fenestra just
 like the archosauriforms, but lack the mandibular fenestra. Given that

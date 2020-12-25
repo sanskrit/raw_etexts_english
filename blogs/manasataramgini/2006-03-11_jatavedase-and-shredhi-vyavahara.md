@@ -59,6 +59,7 @@ adopted. shredhi-phala or saMkalita is used for sum of series the
 formulae for it and nth terms of the series were all obtained. The
 formulae are also given form composite series of the form: tn=r\*tn-1+b
 or r\*tn-1-b  
+
 The binomial expansions were provided as meru-prasthas or what were
 known in the West as Pascal’s triangles. Finally, the great Nambuthiri
 mathematicians developed the trignometric series expansions and the

@@ -29,8 +29,7 @@ oM hUM shivatattvAya svAhA |
 oM hAM svAhA |  
 oM sarvebhyo devebhyo vauShaT |
 
-pUrayapUraya makhavrataM tanniyameshvarAya sarva-tattvAtmakAya
-sarva-kAraNa-pAlitAya oM hAM hIM hUM haiM hauM shivAya namaH ||
+pUraya pUraya makhavrataM tanniyameshvarAya sarva-tattvAtmakAya sarva-kAraNa-pAlitAya oM hAM hIM hUM haiM hauM shivAya namaH ||
 
 The use of the 5-fold face formulae suggest the basic link to the vedic
 proto-shaiva stock.

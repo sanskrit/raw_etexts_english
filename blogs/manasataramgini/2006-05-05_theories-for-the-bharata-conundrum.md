@@ -33,12 +33,16 @@ descendents came later and captured power as a result of the bhArata
 war, and then superimposed themselves on the existing Indo-Aryan
 genealogies and historical epics by creating a new epic the mahAbhArata.
 What are the suggestions supporting this unusual contention beyond the
-silence of the vedic texts regarding the pANDavas: (i) The pANDavas are
+silence of the vedic texts regarding the pANDavas: 
+
+- (i) The pANDavas are
 a younger branch of the kuru clan in the epic and are not actually
 pANDu’s biological sons but claim divine origin from the principal
-vedic gods. (ii) The pANDavas are associated with khANDava-prastha a
+vedic gods. 
+- (ii) The pANDavas are associated with khANDava-prastha a
 fringe zone of the kuru realm as per the late vedic descriptions of the
-brAhmaNas. (iii) Most traditional Indo-Aryan rulers as well as brahmin
+brAhmaNas. 
+- (iii) Most traditional Indo-Aryan rulers as well as brahmin
 orthodoxy of the a\~ngirasas (kR^ipa and droNa) stand by the kauravas in
 the war, whereas the major pANDava alliances are all through marriage.
 
@@ -50,25 +54,33 @@ vedic period was over. They then seized power through marriage alliances
 with prominent Indo-Aryan dynasties and ensuing the great bhArata war to
 oust the original kurus. Thus, they established their own dynasty in
 place of the original kurus. Then they tried to establish their
-legitimacy by many means. Firstly, they created an epic where they
+legitimacy by many means. 
+
+- Firstly, they created an epic where they
 placed their founders, the original pANDavas, as ancestors to the last
 of the pre-eminent kuru rulers known at that time who had great prestige
-in the vedic circles. Secondly, they obscured their own origins by using
+in the vedic circles. 
+- Secondly, they obscured their own origins by using
 the device of divine origin and placing their ancestor pANDu within the
-kuru dynasty as a younger branch. Thirdly, they incorporated old
+kuru dynasty as a younger branch. 
+- Thirdly, they incorporated old
 astronomical observations to predate the bhArata war back to the hoary
 vedic period.
 
 What remains unclear is whether they were really a younger branch of
 bhAratas or para-vedic outsiders. The latter is indeed very possible
 given the issue of the divine origins of the actual pANDava-s and the
-purely symbolic number 3+2, with two different mothers. That motif also
+purely symbolic number 3+2, with two different mothers. 
+
+That motif also
 occurs in the foundational myth of the Indo-Aryan pa\~ncha jana (3= anu,
 druhyu, pUru through sharmiShThA and turvasha, yadu through devayAnI).
 This motif occurs outside India in the foundational myth of the
 Chingisid mongols (3+2 with different fathers but a common mother in
 this case, with the divine father being the wolf manifestation of the
-deity Koko Tengri himself). The main problem with this overall theory is
+deity Koko Tengri himself). 
+
+The main problem with this overall theory is
 that itihAsas, and the bhArata itself is mentioned in the vedic
 literature in itself albeit somewhat late. The only way out is that the
 pANDavas inserted themselves into a pre-existing bhArata epic itself,

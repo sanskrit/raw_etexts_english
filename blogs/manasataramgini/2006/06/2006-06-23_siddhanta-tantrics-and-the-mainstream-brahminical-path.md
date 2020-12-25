@@ -24,7 +24,7 @@ too well. In fact nothing is farther from the truth in this regard when
 one approaches the original siddhAnta school. While shUdras like
 mUrtigaNa the successor of varmashiva and teacher of brahmin ishAnashiva
 held prominent places in the siddhAnta tradition, it did not mean that
-there was anykind of revolt against brahminical tradition, even if it
+there was any kind of revolt against brahminical tradition, even if it
 was somewhat atypical.
 
 In fact it must be pointed out that the siddhAnta shaivas repeatedly
@@ -33,6 +33,7 @@ thus:
 iti varNAshramAchArAn manasApi na la\~nghayet | yo yasminn Ashrame
 tiShThan dIkShitaH shivashAsane | sa tasminn eva samtiShThech
 ChivadharmaM ca pAlayet ||  
+
 “He should not even think of transgressing the varNAshrama practices. He
 should stand within (maintain) the order he was in when he attained
 shaiva initiation and at the same time maintain the practices of the

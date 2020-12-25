@@ -15,7 +15,7 @@ ShaTsAhasra tradition (since R1 was cashing her brahminical check).
 Thus, I learnt some of these rahasyas that I wish to record as they are
 in danger of extinction.
 
-\-Several forms of pratya\~NgirA are offered Ajya homas a combine
+- Several forms of pratya\~NgirA are offered Ajya homas a combine
 pUrNAhUtI, and tarpaNaM. The pratya\~NgirA-s invoked in this tradition
 are: 1) siddhalakShmI (She dances on the hands of the hands of the
 frightful ugratANDava bhairava who in turn stands on a preta. She smiles
@@ -24,22 +24,22 @@ with a sword, mace, bell, varada mudra and wine cup and GYAna mudra,
 bow, arrow, lasso and a severed head. Her mantra encompasses the vidyA
 of bAlA, the daughter of kulasundarI). 2) mantramAtR^ikA. 3)
 mantraDAmArikA 4) saptakoTeshvarI  
-\-Several sarasvatI-s are also offered oblations:1) mAtR^ikAsarasvatI 2)
+- Several sarasvatI-s are also offered oblations:1) mAtR^ikAsarasvatI 2)
 vidyAvidyeshvarI 3) vAgbhaveshvarI 4) vAgIshvarI (She has 4 arms and is
 seated on a siMha in the lalitAsana pose. She holds a hala, a rod and
 two spikes to spear the demons of tamas) 5) vaikharI (in the embrace of
 prajApati).  
-\-Then the oblations are made to the great chaNDakApAlini and
+- Then the oblations are made to the great chaNDakApAlini and
 nityAkAlI  
-\-The 4 kulasundarI-s are worshiped: kulavAgIshvarI, kAmeshvarI,
+- The 4 kulasundarI-s are worshiped: kulavAgIshvarI, kAmeshvarI,
 vajreshvarI and mahAtripurasundarI. They are worshiped with the
 kulavagIshvarI, vajreshvarI rahasya mantra and pa\~nchadashi mantras  
-\-The mighty kubjikA, the mistress of the paschimAmnAya, is worshipped
+- The mighty kubjikA, the mistress of the paschimAmnAya, is worshipped
 with the glorious 32 syllabled samayavidyA. She is mediated as seated on
 the lap of her spouse, mahAdeva as navAtman. She is indescrible as one
 can only experience her upon ‘seeing’ the flash of the mantra.
 
-\-The most peculiar vidyA of mahAntArI of 15 syllables is used with fire
+- The most peculiar vidyA of mahAntArI of 15 syllables is used with fire
 oblations in the Ajyahoma. The manifest form of mahAntArI for all those
 who know the vidyA emerges directly out of the a\~Ngas of kArttikeya.
 She has 6 heads and twelve arms as result.

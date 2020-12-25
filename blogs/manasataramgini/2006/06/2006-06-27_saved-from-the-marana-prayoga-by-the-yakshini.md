@@ -17,7 +17,9 @@ in the waters and could see yama’s agents bearing us away. For several
 minutes we were trashed by the waters of vaitaraNI, any moment sliding
 towards our jalasamAdhi. We just then realized that the only one who
 could physically bear us out of this deadly mAraNa prayoga was the great
-yakShiNi, nIlalohita-mekhalA, hovering yonder. We piteously called for
+yakShiNi, nIlalohita-mekhalA, hovering yonder. 
+
+We piteously called for
 her help. A fragment of the mahAstra hit her leg, but she ably dodged it
 and still came to our aid. nIlalohita-mekhalA gave us her arm, and
 holding to it like mArkaNdeya to shiva, we struggled out of vaitaraNi

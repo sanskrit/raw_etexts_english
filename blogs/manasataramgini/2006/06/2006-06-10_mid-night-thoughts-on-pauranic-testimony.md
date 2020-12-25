@@ -9,7 +9,9 @@ colleagues. I had long back silently noticed the precision with which
 Hindus recorded dates on their stone and copper plate inscriptions, be
 it Sanskrit or a regional dialect. This immediately brought home to me
 in a flash that the white scholars and their fellow-travellers were
-looking for Hindu historicity in the wrong places. In fact, the texts
+looking for Hindu historicity in the wrong places. 
+
+In fact, the texts
 which were believed to contain historical records were dismissed as
 being full of balony by the white scholars and their apers. I always had
 a certain respect for the purANa-s and noticed that their genealogical
@@ -19,7 +21,9 @@ there were many hoary kShatriya-s who were famous, like mandhAtA,
 trasadasyu, kArtavIrya, bhagIratha, bharata, raghu, rAmachandra,
 hiraNyanAbha, yuddhiShThira, kR^iShNa etc. But then there were also many
 who were only names– yet the purANas faithfully preserved them and
-despite the corruptions in texts had a largely consistent flow. Why
+despite the corruptions in texts had a largely consistent flow. 
+
+Why
 should these be preserved — especially in certain cases like the
 bArhadrathas with some numerical figures with each king even if his only
 mention was in these dynastic lists. It immediately struck me that the

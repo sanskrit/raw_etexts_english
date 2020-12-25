@@ -21,29 +21,25 @@ appears to be a superstrate on the Hurrian (an old Asiatic language of
 possible Caucasian affinities) the language of the original people of
 Syria and the main consitituents of the Mitanni Kingdom.
 
-deities directly mentioned: mitra, varuNa, nAsatya-s, indra
+- deities directly mentioned: mitra, varuNa, nAsatya-s, indra
 (Hittite-Mitanni treaty), lord of vasukhanni (mine of wealth?)  
-deities inferred from personal names: svardAta (suvar= dyaus), indrota
+- deities inferred from personal names: svardAta (suvar= dyaus), indrota
 (indra), vAyava (vAyu), vasudAta (vasu-s); viryasoma (soma).  
-Horse/chariot-related names: vR^iddhAshva, tviShratha, vArdhAshva,
+- Horse/chariot-related names: vR^iddhAshva, tviShratha, vArdhAshva,
 ashvasani, yuga, vartana, marya  
-Numbers: aika, tera, pancha, satta, nava  
-colors: pingar\[l\]a, babhru, par\[l\]ita  
-vira/shUra-based names: vIrasena, vIrya, vIryasoma vIryavAja,
-vIryashUra, vIrajana, avashUra, kal\[r\]mashUra, kShemashUra.  
-vAja-based names: viryavAja, sattavAja, vAjin, mativAja.  
-R^ita based names: artadhAman, artamna, artamAnya.
+- Numbers: aika, tera, pancha, satta, nava  
+-colors: pingar\[l\]a, babhru, par\[l\]ita  
+- vira/shUra-based names: vIrasena, vIrya, vIryasoma vIryavAja, vIryashUra, vIrajana, avashUra, kal\[r\]mashUra, kShemashUra.  
+- vAja-based names: viryavAja, sattavAja, vAjin, mativAja.  
+- R^ita based names: artadhAman, artamna, artamAnya.
 
 It is clear from whatever evidence we have that the Indo-Aryan speakers
-bringing this superstrate to the middle east: 1) were speakers of a
-language close to the vedic language. 2) Followed an IE religion close
-to vedic 3) were a heroic/military group rather than traders or pure
-ritualist priest (as against warrior-priests), as suggested by the
-numerous vAja, vIra/shUra based names. 4) Were highly equestrian in
-disposition (The Hittite ascendency can be directly linked to adoption
-of IA horse training techniques like that of Kikkuli. Modern day
-experiments of Kikkuli’s method show that it is an effective 7 month
-training program for war-horses).
+bringing this superstrate to the middle east: 
+
+- 1) were speakers of a language close to the vedic language. 
+- 2) Followed an IE religion close to vedic 
+- 3) were a heroic/military group rather than traders or pure ritualist priest (as against warrior-priests), as suggested by the numerous vAja, vIra/shUra based names. 
+- 4) Were highly equestrian in disposition (The Hittite ascendency can be directly linked to adoption of IA horse training techniques like that of Kikkuli. Modern day experiments of Kikkuli’s method show that it is an effective 7 month training program for war-horses).
 
 These traces of IA are very important because they form the only clearly
 attested archaeological evidence for an Indo-Aryan language prior to the

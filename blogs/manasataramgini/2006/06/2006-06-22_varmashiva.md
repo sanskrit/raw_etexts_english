@@ -14,15 +14,18 @@ the southern country to the northern zone, where they stayed for almost
 ogha-valli-s record one member of my clan from the period just after the
 initial migration. While not much is known of others, this member of my
 clan, nephew to my direct male ancestor, attained considerable fame in a
-particular sense. The vaidiki “smArta-s” were always the source of
+particular sense. 
+
+The vaidiki “smArta-s” were always the source of
 intellectual capital for diverse sectarian matas through their
 defections to those paths. We have jayarAshI, the brahmin exponent of
 the chArvAka-mata, others like vAsubandhu of the AghamarShaNa kaushika
 gotra from puShpapura (now Peshawar in the Moslem Terrorist State)
 benefitted the bauddha mata, and rAmAnuja expanded shrI-vaiShNavism.
+
 This clansman of mine, varmashiva, was likewise a case of brain-drain,
 but into the shaiva-mata. While I generally tend to identify myself with
-saMkarShaNa in jayanta’s play, Agama-Dambara, I still have my sympathies
+saMkarShaNa in jayanta’s play, Agama-ADambara, I still have my sympathies
 for varmashiva for certain reasons. Inscriptions records associated with
 the vodAmayUtA temple of rudra clearly mention his pravara as being:  
 pravara pa\~NchakAnvito vatsa-bhArgava sugotra-maNDitaH| bhArgava-
@@ -33,7 +36,9 @@ in Gujarat in very turbulent times after the Ghaznavid storm. He learnt
 the atharva-veda at aNahilapATaka, the great pAshupata center. He also
 studied the vaisheShika and nyAya of which he remained a great advocate
 till the end and wrote a treatise building on the
-padArtha-dharma-saMgraha. He performed the pAshupata vrata as per the
+padArtha-dharma-saMgraha. 
+
+He performed the pAshupata vrata as per the
 atharvaNa AdeshaH and became inclined towards the shaiva mata. He then
 proceeded to the drAviDa desha in dakShiNa patha where he encountered
 bauddhas and is said to have blasted them in fiery polemics. It was
@@ -45,7 +50,9 @@ bhoja-deva of the paramAra-s, with a nyAya-vaisheiShika orientation. He
 then journeyed to Kashmir, where debated with towering scholars of the
 lAkulIsha kAlAmukha, trika and shrIvidyA schools and his scholarly and
 independent philosophical abilties was much respected by his rivals. He
-was honored by AnandarAja the lohara king of Kashmir. He also was widely
+was honored by AnandarAja the lohara king of Kashmir. 
+
+He also was widely
 respected for his tAntric abilities in the KShudra vidyA-s acquiring the
 yakShiNi, chUrNa, chetaka, DAmarikA and DAvI prayoga-s (latter for
 invoking terrifying agents that can cause a variety of rogas in course

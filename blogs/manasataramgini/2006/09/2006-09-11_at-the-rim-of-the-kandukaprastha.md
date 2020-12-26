@@ -65,7 +65,7 @@ h.j: “Oh vAjaratnAyana, while I am happy that you are not there at the
 R^ikShashAlA or rasashAlA to add to our woes in the yuddhA\~NgaNa, why
 is that you have choosen to go to the dhUrtashAlA? . What goes on at the
 dhUrtashAlA? ”  
-I: “Oh mighty hrasvaroman, while my father is of moderate means, enought
+I: “Oh mighty hrasvaroman, while my father is of moderate means, enough
 to provide me with an ashva and good food, we do not have the riches to
 waste on R^ikShashAlA-s. Further, I have wielded astra-s even as a kid,
 and have even survived even the aforesaid son of brindA, albeit in a
@@ -129,6 +129,7 @@ blocked from making contact with my clansmen like the atri, aunt Spring
 and Jx by the grip of the kR^ityA. As I was in a reverie feeling like
 one in the desert of existence, I received a call from aurvasheyI. What
 follows is saMdhyA-  
+
 kauNDiNyA: Does the vArtAlI of the dreams favor you?  
 I: Apparently not.  
 kauNDiNyA: Is that why you wander in the marukShetra with no yakShiNI in

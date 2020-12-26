@@ -52,6 +52,7 @@ Then came her discourse on her world travels and the like and her final
 settlement as a school teacher. I asked if things went well with her.
 She said her sister’s rich husband had died. How come I asked? The tale
 goes thus:  
+
 C’s sister’s husband and C’s sister were roaming one full moon night in
 the vast pastures surrounding their orchards. He was from a clan of
 Whitemen who had pioneered in battles against the Injuns. He was proudly

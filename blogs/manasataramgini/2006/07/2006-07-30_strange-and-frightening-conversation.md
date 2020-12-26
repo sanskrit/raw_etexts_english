@@ -42,7 +42,7 @@ this point Sharada made a very strange comment: “I have been interested
 in this disease even while I was an intern. Your(R’s) father told me
 something that I did not believe at all. He said that victims of a
 particularly severe dhUmavatI mAraNa attack showed symptoms similar to
-encephalitis lethargica, and long befored Sacks the tantrics knew that
+encephalitis lethargica, and long before Sacks the tantrics knew that
 there was one counter that could help- Atmagupta. He could not at that
 point show me any patients. However, several years later when he was
 visiting bhArata, (X) showed both of us a patient who was in a condition

@@ -9,7 +9,9 @@ range of mAraNa attacks. It is different from the amR^iteshvara vidya,
 like that described in the netra tantra tradition. The latter is
 shAntaM, while the saMkShipta bhairava formulae are ghoraM. It can also
 be used for mAraNa strikes when conjoined with mahAmArI, the mate of the
-fierce bhairava, and the mantra of yama. The bhArgava mArkaNDeya is the
+fierce bhairava, and the mantra of yama. 
+
+The bhArgava mArkaNDeya is the
 R^iShi of the mantra of the terrifying saMkShipta bhairava. He is
 meditated upon holding mahAmArI in his grasp. He is dancing on preta-s
 lying on the shmashAna. His face is terrifying with 3 eyes and a crown
@@ -22,14 +24,16 @@ standing revertially worshiping them. Beyond him is standing the most
 bewitching pradhAna yakShiNI, pramodA with her yakShiNI hordes.
 
 The formal version of his mantra is the anuShTubh:  
-yamarAja sado.ameya yame doradayodaya | yad ayo-niraya-kSheya yakSheya
-cha nirAmaya ||
+
+yamarAja sado.ameya yame doradayodaya |  
+yad ayo-niraya-kSheya yakSheya cha nirAmaya ||
 
 The contains a symmetric structure within it known as the
 pratiloma-yamaka used by savants like Anandavardhana and daNDin. This is
 characterized by what is known as the inverted terminal repeats:  
-yamarAja sadomeya yame doradayodaya | yad ayo-niraya-kSheya yakSheya cha
-nirAmaya ||
+
+yamarAja sadomeya yame doradayodaya |  
+yad ayo-niraya-kSheya yakSheya cha nirAmaya ||
 
 The mantras of mahAmarI and yama have similar symmentric structure:
 
@@ -43,6 +47,7 @@ These mantras create the yantra used in the prayoga known as a gahvara
 by virtue of their symmetries. The bewitching, most beautiful pradhAna
 yakShiNI emanating from combined mantras is pramodA worshipped with the
 mantra:  
+
 OM sThrIM hrIMH mahAnagnyai hUM phaT svAhA ||
 
 The mantra is recommended by the great siddhAnta savants sadyojyotI from

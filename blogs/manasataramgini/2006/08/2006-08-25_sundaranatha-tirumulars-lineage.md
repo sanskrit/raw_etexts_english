@@ -72,8 +72,9 @@ All the tantras named here belong to the Urdhva-srotas emanating from
 ishAna or the upper head of the five-faced deva. They are divided into
 the 10 shiva Agamas and 18 rudra Agamas, both of which are seen in the
 nandin tradition of tirumular. They are:  
-principal shivAgamas: 1) kAraNa 2) kAmikA 4) chintya 8) suprabheda ;
-principal rudrAgamas: 3) vIra 5) vAtula 6) vimala 9) makuTa upAgama of
+
+- principal shivAgamas: 1) kAraNa 2) kAmikA 4) chintya 8) suprabheda ;
+- principal rudrAgamas: 3) vIra 5) vAtula 6) vimala 9) makuTa upAgama of
 the kiraNa tantra stream 7) kallottara.
 
 It should be noted that within the tirumantiram a particular hierarchy

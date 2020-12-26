@@ -36,21 +36,28 @@ sarvopachAra sahitaM baliM gR^ihNa gR^ihNa svAhA ||
 Then one invokes baTuka bhairva into the syrup pot with walnuts with the
 formula:  
 oM baM baTukAya namaH |  
+
 Then one meditates on him with fair complexion, with deep blue clothing,
 with two hands holding a trishUla and a skull with a yantra inscribed on
 it, with cobra garlands and surrounded by howling dogs.  
+
 baTuka bhairava mantra is used during this meditation:  
 hrIM baTukAya ApaduddhArana kuru kuru baTukAya hrIM ||  
+
 homa may next be offered to baTuka bhairava with this mantra.  
 Then the index finger and thumb and joined to show the baTuka mudra and
 then the following incantation is used to offer rice ball offerings:  
+
 ehyehi devI-putra baTukanAtha kapila jaTA bhAra bhAsura trinetra
 jvAlAmukha sarva-vighnAn nAshaya nAshaya sarvopachAra sahitaM baliM
 gR^ihNa gR^ihNa svAhA ||
 
 Then the yoginIs are invoked into the biMba-s with the mantra: yAM
+
 yoginibhyo namaH ||  
+
 Then they are worshipped with the formula aiM hrIM shrIM ||  
+
 Then the yoginI mudra is shown: The middle finger, ring finger and
 thumbs are bent so that their tips meet to form a circle.  
 Then the yoginis are offered bali with the formula:
@@ -61,6 +68,7 @@ pIThopapIThAdiShu cha kR^itapadA dhupa -dIpAdikena prItA devyaH sadA naH
 shubha-bali-vidhinA pAntu vIrendra -vandyAH | yAM yoginIbhyaH svAhA ||*
 
 Then one meditates on paramshiva using the dhyAna:  
+
 nAnA-kalpAbhirAmApaghanam-abhi-matArtha-pradaM suprasannaM |  
 padaMasthaM pa\~nchavaktraM sphaTika-maNi-nibhaM pArvatIshaM namAmI ||
 
@@ -103,12 +111,15 @@ Then there is recitation of the kaTha rudrIya, which begins with
 “tat-puruShAya vidhmahe…”
 
 It is concluded with the oblation:  
+
 tasmai te deva bhavAya sharvAya pashupataya ugrAya devAya mahate devAya
 rudrAyeshAnAyAshanaye svAhA ||  
+
 evidently from the kaTHa oral tradition (compare with similar taittirIya
 mantra).
 
 Then umA is worshipped with the formula:  
+
 hrIM namo brahma shrI-rAjite rAja pUjite jaya vijaye gaurI gANdhArI
 tribhuvana-vashaMkarI sarva loka-vashaMkarI su su du du ghe ghe vA vA
 hrIM svAhA ||

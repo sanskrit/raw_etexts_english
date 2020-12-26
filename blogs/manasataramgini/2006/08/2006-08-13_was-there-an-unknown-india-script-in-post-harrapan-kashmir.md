@@ -9,14 +9,15 @@ study of an archaeological site in Kashmir, near Shrinagara. Her
 exploration were at two exposures close to the city where the people had
 dug a hill with nearly perpendicular cuts for obtaining soil for
 cultivation. While examining the cut she noticed the following:  
-\* The top-most layer was full of glazed ware and a plain red ware
+
+-  The top-most layer was full of glazed ware and a plain red ware
 porous thin walls which were typical of the medieaval period or the
 Islamic period.  
-\* Below this there were abundant pieces of the stamped red ware typical
+-  Below this there were abundant pieces of the stamped red ware typical
 of shunga-kushAna period.  
-\* Below this she found few small sherds of the Northern Black polished
+-  Below this she found few small sherds of the Northern Black polished
 ware.  
-\* Below this she found an abundance of “beautiful”, extremely
+-  Below this she found an abundance of “beautiful”, extremely
 thin-walled, strong, well-fired, plain red ware, with a knife edge or
 featureless rim. This ceramic was agreeable to touch and when shown to
 archaeologist BB Lal he apparently remarked that it was the thinnest
@@ -27,16 +28,16 @@ to that of her Kashmir site and Shahi Tump.
 
 In the Hastinapura excavation sequence one observes the following:
 
-\* The topmost layer has early medieval Moslem period ware (Period V).  
-\* Next layer was the Stamped Redware of the shunga-kushAna period
+-  The topmost layer has early medieval Moslem period ware (Period V).  
+-  Next layer was the Stamped Redware of the shunga-kushAna period
 (Period VI)  
-\* The layer below that was the NBPW (Period III)  
-\* The layer below that was the famous PGW (Period II) that emerged from
+-  The layer below that was the NBPW (Period III)  
+-  The layer below that was the famous PGW (Period II) that emerged from
 BB Lal’s pioneering excavations. This was dated by archaeologists to be
 from at least 1100 BCE. Lal in those days thought it might correspond to
 the Indo-Aryan. However, now Lal no longer believes it was the earliest
 Aryan presence and subscribes to an Harappan Aryan theory.  
-\* The lowest layer (Period I) is a coarse, “primitive” ochre colored
+-  The lowest layer (Period I) is a coarse, “primitive” ochre colored
 pottery:OCP (some indologists believed that this may be the ware of
 invading Indo-Aryans who were supposed by as incapable of making any
 advanced pottery).
@@ -44,9 +45,10 @@ advanced pottery).
 In the more recent Abhaipur excavations in Uttar Pradesh by AR Mishra’s
 team a slightly different stratigraphic sequence of the earlier layers
 has been obtained:  
-\* The PGW layer here was sandwiched between NBPW (above) and a Black
+
+-  The PGW layer here was sandwiched between NBPW (above) and a Black
 Red Ware (BRW) below it.  
-\* Below BRW was found an OCP layer.  
+-  Below BRW was found an OCP layer.  
 Here the PGW was dated to 1100 BCE and BRW to 1500 BCE.
 
 Thus, PGW has a fairly clear temporal boundary in different sites and

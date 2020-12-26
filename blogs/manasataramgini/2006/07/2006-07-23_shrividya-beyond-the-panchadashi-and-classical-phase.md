@@ -6,17 +6,25 @@ Not much is remembered of the shrI-kula traditions before the universal
 sweep by the pa\~nchadashI and structurally related mantras, like manu
 vidyA or skanda vidyA. These may be termed the classical shrIvidyA
 mantras and examples include:  
-The manmatha vidyA or kAdi vidyA:  
+
+## The manmatha vidyA or kAdi vidyA:  
+
 ka e I la hrIM | ha sa ka ha la hrIM | sa ka la hrIM  
+
 This celebrated mantra is seen even in tiru-mantiraM of sundaranAtha
 (tirumUlar) the celebrated siddha who migrated from Kashmir to the
 drAviDa desha.  
-The lopAmudra vidyA or the hAdi vidyA:  
+
+## The lopAmudra vidyA or the hAdi vidyA:  
+
 ha sa ka la hrIM | ha sa ka ha la hrIM | sa ka la hrIM  
-The skanda vidyA (with 18 syllables):  
+
+## The skanda vidyA (with 18 syllables):  
 ha sa ka la hrIM | ha sa ka sa ka la hrIM | sa ha ka ha ka hrIM |  
-The manu vidyA (with 18 syllables):  
+
+## The manu vidyA (with 18 syllables):  
 ka ha e I la hrIM | ha ka e I la hrIM | sa ka e I la hrIM  
+
 Now even within the classic mantras mainly the kAdimata and to a smaller
 extant the hAdimata dominate.
 

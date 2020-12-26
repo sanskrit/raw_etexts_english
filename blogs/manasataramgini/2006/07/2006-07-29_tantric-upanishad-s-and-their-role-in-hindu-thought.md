@@ -14,8 +14,9 @@ unclear provenance, eventhough its character suggests that it is
 definitely much later than the former upaniShads. Beyond these there are
 a series of “tantric” upaniShad-s that appear even later and their sole
 purpose appears to be expound particular tantric mantra-s.  
-Examples of these include:  
-1\) avyakta and nR^isiMha-tApinI: expound the highest anuShTubh mantra
+Examples of these include: 
+ 
+- 1\) avyakta and nR^isiMha-tApinI: expound the highest anuShTubh mantra
 of viShNu, the mantrarAja, which is described in the ahirbudhnya saMhitA
 of the pA\~ncharAtra stream.
 
@@ -24,37 +25,38 @@ nR^isimhaM bhIShaNam bhadraM mR^ityur mR^ityuM namAmy-ahaM ||
 The latter upaniShad also gives the mantra of sudarshana: oM sahasrAra
 huM phaT | This is also expounded in the ahirbudhnya saMhitA and other
 pA\~ncharAtra texts like lakShmI-tantra.  
-2\) tripurA, tripurA-tApinI and devI: expounds the shrIvidyA mantras,
+
+- 2\) tripurA, tripurA-tApinI and devI: expounds the shrIvidyA mantras,
 especially those the kAdi mata and hAdi mata. The tripurA-tApinI gives
 the relationship between the savitrI and the pa\~nchadashi of shrIvidyA.
 It also provides hints regarding the mantra forms other than those of
 kAma and lopAmudrA.  
-3\) sarasvatI-rahasya: expounds on the bIja mantra-s of sarasvatI  
-4\) gaNapati atharvashiras: expounds on the mUla mantra of vinAyaka: gaM
+- 3\) sarasvatI-rahasya: expounds on the bIja mantra-s of sarasvatI  
+- 4\) gaNapati atharvashiras: expounds on the mUla mantra of vinAyaka: gaM
 gaNapataye namaH |  
-5\) dattAtreya: expounds the dattAtreya mantras  
-6\) hayagrIva: expounds several hayagrIva vidyAs.  
-7\) garuDa: expounds the mahA-viSha-nivAraNa vidyA.  
-8\) gopAla-tApinI: expounds the 18-syllabled gopijanavallabha mantra:
+-5\) dattAtreya: expounds the dattAtreya mantras  
+- 6\) hayagrIva: expounds several hayagrIva vidyAs.  
+- 7\) garuDa: expounds the mahA-viSha-nivAraNa vidyA.  
+- 8\) gopAla-tApinI: expounds the 18-syllabled gopijanavallabha mantra:
 klIM kR^iShNAya govindAya gopI-jana-vallabhAya svAhA |. This mantra is
 expounded in the brahma saMhitA of the pA\~ncharAtra stream.  
-9\) varada: expounds the celebrated “rakShohano valagahano…” mantra of
+- 9\) varada: expounds the celebrated “rakShohano valagahano…” mantra of
 vinAyaka  
-10\) tArA: expounds the mantra of tArA and here parivAra devatas.
+- 10\) tArA: expounds the mantra of tArA and here parivAra devatas.
 
 The nR^isiMhatApini is commented upon by gauDapAda and sha\~Nkara
 bhagavatpAda suggesting that examples of these tantric upaniShad-s were
 already in place by 600-700 CE. A simple analysis of these upaniShads
 reveal several important common features.
 
-\-They typically expound mantras that are also expounded independently
+- They typically expound mantras that are also expounded independently
 in tantras such as pA\~ncharAtra tantras, rudra tantras and shrIkula
 tantras. However, we do not find these tantras that discuss the same
 mantras citing the upaniShad-s or vice-versa. It almost appears as
 though they are two independent expositions of the mantra, though they
 have similarities in their explanations
 
-\-tantric upaniShads typically have a section asserting the primacy of
+- tantric upaniShads typically have a section asserting the primacy of
 the mantra (often calling in the source of the world, and the cause of
 siddhis and victory of the gods) they discuss, a philosophical section
 that typically imitates the classical vedic upaniShads in some form or
@@ -69,7 +71,7 @@ vai namo-namaH |
 shorter identifications are also seen in the parallel narAyaNa-valli:
 e.g. sa brahmaa sa shivaH sa hariH sendraH so.akSharaH paramaH svarAT |
 
-\-They may or may not directly incorporate a few vedic mantra-s from
+- They may or may not directly incorporate a few vedic mantra-s from
 saMhita-s and may on several occasions bear the epithet tApinI
 (glowing?).
 
@@ -84,14 +86,18 @@ the canonical shruti remained un-altered despite the composition of
 these obviously later tantric upaniShads. The presence of such texts
 relatively early as suggested by sha\~nkara and gauDapAda’s citation of
 nR^isimha-tApinI, suggests that they developed in parallel with the
-tantra-s of the school. So it is our proposition (unlike what has been
+tantra-s of the school.
+
+So it is our proposition (unlike what has been
 commonly proposed by secular scholars) these tantric upaniShad-s were
 not composed merely to give a shruti-authority for the tantric
 traditions. Instead their role was to provide the user of the mantra
-with: 1) saMbandha-s that need to be understood so that the mantra
+with:
+
+- 1) saMbandha-s that need to be understood so that the mantra
 assumes a “global” or universal perspective by assuming the essences of
-all the deities or the universe with which it is identified. 2)
-identification of the mantra gyANa (“knowledge”) with the most
+all the deities or the universe with which it is identified.
+- 2) identification of the mantra gyANa (“knowledge”) with the most
 fundamental or root aspects of the outer universe (and often thereby its
 inner reflection in the sAdhaka). These connections provided to the
 mantra allow its “full expression” for the sAdhaka within the technical

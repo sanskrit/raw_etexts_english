@@ -10,9 +10,11 @@ successor ectype shAstR^i is still worshiped in the folk religion.  We
 have long wanted collate a file on this deva and revive his rites as we
 are amongst the few still adhering to his worship. We have been made
 aware of some other works on him but we have not read those.  
-Mythology  
+
+## Mythology  
 The purANas narrate the core myth of the origin of the god revanta
 thus:  
+
 vivasvAn was given sanj\~nA as his wife by tvasTA vishvakarman. vivasvan
 begot the twins yama and yamI, and manu vaivasvata through her. However,
 sanj\~nA was unable to endure the excessive fiery lustre of vivasvAn and
@@ -24,7 +26,9 @@ daughter tapatI and manu sAvarNI. One day ChAyA got into a conflict with
 the death-like yama vaivasvata as she mis-treated her foster son. Thus
 vivasvAn realized that ChAyA was not sanj\~nA and through his
 dUradR^iShTi located her in the uttara kuru regions as a mare. So he
-assumed the form of a stallion and reached there. They copulated first
+assumed the form of a stallion and reached there. 
+
+They copulated first
 via their nostrils, spawning the ashvins and then internally spawning
 revanta. He was born with a sword and bow, riding a horse and bearing a
 quiver full of arrows. vivasvAn said to revanta that he shall be the
@@ -42,7 +46,7 @@ lakShmI gets fascinated by the horse and fails to pay attention to
 viShNu. As a result he cursed lakShmI to became a mare and generates the
 haihaya dynasty in this account (DB 6.17-18).
 
-Iconography and history  
+## Iconography and history  
 varAhamihira states that idols of revanta should be shown on horseback
 with attendents hunting and sporting. This depiction of revanta is seen
 throughout the early medieval period throughout Greater India from
@@ -52,20 +56,23 @@ accompanied by a dog. As with sUrya he is also shown with high-legged
 shoes and usually wields a sword and bow. revanta in his classical form
 appears to be attested (prior to 1100 of the CE)  only in the zone from
 the northwest to the east. His southern most spread in the classical
-form is seen Orissa. However, there are indicators that revanta once had
+form is seen Orissa. 
+
+However, there are indicators that revanta once had
 a pan-Indian presence in some form comparable to the late
 vedic/”itihasic” deities such as kArttikeya, the pA\~ncharatric tetrad
 and the rapidly evolving vinAyaka. revanta’s iconography is strikingly
 similar to that of the deity popular in mahAraShTra, karnATaka and
-Andhra known as khaNDoba or mallaNNa. He is depicted as riding a horse
+Andhra known as **khaNDoba** or **mallaNNa**. He is depicted as riding a horse
 with a a dog accompanying him and holding a sword. Further, khaNDoba is
-known as a manifestation of mArtaNDa-bhairava and an explicit connection
+known as a manifestation of **mArtaNDa-bhairava** and an explicit connection
 with the solar cult through this link is seen in some khaNDoba temples
 of Maharashtra where he is shown with a solar emblem. Thus, it is likely
 that revanta evolved into the local khaNDoba cult after the 12th century
 CE in middle India. In this process khaNDoba derivative appears to
-have lost connection with the classical revanta. A parallel variant
-appears to have reached the deep south early in the form of the
+have lost connection with the classical revanta. 
+
+A parallel variant appears to have reached the deep south early in the form of the
 comparable equestrian deity shAstR^i also known as Arya (tamiL:
 chAttAn/ayyanAr). In this case he has been made the son of rudra and
 mohinI but there is a faint memory of his original roots in the form of
@@ -89,23 +96,24 @@ widely used for Vedic and Avestan deities including mitra in both the
 texts (see below). Given this it is possible that the name itself could
 have even emerged in the para-avestan Iranian Hindus.
 
-Worship of revanta  
+## Worship of revanta  
 There are several other references to worship of revanta in the purANas
 and associated texts.  
-\-The agni purANa (AP 116.22) in describing the oblations to be made
+
+- The agni purANa (AP 116.22) in describing the oblations to be made
 during the pilgrimage to the holy spot of gayA mentions that offering of
 rice balls to the 12 Aditya-s, agni, indra and revanta free on from the
 hold of disease and one attains heavenly pleasures. The garuDa purANa
 (GP 1.86.23 ) gives a homologous description of the rite at gayA, but in
 this the offerings to revanta are made to obtain good horses.  
-\-The agni purANa states that making a gift of a horse consecrated to
+- The agni purANa states that making a gift of a horse consecrated to
 revanta decorated with gold removes the fear of death (AP 211.28).  
-\-In the grand paurANika coronation of a king (typically used for
+- In the grand paurANika coronation of a king (typically used for
 honorary kShatriya-s), where the entire Hindu pantheon is invoked to
 imbue the rAjan with power, revanta is invoked along with kumAra,
 vinAyaka, vIrabhadra and nandI in one series of incantations (AP
 219.18)  
-\-The ashvAyurveda of shAlihotra states that periodically in the Ashvina
+- The ashvAyurveda of shAlihotra states that periodically in the Ashvina
 month on the full-moon day the ashvashAnti rite for horses should be
 done. Amongst deities worshipped are revanta, for whom a lotus and
 pitcher with water are placed on the altar and 100 oblations with
@@ -117,7 +125,7 @@ nimba, guggulu, sarShapa, tila, vachA and hi\~ngu extracts ground into
 butter. The Kashmirian nIlamata purANa (NMP 394) also mentions that the
 owners of horses should make oblations to revanta.
 
-mantra prayogas  
+## mantra prayogas  
 The worship of revanta deploys the tantric mantras and tantricized
 R^igvedic formulae. First one meditates on revanta riding a horse with a
 sword and bow and an excellent quiver. He is accompanied by his dog and
@@ -128,6 +136,7 @@ oM ashvaprIyAya vidmahe sUryaputrAya dhimahI | tanno khaDgiH prachodayAt
 ||
 
 Then one utters his names offering flowers:  
+
 1\) oM revantAya namaH 2) oM vaivasvatAya namaH 3) oM saMj\~nAputrAya 4)
 oM ashvapriyAya namaH 4) oM ashvavAhanAya namaH 5) oM ashvapataye namaH
 6) ashvavidyAdhiShThAya namaH 7) oM shreShThAya namaH 8) oM nisha\~Ngine

@@ -8,7 +8,7 @@ nR^isiMha-tApini explains the structure of the great yantra of viShNu
 that simultaneously encompasses :1) the bIja of nR^isiMha and the
 praNava. 2) the sudarshana chakra mUla mantra. 3) the nArAyaNa
 aShTAkSharI 4) the vAsudeva dvAdashAkSharI 5) the ShoDasha mAtR^ika
-bIja-s 6) the ugra viShNu formula.The formal worship of the yantra and
+bIja-s 6) the ugra viShNu formula. The formal worship of the yantra and
 viShNu embodied in it may be done thus.
 
 oM gaM gaNapataye namaH |

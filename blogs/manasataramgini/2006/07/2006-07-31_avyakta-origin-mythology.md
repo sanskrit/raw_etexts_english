@@ -45,9 +45,9 @@ It \[thus\] became the glowing \[golden\] egg (hirANyagarbha).
 It underwent further evolution.  
 From that emerged parameShTin.
 
-\-The word for evolution in the sAMkhya ontology, pariNamana is clearly
+- The word for evolution in the sAMkhya ontology, pariNamana is clearly
 used.  
-\-The first paragraph and the first portion of the second roughly maps
+- The first paragraph and the first portion of the second roughly maps
 to the philosophical account of origin mythology provided by the
 nAsadIya sUktaM or the R^igveda. The second half of the second paragraph
 corresponds to the hirANyagarbha sUktaM of the R^igveda. From these

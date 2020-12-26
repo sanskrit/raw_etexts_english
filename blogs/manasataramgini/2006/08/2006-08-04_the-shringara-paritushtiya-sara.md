@@ -82,6 +82,7 @@ reconstruction.
   
 oM namaH khaDga-vajrapANaye mahA-yakSha-senApataye svAhA | oM rudraM
 hrAM hrIM varashaktA tvaritA-vidyA | oM mAtaraH stambhayata svAhA ||   
+
 By meditating on the above formulae on the lord of the yakSha army,
 rudra and the goddess tvaritA one wards of thieves sneaking into one’s
 domain.

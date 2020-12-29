@@ -8,7 +8,9 @@ bhArata-s. While being a bhR^igu, I may be biased to see this imprint
 more than others, the fact has been observed by many others. The
 following is a purely parochial view of history seen through the lens of
 my ancestry, yet I believe there are elements of real significance for
-the history of the Hindu nation. Shrines of the bhArgava hero, the son
+the history of the Hindu nation. 
+
+Shrines of the bhArgava hero, the son
 of jamadagni are seen throughout the country. The most hallowed and the
 oldest to which we trace our antecedents \[real or mythical\] is the
 shrine in Kangra with the inscription mentioning the members of the

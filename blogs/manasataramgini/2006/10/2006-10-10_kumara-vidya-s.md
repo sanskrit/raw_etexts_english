@@ -5,10 +5,14 @@ title = "kumAra vidyA-s"
 [![](https://i2.wp.com/photos1.blogger.com/blogger2/6438/855/320/kumara_tryakSharI.1.png)](http://photos1.blogger.com/blogger2/6438/855/1600/kumara_tryakSharI.1.png)
 
 Of the mUrti-s of kumAra \[Note 1\] that are worshiped by the educated
-kaumAra sAdhaka there are few having a special significance. The first
-of these is of great import for a dvija in devoted the yAj\~nIkI
+kaumAra sAdhaka there are few having a special significance. 
+
+## ajArUDha
+The first
+of these is of great import for a dvija devoted the yAj\~nIkI
 perfection. It is the form known as ajArUDha. Here the great lord of the
 beautiful ShaShThi is meditated upon in the bindu of the maNDala thus:  
+
 dvimukhaM chAShTa-bahuM cha shvetaM vA shyAMa-skandharaM |  
 sruvAkShamAlAM khaDgaM cha svastikaM dakShiNe kare ||  
 kukkuTaM kheTakaM vajraM Ajya-pAtraM tu vAmake |  
@@ -23,17 +27,25 @@ straight-sword and shows the svastika mudra, in his left hands he holds
 a cock, a shield, a vajra, and Ajya-pAtra. He is visualized as making
 oblations in the fire rite. He is seated on a large well-fed goat.
 
-Beside him is standing his gaNa vIrabAhu with a sword and shield. In the
+Beside him is standing his gaNa vIrabAhu with a sword and shield. 
+
+In the
 first AvarNa is present the large Arya-deva, mounted on his horse,
 embracing the shapely goddesses, pUrNa and puShkalA, with enchanting
-smiles. He holds a vajradaNDa and a paTTishi, the long flexible razor.
+smiles. He holds a vajradaNDa and a paTTishi, the long flexible razor. 
 shAstA and his wives are surrounded by a band of hideous ghosts of
-skeletal forms. In the next AvarNa stand two terrifying agents of
+skeletal forms. 
+
+In the next AvarNa stand two terrifying agents of
 skanda, namely skandApasmara and skanda-graha. They both wield tridents
-are jet black in color. Outside his maNDala, nArada the kANva R^iShi is
+are jet black in color. 
+
+Outside his maNDala, nArada the kANva R^iShi is
 performing worship of kumAra.
 
+## gAngeya
 In the gA\~Ngeya form he is meditated upon thus:  
+
 eka-vaktraM trinayanaM dADimI-kusuma-prabhaM |  
 karaNDa-makuTopetaM kukkuTa-dhvaja dhAriNaM ||  
 nIlotpala-dharaM vande makarArUDhaM avayayaM |  
@@ -55,11 +67,13 @@ wreath of wild flowers on her head. She holds a fresh twig in her hand.
 In the next AvarNa are present a series of goddess like saramA, vinAtA,
 kadru and the like with heads of a bitch, female eagle, cobra etc.
 
+## saurabheya
 The saurabheya form of kumAra is the form in which he behaved
 [roguishly,](http://manasataramgini.wordpress.com/2004/08/roguish-karttikeya-and-wives-of-gods.html)
 bewitched the goddesses and dallied with them. Hence his form is
 described accordingly with the accouterments of ratipati with which
-shR^i\~NgAra is inflamed. He is meditated upon thus:  
+shR^i\~NgAra is inflamed. He is meditated upon thus: 
+
 chatur-vaktrAShTa-nayanaM bhujAShTa kamalAsanaM |  
 kun\~nchitaM vAmpAdaM cha susthitaM dakShiNaM padaM ||  
 shaktyutpate puShpa bANAM abhayaM dakShiNe kare |  
@@ -80,6 +94,7 @@ of incomparable beauty with the girdles around their waists splitting
 and their garments slipping off as they run in passion towards
 saurabheya skanda.
 
+## skanda-svAmin
 In the skanda-svAmin form of kumAra he is flanked by two gaNa’s on
 either side: On his left is srauSha (a manifestation of shiva) and on
 his right is rAj\~na (a manifestation of sUrya) \[Note 2\]. In his four
@@ -94,6 +109,7 @@ OM hrAM svAmine svAhA ||
 
 Surrounding him in the AvarNa are hordes of piShAcha-s and vetAla-s.
 
+## Notes
 Note 1: The text detailing the upAsana of the kumAra mUrti-s is the
 obscure skandArchana-kalpa-druma of which I am unaware of any complete
 manuscript though the hand-written transcripts, including those

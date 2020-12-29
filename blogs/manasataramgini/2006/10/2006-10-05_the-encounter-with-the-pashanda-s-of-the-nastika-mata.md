@@ -4,7 +4,7 @@ title = "The encounter with the pAShaNDa-s of the nAstIka mata"
 +++
 With the due assent I decided to narrate the account of
 [**R1**](http://manasataramgini.wordpress.com/2006/07/some-notes-of-shatsahasra-tradition.html)‘s
-father encounter with the vile pAShaNDa-s of the nAstIka mata- this is
+father's encounter with the vile pAShaNDa-s of the nAstIka mata- this is
 an illustrative example of some technicalities for the complete
 uchChATana of paShaNDa mantras. The other learned vR^iddhA had also
 demolished the prayoga-s of such a pAShaNDa from the vanga country. The

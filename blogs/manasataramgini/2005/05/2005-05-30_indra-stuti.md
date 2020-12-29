@@ -141,7 +141,7 @@ moon lay between these constellations in the end of the vedic period and
 the immediate post-mahAbhArata era (1300-1200 BC). The loss, theft or
 disappearance of bright objects, like fire, and gold are typically
 associated with myths signifying the [precession of the
-axis](http://manollasa.blogspot.com/2004/04/great-circle.html) with the
+axis](http://manasataramgini.wordpress.com/2004/04/great-circle.html) with the
 sun (the bright object emerging often elsewhere) . Thus, it appears like
 the earrings of pauShya’s wife appear to be sun slipping to the new
 point between the snake’s head (the nakShatra pushya is the head of the
@@ -204,7 +204,7 @@ the larger frame. However, it could also signify the mythological
 “chaos” often associated with the precessional change of the
 coordinates of the year. Finally, there is the motif of the fire of
 equine form within
-[water](http://manollasa.blogspot.com/2004/04/indo-european-divine-tripartation.html)
+[water](http://manasataramgini.wordpress.com/2004/04/indo-european-divine-tripartation.html)
 briefly alluded to as “garbham-apAM” – the horse of indra, which is
 agni. The connection of this equine fire within water to the
 astronomical myth of precession needs further exploration.

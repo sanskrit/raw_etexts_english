@@ -4,24 +4,24 @@ title = "Gregory Paul’s prescience"
 +++
 The previous snippets on related topics:  
 \* [The big and small of
-theropods](http://manollasa.blogspot.com/2007/06/big-and-small-of-theropods.html)  
+theropods](http://manasataramgini.wordpress.com/2007/06/big-and-small-of-theropods.html)  
 \* [Organ and Edwards on dinosaur
-genomes](http://manollasa.blogspot.com/2007/03/organ-and-edwards-on-dinosaur-genomes.html)  
+genomes](http://manasataramgini.wordpress.com/2007/03/organ-and-edwards-on-dinosaur-genomes.html)  
 \* [Microraptor as a
-biplane](http://manollasa.blogspot.com/2007/01/microraptor-as-biplane.html)  
+biplane](http://manasataramgini.wordpress.com/2007/01/microraptor-as-biplane.html)  
 \* [Jurapterxy- wrong
-inferences?](http://manollasa.blogspot.com/2006/03/jurapterxy-wrong-inferences.html)  
+inferences?](http://manasataramgini.wordpress.com/2006/03/jurapterxy-wrong-inferences.html)  
 \* [Tyrannosaurs and morphological evolution in
-coelurosaurs](http://manollasa.blogspot.com/2006/02/tyrannosaurs-and-morphological.html)  
+coelurosaurs](http://manasataramgini.wordpress.com/2006/02/tyrannosaurs-and-morphological.html)  
 \* [The rise of
-tyrannosaurs](http://manollasa.blogspot.com/2006/02/rise-of-tyrannosaurs.html)  
+tyrannosaurs](http://manasataramgini.wordpress.com/2006/02/rise-of-tyrannosaurs.html)  
 \*
-[Buitreraptor](http://manollasa.blogspot.com/2005/10/buitreraptor.html)  
+[Buitreraptor](http://manasataramgini.wordpress.com/2005/10/buitreraptor.html)  
 \* [The adaptive radiation of avian and para-avian
-clades](http://manollasa.blogspot.com/2005/02/adaptive-radiation-of-avian-and-para.html)
+clades](http://manasataramgini.wordpress.com/2005/02/adaptive-radiation-of-avian-and-para.html)
 
 \* [Neuquenraptor argentinus and the
-deinonychosaurs](http://manollasa.blogspot.com/2005/02/neuquenraptor-argentinus-and.html)
+deinonychosaurs](http://manasataramgini.wordpress.com/2005/02/neuquenraptor-argentinus-and.html)
 
 [![](https://i1.wp.com/bp1.blogger.com/_ZhvcTTaaD_4/RvX8XEaSUdI/AAAAAAAAAOk/dJkgPiar3Gk/s320/thermopolis_archie.jpg)](http://bp1.blogger.com/_ZhvcTTaaD_4/RvX8XEaSUdI/AAAAAAAAAOk/dJkgPiar3Gk/s1600-h/thermopolis_archie.jpg)
 

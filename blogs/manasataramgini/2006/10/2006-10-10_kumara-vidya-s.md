@@ -56,7 +56,7 @@ In the next AvarNa are present a series of goddess like saramA, vinAtA,
 kadru and the like with heads of a bitch, female eagle, cobra etc.
 
 The saurabheya form of kumAra is the form in which he behaved
-[roguishly,](http://manollasa.blogspot.com/2004/08/roguish-karttikeya-and-wives-of-gods.html)
+[roguishly,](http://manasataramgini.wordpress.com/2004/08/roguish-karttikeya-and-wives-of-gods.html)
 bewitched the goddesses and dallied with them. Hence his form is
 described accordingly with the accouterments of ratipati with which
 shR^i\~NgAra is inflamed. He is meditated upon thus:  

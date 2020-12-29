@@ -18,12 +18,12 @@ all descendants of agnichit-s, but something about us was more
 reminiscent of the decline of the brahminical glory, rather than agni
 fed by the brAhmaNas shooting to the skies. In some sense we felt a
 melancholy identity with
-[Kareik](http://manollasa.blogspot.com/2007/04/last-arya.html) and
+[Kareik](http://manasataramgini.wordpress.com/2007/04/last-arya.html) and
 Baghashai, something I have often alluded to in these pages- that sense
 of decline and demise.
 
 It was not entirely a case of the cashing of the
-[check](http://manollasa.blogspot.com/2004/08/brahmin-brain-drain.html)
+[check](http://manasataramgini.wordpress.com/2004/08/brahmin-brain-drain.html)
 that we talked about before (though this was true to some degree of ST
 and R. I must state in advance that R does not agree at all –be
 pacified). But it was something else. Just then muNDaputra and

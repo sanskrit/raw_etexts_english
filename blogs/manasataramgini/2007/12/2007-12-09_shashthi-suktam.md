@@ -25,7 +25,7 @@ ancient. Attempts to trace it take one back to the late Vedic period,
 where she appears just like her mate skanda. Interestingly, the
 upAkhyAna of ShaShThI in the devI bhAgavataM mentions that her rite is
 connected with the [kauthuma school of the
-sAmaveda](http://manollasa.blogspot.com/2006/01/vrata-of-our-dear-goddess.html).
+sAmaveda](http://manasataramgini.wordpress.com/2006/01/vrata-of-our-dear-goddess.html).
 The meaning of this allusion becomes clear when one searches for the
 earliest surviving traces of ShaShThI worship.
 
@@ -124,7 +124,7 @@ sinIvAlIM kuhUM chaiva sadvR^ittim aparAjitAm || (Mbh 3.218.47 )
 Here the queen of skanda devasenA or ShaShThI is explicitly identified
 with lakShmI, as well as as the other lunar goddesses such as [sinIvAlI
 and
-kuhU.](http://manollasa.blogspot.com/2006/10/ekanamsha-in-nastika-myth-making-and.html)
+kuhU.](http://manasataramgini.wordpress.com/2006/10/ekanamsha-in-nastika-myth-making-and.html)
 Thus, the link with lakShmI is not a mere innovation of the mAnava GS of
 the maitrAyaNIya-s but appear to be a well-established facet of the
 goddess ShaShThI in that period. Another point to note is the presence

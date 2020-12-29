@@ -124,7 +124,7 @@ tradition. While there are no explicit nAmAvalI-s in the veda, the vedic
 namaH mantras of the yajur (e.g. the shatarudrIya) appear to be an
 archaic relative of the nAmAvalI. This become apparent when one compares
 it with the [early-post-vedic hymn of dakSha to
-rudra](http://manollasa.blogspot.com/2006/02/younger-shatarudriya.html).
+rudra](http://manasataramgini.wordpress.com/2006/02/younger-shatarudriya.html).
 Thus, the nAmAvalI mantras appears to be an early concept in
 Indo-Iranian worship that appears to have been merely expanded greatly
 in the tantric realm.
@@ -133,7 +133,7 @@ The anuShTubh mantras clearly differ from all tantric mantras both in
 lacking bIjas and in their form, which resembles R^ik-s. Some of them
 like the mantra-rAja are clearly fairly ancient. We also observe such
 mantra-s in the pre-tantric circum-vedic texts like those of the
-[pAshupata-s](http://manollasa.blogspot.com/2006/05/shaivas-pashupata-s.html)
+[pAshupata-s](http://manasataramgini.wordpress.com/2006/05/shaivas-pashupata-s.html)
 (e.g. rudraM kruddhAshanimukhaM devAnAM IshvaraM paraM
 | shveta-pi\~NgalaM devesham prapadye sharaNAgataH ||). These features
 suggest that the evolution of the mantra shAstra passed through a phase

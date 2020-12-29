@@ -39,7 +39,7 @@ just a metaphysics. Thus, a “modern darshana” that an AstIka can follow
 without a contradiction in Weltanschauung would build from the base of
 vaisheShika, just as medieval Hindus built on early vaisheShika thought
 (e.g. [vAchaspati
-mishra](http://manollasa.blogspot.com/2004/09/vachaspati-on-atomic-coordinates.html)).
+mishra](http://manasataramgini.wordpress.com/2004/09/vachaspati-on-atomic-coordinates.html)).
 Sadly many early works of the pristine vaisheShika period are now lost.
 It was once a great challenge to the nAstIka-s who expended their
 efforts to undermine or co-opt it.
@@ -107,7 +107,7 @@ purANa-s. In the former it is seen in the lecture of the great kShatrIya
 woman sulabhA prAdhAnI during the discourse with the king of mithilA. In
 the purANa-s, for example the bhagavata purANa, it appears in the
 lecture of
-[maitreya](http://manollasa.blogspot.com/2004/09/maitreyas-atomism.html).
+[maitreya](http://manasataramgini.wordpress.com/2004/09/maitreyas-atomism.html).
 However, unlike sAMkhya (yoga) and in the much latter paurANic milieu,
 vedAnta, neither mImAmsa nor vaisheShika are discussed in their
 technical details in these texts. Again, chANakya only mentions sAMkhya,

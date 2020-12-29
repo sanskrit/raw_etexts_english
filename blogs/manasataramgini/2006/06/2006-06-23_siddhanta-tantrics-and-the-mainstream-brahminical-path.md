@@ -4,14 +4,14 @@ title = "siddhAnta tantrics and the mainstream brahminical path"
 +++
 I have yarned a lot on this topic from different angles: [1) The
 shaivas: the
-pAshupata-s](http://manollasa.blogspot.com/2006/05/shaivas-pashupata-s.html)
+pAshupata-s](http://manasataramgini.wordpress.com/2006/05/shaivas-pashupata-s.html)
   
 3\) [dvijas and non-dvijas in the shaiva
-cults](http://manollasa.blogspot.com/2005/03/dvijas-and-non-dvijas-in-shaiva-cults.html)
+cults](http://manasataramgini.wordpress.com/2005/03/dvijas-and-non-dvijas-in-shaiva-cults.html)
 2) [The
-kAlAmukhas-I](http://manollasa.blogspot.com/2005/02/kalamukhas-i.html)
-[](http://manollasa.blogspot.com/2005/02/kalamukhas-i.html)4)
-[kAlAmukhas-II](http://manollasa.blogspot.com/2005/03/kalamukhas-ii.html)
+kAlAmukhas-I](http://manasataramgini.wordpress.com/2005/02/kalamukhas-i.html)
+[](http://manasataramgini.wordpress.com/2005/02/kalamukhas-i.html)4)
+[kAlAmukhas-II](http://manasataramgini.wordpress.com/2005/03/kalamukhas-ii.html)
 
 But I was brought back to it because ST happened to introduce me to a
 confused brahmin woman who declared that her Dravidian guru had told her

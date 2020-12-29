@@ -5,7 +5,8 @@ title = "The meditation and emanation of the pa~nchAkSharI vidyA"
 We described earlier how one installs the yantra of mahAdeva pertaining
 to the pa\~nchAkSharI vidyA and performs worship of it. Now we shall
 describe that meditation of and the mantra emanation from it.  
-\-As one starts the meditation of the pa\~nchAkSharI one sees the
+
+- As one starts the meditation of the pa\~nchAkSharI one sees the
 maNDala of eight kalA goddesses appearing in the eight directions:  
 vAmA- brilliant white complexion, (E); jyeShThA -blood red, (SE);
 raudri- white again, (S); kAlI- bright yellow, (SW) ; kalavikariNI-
@@ -15,7 +16,7 @@ maNDala with complexion of a bright blowing light. One then realizes
 manonmanI within one self and the entire maNDala of the kalA goddesses
 surround you.
 
-\-Then one sees the supreme akulavIra filling everything. He has the
+- Then one sees the supreme akulavIra filling everything. He has the
 complex of a pure quartz crystal. He has 4 arms with halAyudha and
 trishUla and the other two showing the abhaya and varada mudra-s. He has
 five heads with 3 eyes each and fills the chakras from the anAhata to
@@ -34,9 +35,10 @@ IshAna at zenith, with white complexion 5 faces and 10 hands holding
 trident, bow, arrow, axe, thunderbolt, sword, khaTvA\~Nga, mace, skull,
 rosary
 
-\-After realizing the pa\~nchabrahma emanations he sees the following
+- After realizing the pa\~nchabrahma emanations he sees the following
 mantra emanate from the pa\~nchAkSharI:  
-oM shivaH shivAya namaH shivaH oM | jvAlinyai svAhA | oM shivAtmaka
+
+oM shivaH shivAya namaH shivaH oM | jvAlinyai svAhA |  oM shivAtmaka
 mahAtejaH sarvaj\~na prabhurAvartaya mahAghora pi\~Ngala namaH |
 shivAj\~nayA hR^idayaM bandha bandha ghUrNaya ghUrNaya chUrNaya chUrNaya
 sUkShma vajradhara vajrapAsha dhanur-vajrAshani-vajra-sharIra mama

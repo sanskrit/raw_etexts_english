@@ -159,7 +159,7 @@ kaumAra was an offshoot of the saiddhAntika stream.
 
 The technically educated kaumAra-s are a vanishing group: they seem to
 be extinct in the North in
-[Rajasthan](http://manollasa.blogspot.com/2007/05/paschimaugha-of-manavaugha-of-kaumaras.html)
+[Rajasthan](http://manasataramgini.wordpress.com/2007/05/paschimaugha-of-manavaugha-of-kaumaras.html)
 (where again there was an association with the shaiva stream), and are
 present in small clusters in Tamil Nad, and the Kanada and Tulu
 countries (where a pristine secretive subrahmaNya maTha lineage

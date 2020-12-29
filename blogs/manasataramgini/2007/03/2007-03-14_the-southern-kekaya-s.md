@@ -10,7 +10,7 @@ movements are also important to understand the early movements of the
 pAshupata shaiva lineage into the southern country. We have earlier
 alluded to the the role played by the ikShvAku-s of andhrApatha in the
 development of the [kaumAra
-sect](http://manollasa.blogspot.com/2005/10/royal-kumara-worshippers.html)
+sect](http://manasataramgini.wordpress.com/2005/10/royal-kumara-worshippers.html)
 in the south. We believe that this movement of the ikShvAkus and
 associated clans into dakShiNA-patha was a key element of the entry of
 the kaumAra religion into the drAviDa country, where it has lingered in

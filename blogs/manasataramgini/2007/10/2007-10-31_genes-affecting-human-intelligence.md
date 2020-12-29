@@ -161,7 +161,7 @@ congenital Adrenal Hyperplasia but its exact role if any in elevating IQ
 is unclear. The DNA repair group including BRCA1, the Bloom’s syndrome
 helicase and some others have also been implicated along with brain-size
 related genes with related functions such as [ASPM and
-MCPH1](http://manollasa.blogspot.com/2005/09/evolving-brain.html).
+MCPH1](http://manasataramgini.wordpress.com/2005/09/evolving-brain.html).
 However, at least in the case of the latter two no direct association
 with IQ was found. However, ASPM and MCPH1 have been linked to the
 emergence of tonal languages and alphabetic writing, suggesting that in

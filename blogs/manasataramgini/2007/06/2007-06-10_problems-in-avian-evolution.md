@@ -33,7 +33,7 @@ The euornithines, the clade which includes all Mesozoic pygostylians
 closer to crown group neornithes than the enantiornithines, also
 underwent a remarkable radiation in the late Mesozoic giving rise to
 several ecologically diverse lineages ([See early article for
-details](http://manollasa.blogspot.com/2006/06/gansus-and-early-ornithuromorph.html)).
+details](http://manasataramgini.wordpress.com/2006/06/gansus-and-early-ornithuromorph.html)).
 These included independent lines of shore birds- the Chaoyangids:
 Chaoyangia and Hongshangornis and the Songlingornithids like Yanornis
 and Yixianornis; desert birds like Apsaravis; flightless runners like

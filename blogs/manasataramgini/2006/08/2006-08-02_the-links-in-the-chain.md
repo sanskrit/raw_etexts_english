@@ -19,7 +19,7 @@ fought beyond the city of pot-graves, the amAtya and shachIva thought
 they were seeing victory and wanted to press hard. But I bade you to
 stop near the cow-stall. There when you dismounted the ratha you saw the
 elusive Mercury close to the horizon. Then you composed this
-[ditty](http://manollasa.blogspot.com/2003/10/guillotines-fall.html). I
+[ditty](http://manasataramgini.wordpress.com/2003/10/guillotines-fall.html). I
 made sure you came out on the otherside of the blade. But then I measure
 out things in different measures for all. The balance goes up and down.
 So I took 2 wicks, and showed them to the loka of mAnuShas. You mAnuShas

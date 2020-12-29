@@ -45,7 +45,7 @@ when we fatefully entered the khANDavan conflict — but those who live
 like kShatriya-s should be ready for a terrible death on the battle
 field.  
 [Think back
-\!](http://manollasa.blogspot.com/2004/11/further-proceedings-on-battle-front.html)
+\!](http://manasataramgini.wordpress.com/2004/11/further-proceedings-on-battle-front.html)
 
 Jx was himself shaken by his attacker, but the third hero saved him. We
 now realized how he was in a different league. Just an year back the

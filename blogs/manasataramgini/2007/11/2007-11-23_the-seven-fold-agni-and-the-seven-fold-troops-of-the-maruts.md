@@ -129,7 +129,7 @@ context to mean 27 nakShatra-s+sun+moon+5 visible planets.
 Finally, it should be mentioned that the “7” connection of the marut-s
 is also seen in their successor and paralogous deity, skanda. We had
 earlier discussed in our [note on the marut-s being being
-“para-skanda”](http://manollasa.blogspot.com/2007/07/maruts-as-para-skanda-and-other.html),
+“para-skanda”](http://manasataramgini.wordpress.com/2007/07/maruts-as-para-skanda-and-other.html),
 how kumAra was made commander of the seven-fold troops of maruts. This
 connection is further seen in ancient triannual rite to kumAra, known as
 the dhUrta-homa and bali (the sacrifice to the roguish skanda) preserved

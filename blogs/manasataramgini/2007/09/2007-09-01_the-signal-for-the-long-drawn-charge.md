@@ -4,19 +4,19 @@ title = "The signal for the long drawn charge"
 +++
 How did we get to this state:  
 \* [The
-imprisonment](http://manollasa.blogspot.com/2005/06/imprisonment.html)  
+imprisonment](http://manasataramgini.wordpress.com/2005/06/imprisonment.html)  
 \* [kR^ityA
-troubles](http://manollasa.blogspot.com/2005/06/kritya-troubles.html)  
+troubles](http://manasataramgini.wordpress.com/2005/06/kritya-troubles.html)  
 \* [The kR^ityA
-strike](http://manollasa.blogspot.com/2005/06/kritya-strike.html)  
+strike](http://manasataramgini.wordpress.com/2005/06/kritya-strike.html)  
 \* [The kR^ityAstra
-strike](http://manollasa.blogspot.com/2005/06/krityastra-strike.html)  
+strike](http://manasataramgini.wordpress.com/2005/06/krityastra-strike.html)  
 \* [Towards the battle of
-kAla-nirNaya](http://manollasa.blogspot.com/2004/12/towards-battle-of-kala-nirnaya.html)  
+kAla-nirNaya](http://manasataramgini.wordpress.com/2004/12/towards-battle-of-kala-nirnaya.html)  
 \* [Battle of
-himaprArambha](http://manollasa.blogspot.com/2004/12/battle-of-himaprarambha.html)  
+himaprArambha](http://manasataramgini.wordpress.com/2004/12/battle-of-himaprarambha.html)  
 \* [The 3 front
-war](http://manollasa.blogspot.com/2004/11/3-front-war.html)  
+war](http://manasataramgini.wordpress.com/2004/11/3-front-war.html)  
 We stood there alone waiting for the signal. Suddenly, in the cooling
 air we heard a rustle. Our agent arrived from the far end. We were
 sensing the moment of the great struggle — would we live or die ? The
@@ -26,7 +26,7 @@ spoke: “yes the fight is real and you know how you got there. You have
 recorded all the steps, with the 2 mAraNa strikes after and the one
 before the funerary day in the 5th month of the civil year. You have
 journeyed through the various naraka-s after your fall like that of
-[yayAtI](http://manollasa.blogspot.com/2005/06/preparing-for-worst.html).
+[yayAtI](http://manasataramgini.wordpress.com/2005/06/preparing-for-worst.html).
 But a free man cannot remain long in the state of suppression. He has to
 fight– if he dies in the process he is relieved of his suffering. If he
 lives he rules the world like yudhiShThira even if he has lost much. But

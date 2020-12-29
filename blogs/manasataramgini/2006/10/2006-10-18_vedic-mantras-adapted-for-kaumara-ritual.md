@@ -39,7 +39,7 @@ to. The young lady who was carrying him swaddled in cloth and the queen
 mother who originally bore him.
 
 In the kaumara parlance the young mother is again [ga\~NgA or the reed
-forest mother](http://manollasa.blogspot.com/2005/07/skanda-ganas.html),
+forest mother](http://manasataramgini.wordpress.com/2005/07/skanda-ganas.html),
 while the mahiShI is taken to mean the great mother umA.
 
 **hiraNyadantaM shucivarNam ArAt kShetrAd apashyam AyudhA mimAnam |  

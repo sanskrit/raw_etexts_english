@@ -70,7 +70,7 @@ actually a production of the early vaikhAnasas, who were one of the
 first of the more “vedically oriented” vaiShNavas. This is supported by
 the five-fold manifestation of viShNu mentioned below, which is an
 important tenet of [vaikhAnasa
-thought](http://manollasa.blogspot.com/2006/02/note-on-vaikhanasa-tradition.html).
+thought](http://manasataramgini.wordpress.com/2006/02/note-on-vaikhanasa-tradition.html).
 
 yaH sahasra-save satre jaGYe vishva-sR^ijAm-R^iShiH |   
 hiraNyavarNaH shakunis tasmai haMsAtmane namaH || 7||  

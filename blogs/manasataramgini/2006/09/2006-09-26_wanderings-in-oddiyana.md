@@ -24,7 +24,8 @@ goddesses with shapely bodies colored like the dark bark of tamAla tree
 (Xanthochymus pictorius). They had tawny hair and ruthless eyes, and
 held terrible weapons similar to those of samayasa\~nketA. Smoke and
 flames shot forth from their snouts. and the curved tusks illuminated
-the darkness like crescent moons.  
+the darkness like crescent moons.
+  
 They rode on charging buffaloes, while a few of these sow-faced
 goddesses diffused away guarding the flanks prancing around with their
 swords and shields. They advanced before them a fleet of siege engines

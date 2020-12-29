@@ -14,7 +14,7 @@ blood-thirsty houri-crazed ghazis the Iranian resistance ended and Iran
 became an Islamic land. However, reality was different from this. We had
 earlier touched on some aspects of the great struggle in our note on
 [Su-lu of the
-Tuergish](http://manollasa.blogspot.com/2006/03/su-lu-khans-heroic-struggle-against.html).
+Tuergish](http://manasataramgini.wordpress.com/2006/03/su-lu-khans-heroic-struggle-against.html).
 Understanding, this struggle is important for it helps to provide a
 comparative dataset for the struggle of our own people against the
 violent whirlwind of Mohammedanism blowing into jambudvIpa.

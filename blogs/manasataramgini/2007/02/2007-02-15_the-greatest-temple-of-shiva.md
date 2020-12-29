@@ -183,7 +183,7 @@ dakiShNa-srotas(bhairava tantras):A bhairavAchArya performed tantric
 rites in a shmashAna explicitly for the establishment of the dynasty of
 puShpabhUti that spawned the great king harshavardhana.  
 [vAma-srotas (tumburu
-tantras)](http://manollasa.blogspot.com/2005/02/tumburu-manifestation-of-rudra.html):
+tantras)](http://manasataramgini.wordpress.com/2005/02/tumburu-manifestation-of-rudra.html):
 The brAhmaNa hiraNyadAman performed the rites as per the vAma-srotas for
 the rise of jayavarman-II the founder of the Angkor empire centered in
 Cambodia.  

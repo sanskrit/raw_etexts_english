@@ -8,7 +8,7 @@ certain private reasons related to this narrative. It is clear that
 Shahji was a rather distinguished military leader and he had transmitted
 this genetically influenced trait to not only his famous son Shivaji,
 but also the forgotten elder son
-[Sambhaji](http://manollasa.blogspot.com/2006/07/some-notes-on-shahji-and-sambhaji.html).
+[Sambhaji](http://manasataramgini.wordpress.com/2006/07/some-notes-on-shahji-and-sambhaji.html).
 In reality he also passed these genes on to another son who has been
 largely forgotten in modern Maharatta histories. When Shahji was was in
 Bijapur having left his wife in the environs of Pune, he secretly took
@@ -116,7 +116,7 @@ war-elephants, several hundreds of horses and the Khan’s cash reserves.
 He then avoided any further brushes with the enemy and rapidly retreated
 to the Maratha territory. Soon there after Shivaji held a grand review
 of troops at Chiplun in the Konkan and appointed [Hambirrao
-Mohite](http://manollasa.blogspot.com/2004/06/death-of-hambirrao.html)
+Mohite](http://manasataramgini.wordpress.com/2004/06/death-of-hambirrao.html)
 as the Sarnobat in place of Prataprao, recognizing his great deeds in
 the attack on the Mogols during the invasion of Baglana, Khandesh and
 Ahmedabad.

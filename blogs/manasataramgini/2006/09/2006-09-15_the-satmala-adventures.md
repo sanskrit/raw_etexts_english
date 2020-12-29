@@ -43,14 +43,14 @@ through which the Moslems attacked the land (which now contains the
 highway to Agra) after a 3 hour ardous trek (just to cover about 1.2 Km)
 through some extra-ordinary terrain to reach the remarkable cave temple
 of our royal ancestress, [reNukA, the wife of
-jamadagnI](http://manollasa.blogspot.com/2006/03/death-of-renuka.html).
+jamadagnI](http://manasataramgini.wordpress.com/2006/03/death-of-renuka.html).
 After the darshan of the large orange painted image of reNukA, we
 climbed further uphill passing an abandoned shrine of the pastoral
 horse-riding deity khaNDoba. In the days of the Holkar it was a popular
 shrine of the winter full-moon festival of the deity, but now largely in
 disuse. There was the orange aniconic rock representing [padubaI
 (padmAvatI under a tree)
-](http://manollasa.blogspot.com/2006/04/countryside-expeditions.html)as
+](http://manasataramgini.wordpress.com/2006/04/countryside-expeditions.html)as
 usual. We found a flat rock in the vicinity and placing our safety on
 the weapons carried by the shUdra and the feral brahmin we retired for
 the day. Waking up before dawn we caught sight of the Centaurus A galaxy

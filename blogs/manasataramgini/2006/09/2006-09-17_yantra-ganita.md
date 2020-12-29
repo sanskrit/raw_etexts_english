@@ -69,5 +69,5 @@ The characteristic equations also have a symmetry with respect to the
 number of sides of the polygon. Thus the pentagon is x^2-5\*x-5=0;
 heptagon is x^3-7\*x^2+14\*x-7=0  
 This relationship for the heptagon was described by
-[Kepler](http://manollasa.blogspot.com/2005/08/johannes-kepler.html)
+[Kepler](http://manasataramgini.wordpress.com/2005/08/johannes-kepler.html)
 with much amazement.

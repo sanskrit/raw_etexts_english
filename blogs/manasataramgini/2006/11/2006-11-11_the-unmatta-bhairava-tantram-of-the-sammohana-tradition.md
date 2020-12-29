@@ -17,7 +17,7 @@ the situation. He created a mada-sAgara. He then emanated a 4-petalled
 lotus into that madasAgara. On the 4 petals sat the 4 devI-s jayA,
 vijayA, ajitA and aparAjitA, and in the middle sat the terrifying 4
 faced emanation of mahAdeva-
-[tumburu](http://manollasa.blogspot.com/2005/02/tumburu-manifestation-of-rudra.html).
+[tumburu](http://manasataramgini.wordpress.com/2005/02/tumburu-manifestation-of-rudra.html).
 They played melodiously on their vINas and captivated the mAtR^ikA-s and
 held them spell bound. When they were thus de-activated, the deva-s and
 tumburu attacked dAnavendra and killed him.

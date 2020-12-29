@@ -4,7 +4,7 @@ title = "On the samarA~NgaNa sUtradhAra: yantra-s"
 +++
 The vimAna has been noticed by many since the publication of the
 samarA\~NgaNa sUtradhAra (SS) of the great [rAja bhoja-deva
-paramAra](http://manollasa.blogspot.com/2005/12/raja-bhoja-glory-and-tragedy-of.html).
+paramAra](http://manasataramgini.wordpress.com/2005/12/raja-bhoja-glory-and-tragedy-of.html).
 The description is certainly obscure in parts (especially given the
 corrupt manuscripts), but what can be made sense of in the account
 definitely describes a flying machine. Many years ago when we had talked
@@ -133,8 +133,8 @@ the time of bhoja-deva’s era were “technologically” rather developed
 (also note the remarkable description of the cranial surgery performed
 on bhoja-deva himself). But in both places the violent visitations of
 the Abrahamistic madness
-[obliterated](http://manollasa.blogspot.com/2006/07/emperor-julian.html)
+[obliterated](http://manasataramgini.wordpress.com/2006/07/emperor-julian.html)
 or
-[defaced](http://manollasa.blogspot.com/2006/08/makings-of-islamic-science.html)
+[defaced](http://manasataramgini.wordpress.com/2006/08/makings-of-islamic-science.html)
 these old worlds. This is a point often overlooked by many, especially
 in the West.

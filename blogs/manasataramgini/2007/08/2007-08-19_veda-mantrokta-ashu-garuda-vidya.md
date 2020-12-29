@@ -6,9 +6,9 @@ title = "veda mantrokta Ashu-garuDa vidyA"
 
 The terrifying AshugaruDa is a dinosaurine deity of the AkAsha bhairava
 tradition that includes other dinosaurine deities like [pakShirAja
-sharabha](http://manollasa.blogspot.com/2006/05/arimaspas-dinosaurs-griffins-and.html)
+sharabha](http://manasataramgini.wordpress.com/2006/05/arimaspas-dinosaurs-griffins-and.html)
 and
-[AkAshabhairava](http://manollasa.blogspot.com/2006/12/oldest-archaeological-signs-of-ritual.html).
+[AkAshabhairava](http://manasataramgini.wordpress.com/2006/12/oldest-archaeological-signs-of-ritual.html).
 One of the vidyA-s of this devatA involve the deployment of the
 R^igvedic mantras (RV 10.178) in a tantric context and this is known as
 the veda mantrokta Ashu-garuDA vidyA.

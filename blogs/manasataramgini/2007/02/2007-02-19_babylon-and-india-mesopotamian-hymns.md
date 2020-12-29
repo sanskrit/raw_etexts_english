@@ -11,13 +11,13 @@ have interacted. While his premise of Mesopotamian loan words in the AV
 is questionable, this idea of a contact between the Middle East and
 vedic India has had persistent following. We discussed recently some
 general similarities between the [vedic and Mesopotamian sacrificial
-ritual](http://manollasa.blogspot.com/2007/01/on-vedic-sacrificial-ritual-and-its.html)
+ritual](http://manasataramgini.wordpress.com/2007/01/on-vedic-sacrificial-ritual-and-its.html)
 to extend certain observations initially suggested by Dumont and
 Albright (who ironically like most Indologists were virulent critics of
 Tilak). The art historian McEvilley who wrote the provocative book on
 Indo-Greek/Western Eurasian parallels also believed that the India of
 the [Indus Valley times was interacting with
-Mesopotamia](http://manollasa.blogspot.com/2004/11/indus-iconography-and-its-parallels.html).
+Mesopotamia](http://manasataramgini.wordpress.com/2004/11/indus-iconography-and-its-parallels.html).
 Neugebauer, a Babylonologist claimed to notice similarities between
 Mesopotamian omens and India astrology and his successors claimed that
 Hindu astronomy and mathematics had all been borrowed from the Middle

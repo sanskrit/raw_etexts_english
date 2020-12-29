@@ -6,7 +6,7 @@ title = "The yaudheya-kuShAna conflict"
 
 A yaudheya coin with kumAra and a yaudheya style image showing a
 li\~nga, kumAra and [revatI
-devI.](http://manollasa.blogspot.com/2006/10/akhyana-of-skanda-patni.html)
+devI.](http://manasataramgini.wordpress.com/2006/10/akhyana-of-skanda-patni.html)
 
 One of the murky aspects of Indian history is the overthrow of the
 Hinduized Iranian rulers, the Kushanas and the mahA-kShatrapa-s. We know
@@ -34,7 +34,7 @@ inferred that prior to the kuShAna period, the yaudheya republic’s
 territory encompassed a northern Rajasthan and Punjab/Haryana of modern
 times. One of their chief capitals was the great kaumAra center of
 rohitaka (Rohtak), [their patron deity being
-kumAra](http://manollasa.blogspot.com/2005/10/royal-kumara-worshippers.html).
+kumAra](http://manasataramgini.wordpress.com/2005/10/royal-kumara-worshippers.html).
 The mahAbharata states that the republic was founded by the son of
 yudhiShThira through devikA, a princess of the ANava kingdom of the
 shaibyas.

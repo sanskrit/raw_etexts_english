@@ -6,7 +6,7 @@ An important, but neglected aspect of the history of India before the
 cataclysmic Islamic interruption, was the role played by the
 mantra-mArga siddhAnta shaiva-s in the unification of the country. We
 had earlier spoken of our historical clansman, the great
-[varmashiva](http://manollasa.blogspot.com/2006/06/varmashiva.html) of
+[varmashiva](http://manasataramgini.wordpress.com/2006/06/varmashiva.html) of
 vodAmayUtA, who converted to this lineage of shaiva-s and had
 considerable influence with the royal patron of his age. But this just
 one point in the broader scheme of things. A truly influential but now
@@ -41,7 +41,7 @@ darshana and developed the Hindu atomic theory. In this line came
 lambakarNa, who migrated to dhAra, the capital of the paramAras and
 founded the gorATika maTha. This maTha became associated with
 [bhoja-deva
-paramara](http://manollasa.blogspot.com/2005/12/raja-bhoja-glory-and-tragedy-of.html),
+paramara](http://manasataramgini.wordpress.com/2005/12/raja-bhoja-glory-and-tragedy-of.html),
 one of the greatest kings of the world, who wrote the famed work on the
 siddhAnta doctrines known as the tattva prakAsha. In this line of the
 matta-mayUravaMsha arose vimala-shiva and his successor the illustrious

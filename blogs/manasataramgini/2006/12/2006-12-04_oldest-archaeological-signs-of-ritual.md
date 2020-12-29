@@ -44,4 +44,4 @@ As an aside, these dinosaur-inspired beings remind me of the devatA-s of
 the akAsha bhairavaM in our tradition. From the behind mist, the
 dinosaurine inspirations for forms of AkAsha bhairava, AshugaruDa,
 sharabha and pakShirAja become apparent, [as R had earlier
-speculated](http://manollasa.blogspot.com/2006/05/arimaspas-dinosaurs-griffins-and.html).
+speculated](http://manasataramgini.wordpress.com/2006/05/arimaspas-dinosaurs-griffins-and.html).

@@ -4,7 +4,7 @@ title = "Hindus on the hard problem"
 +++
 We had earlier mentioned the interesting discussion we had with Marc and
 kalashajA on what the western philosophers admit is the hard problem of
-[consciousness](http://manollasa.blogspot.com/2004/06/we-are-zombies.html).
+[consciousness](http://manasataramgini.wordpress.com/2004/06/we-are-zombies.html).
 Our other acquaintance of the clan of the kAshyapa-s, had asked me if
 the Indians had contributed anything to the problem. He intuitively felt
 they had done so, but could not place a finger on it. Marc, R and I had
@@ -34,6 +34,7 @@ system, but only dwell on points relevant to the issue of consciousness.
 
 One might characterize advaitic thought and it is related vaiShNava
 version of shri adishesha thus:  
+
 1\) The universe is mAyA, which is unreal. adishesha calls it the mAyA
 of viShNu. Yet viShNu is called the cause for origin, persistance and
 destruction of the universe- so there is a contradiction here.
@@ -101,14 +102,16 @@ is seen as the things of the world other than Atman. To perceive brahman
 by itself requires what is termed brahmavidyA that leads to mokSha.
 
 From the summary of this Hindu ekAntika system one can see that Hindu
-tackled some very important aspects of the “Hard problem”: 1) They
-correctly realized it was a hard problem 2) While they produced a theory
+tackled some very important aspects of the “Hard problem”: 
+
+- 1) They correctly realized it was a hard problem 
+- 2) While they produced a theory
 that considered the consciousness as the independent reality, they had a
 model for its specific connection to the neural process (buddhi, manas
 ityAdi). This model was robust enough to stand the modern developments
-in biological understanding. 3) They actually showed how linguistic
-expression does not reproduce the unity that is in consciousness. 4)
-They suggested an actual solution to the hard problem within their
+in biological understanding. 
+- 3) They actually showed how linguistic expression does not reproduce the unity that is in consciousness. 
+- 4) They suggested an actual solution to the hard problem within their
 Weltanschauung that cannot be attained by modern western thought due its
 own limitations.
 

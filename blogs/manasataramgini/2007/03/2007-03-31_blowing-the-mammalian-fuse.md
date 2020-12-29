@@ -38,11 +38,11 @@ phylogenies by recoding their data.
 
 Molecular phylogenies suggest that the extant placental mammals show 4
 major evolutionary
-[assemblages](http://manollasa.blogspot.com/2006/03/some-musings-on-xenarthran-and.html):
+[assemblages](http://manasataramgini.wordpress.com/2006/03/some-musings-on-xenarthran-and.html):
 1) Afrotheria- including predominantly African lineages, with striking
 morphological diversity with forms like the golden moles(Afrosoricida),
 Elephant shrews (Macroscelidea), hyraxes, elephants and manatees. 2)
-[Xenarthra](http://manollasa.blogspot.com/2006/03/some-musings-on-xenarthran-and.html)–
+[Xenarthra](http://manasataramgini.wordpress.com/2006/03/some-musings-on-xenarthran-and.html)–
 including all major south american mammals, armadillos, sloths and
 anteaters. 3) Laurasiatheria, which includes the familiar orders of
 carnivora, perissodactyla, artiodactyla (including whales), bats, and
@@ -74,7 +74,7 @@ The second major point they make was that though the orders radiated
 early, the diversification into the extant ecological diversity within
 these orders happened later, well after the K/T event, through the
 Eocene and Oligocene. Some forms like
-[cats](http://manollasa.blogspot.com/2006/01/evolution-of-cats.html)
+[cats](http://manasataramgini.wordpress.com/2006/01/evolution-of-cats.html)
 appear to have radiated even much later, close to our recent time.
 
 In short these findings need some careful thought — but the so called

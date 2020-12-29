@@ -42,7 +42,7 @@ celebrated the grace of rudra in securing his victory over the chIna-s
 by building the glorious temple for shiva termed shrI bhadreshvara. Now
 we know that somewhat later in the far east the main lineage of the
 mantra-mArga shaiva mata was that of the [vAma-srotas of the Cambodian
-empire](http://manollasa.blogspot.com/2007/02/greatest-temple-of-shiva.html)
+empire](http://manasataramgini.wordpress.com/2007/02/greatest-temple-of-shiva.html)
 with its depiction of tumburu. But the question arises as to what were
 the affinities of the earlier shaiva-mata at champAvatI. An analysis of
 the ruins of the bhadreshvara temple at MySon, Vietnam suggest that

@@ -23,6 +23,7 @@ apprehensions about being able to effect that crispness necessary for a
 good plot. I thought of two people– the earthy groundling Vidrum and the
 learned kavi the muni. But neither could be paired with her as they were
 like momentum and position in the Heisenberg inequality…  
+
 So with much effort pacing languidly along the basaltic slope she and I
 came up with our first nATaka, a very contrived political satire titled
 “Muammar al-Gaddafi”. I must say my part was only in getting the

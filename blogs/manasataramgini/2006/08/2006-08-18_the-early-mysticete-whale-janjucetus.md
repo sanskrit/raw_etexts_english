@@ -18,7 +18,7 @@ and sonar senses. The latter group are marked by they peculiar filter
 feeding apparatus composed of sheets of baleen. These two groups appear
 to represent a crown group that branched of from earlier radiations of
 basal whales that had their own distinctive adaptations such as the
-“[protocetid](http://manollasa.blogspot.com/2005/12/wonder-of-whippos-i.html)s”,
+“[protocetid](http://manasataramgini.wordpress.com/2005/12/wonder-of-whippos-i.html)s”,
 the ambulocetids, and the enigmatic remingtonocetids.
 
 The origin of the baleen whales is poorly understood, although forms

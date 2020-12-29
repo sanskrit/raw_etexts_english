@@ -15,8 +15,8 @@ the reign of indrajayavarman. The relevant statement from the
 inscription is:
 
 “tasmin kuru mahad yAgaM yathoktaM pArameshvare … kR^itvAn sa mahad
-yAgaM kAla-yAgaM iti shrutaM | sarasvatI yAga yutaM
-loka-pAla-samAvR^itaM ||”
+yAgaM kAla-yAgaM iti shrutam | sarasvatI yAga yutaM
+loka-pAla-samAvR^itam ||”
 
 It describes a great yAga which has been laid down in the siddhAnta
 tantra known as the pArameshvara Agama. This great yAga is known as

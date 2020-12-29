@@ -143,7 +143,7 @@ the deva-s and pitR^i-s. There are described as assuming the form of
 bears, owls or cats and can only be seen with the knowledge of the
 mantra-shAstra as they infect children:  
 * Avishantashcha lakShyante kevalaM shAstra-chakShuSha shuddhena dehaM
-bAlAnAM gandharva iva yoShitAM ||*  
+bAlAnAM gandharva iva yoShitAm ||*  
 Their entry into children, even as the gandharva seizes a maiden, can
 only be seen by means of the pure eye of the shAstra \[remember the
 vedic allusion of the gandharva seizing the daughter and wife of
@@ -178,7 +178,7 @@ taM prati prA\~Nmukho vidyAM paThan-nupaharet balim ||
 namo vimArakasya \[perhaps corrupt; manuscripts need to be examined\]
 |  
 namaH kumArA\~NgAya |  
-namaH saptAnAM mAtR^INAM |  
+namaH saptAnAM mAtR^INAm |  
 namaH skandAya |  
 eSha parigraha mantraH |  
 mAtR^INAM AvAhanaM cha|  
@@ -244,16 +244,16 @@ kumAra-vachanAd-dUtI samprAptA muchyatAM shishuH |
 patAkA kukukTaH ChatraM ghaNTA-barhadharaH shikhI ||  
 sharastambhash-cha te mudrA muchyatAM mAtaraH shishuH |  
 gandhaM dhUpaM cha mAlyaM cha kumAraste prayachChati ||  
-na sthAtavyaM tadAgrAya svAM gatiM gachCha mA chiraM |  
+na sthAtavyaM tadAgrAya svAM gatiM gachCha mA chiram |  
 dhAtryaH sarvAH kumArasya sa\~NgatA gandhamAdane ||  
 rakta-dhvaja-patAkasya raktAMshuka-nivAsinaH |  
 kumArasyAlayaM tatra yAta bAlaM vimu\~nchata ||  
-ShaNmukho dvAdashAkSho vai tasmin kAle vR^ito varaM |  
-vIraH kumArAdhipatistava putro.abhiShichyatAM ||  
+ShaNmukho dvAdashAkSho vai tasmin kAle vR^ito varam |  
+vIraH kumArAdhipatistava putro.abhiShichyatAm ||  
 brAhmaNo brAhmaNAnAntu sarva-veda-vidAM varaH |  
 yakSha-rAkShasa-nAgAnAM gandharvAsurayor api ||  
 piShAcha-bhUta-sa\~NghAnAM vyadInAM cha sa IshvaraH |  
-Aj\~nApayati vaH skando gaMyatAM gandhamAdanaM ||  
+Aj\~nApayati vaH skando gaMyatAM gandhamAdanam ||  
 graho yaH kopayedAj\~nAM kumArasya yashasvinaH |  
 sthAnAt chyutaH sa vai kShipraM bahya pariShado bhavet ||*
 
@@ -301,7 +301,7 @@ below) KJN 16.52:
 This is further clarified in bali mantra of vaTuka given in the KJN:  
 *hrIM vaTukAya kapila-jaTAya pi\~Ngala-netrAya devI-putrAya
 mAtR^i-putrAya  
-imAM baliM mamopanItAM gR^ihNa gR^ihNa churu muru hrIM ||*  
+imAM baliM mamopanItAM gR^ihNa gR^ihNa churu muru hrIm ||*  
 Here vaTuka is explicitly called devIputra and matR^iputra. This is
 again confirmed by another statement in the same chapter of the KJN
 where vaTuka is said to be kArttikeya (KJN 16.27):  
@@ -359,7 +359,7 @@ maNDala by the physician and he begins making oblations to skanda, agni
 and the kR^ittika-s with the mantra-s:  
 *agnaye svAhA | kR^ittikAbhyash-cha svAhA | svAhA | namaH skandAya
 devAya grahAdhipataye namaH |  
-shirasA tvAbhivandehaM pratigR^ihNIShva me baliM |  
+shirasA tvAbhivandehaM pratigR^ihNIShva me balim |  
 nIrujo nirvikArashcha shishur-bhavatu sarvadA | svAhA ||*
 
 After these oblations are completed with the different oblation

@@ -9,7 +9,7 @@ Many years ago we discovered that EGLN1 and its orthologs were  iron and
 months after we had published a paper detailing this discovery a band of
 mlechCha-s led by an English robber-baron said essentially the same
 thing, as though it was a new discovery, while failing to cite us
-entirely – iti mlechChAnAM mlechChatvaM | But this EGLN1 was destined to
+entirely – iti mlechChAnAM mlechChatvam | But this EGLN1 was destined to
 have a long and interesting career at the foundation of many an
 interesting discovery. Years later, studies on the genetic adaptations
 that help Tibetans thrive at high altitudes revealed a role for EGLN1

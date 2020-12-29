@@ -6,6 +6,7 @@ We had earlier compiled incomplete accounts of both the [saura
 mata](https://manasataramgini.wordpress.com/2005/11/21/saura-mata/) and
 its offshoots like the worship of
 [revanta](https://manasataramgini.wordpress.com/2006/08/31/the-deva-revanta-mythology-iconography-history-and-ritualism/).
+
 We initially wanted to work on the final part of the incomplete revanta
 essay dealing with the specific point of the evolution of shAstA from
 revanta and the relationship between their tantric prayogas. Then we
@@ -28,11 +29,14 @@ disease, and told him that he would find an idol of sUrya for his
 worship. sAMba found this idol that was apparently crafted by
 vishvakarman from the kalpataru while he was having a bath in
 chandrabhAga. sAMba installed it in the forest of mitra at mUlasthAna.
+
 These purANas also mention two other places where sAMba installed saura
 temples. One of these is said to be kAlapriya on the south bank of the
 yamuna and the other is said to be sutira or muNDIra. The location of
 sutira as per tradition is in the eastern coast and is the same as the
-site where now the koNArka temple stands (in utkala). The site of
+site where now the koNArka temple stands (in utkala). 
+
+The site of
 muNDIra is generally believed to be the great [Modhera
 temple](http://ignca.nic.in/nl002206.htm) in lATa-pradesha. Both muNDIra
 and mUlasthAna were ravaged by the Mohammedan vandals on multiple

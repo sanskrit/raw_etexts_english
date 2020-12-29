@@ -93,7 +93,7 @@ seyyathIdaM: 1) aTThapadaM dasapadaM; 2) AkAsaM; 3) parihArapathaM; 4)
 santikaM; 5) khalikaM; 6) ghaTikaM; 7) salAkahatthaM; 8) akkhaM; 9)
 pa\~NgachIraM; 10) va\~NkakaM; 11) mokkhachikaM; 12) chi\~NgulakaM; 13)
 pattALLihakaM; 14) rathakaM; 15) dhanukaM; 16) akkharikaM 17) manesikaM
-18) yathAvajjaM | iti vA iti eva rUpA jUtappa-mAdaTThAnAnuyogA
+18) yathAvajjam | iti vA iti eva rUpA jUtappa-mAdaTThAnAnuyogA
 paTivirato samaNo gotamo.iti |
 
 Let us look at these games to the extent we can understand them: First,

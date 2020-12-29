@@ -30,28 +30,28 @@ as requiring the worship of sarasvati in the form of the mAtR^ikA chakra
 and deploying the bAlA mantra with the worship of the 3 associated
 devI-s.  
 KK1.6-14:  
-OM svastya\~NkaM stumaH siddhamantarAdyam-itiipsitaM |  
-udyadUrja-pradraM devyA R^R^IL^iL^I-nigahanaM ||
+OM svastya\~NkaM stumaH siddhamantarAdyam-itiipsitam |  
+udyadUrja-pradraM devyA R^R^IL^iL^I-nigahanam ||
 
-ekam-aishvarya-samyuktam-ojo-vardhanam-auShadhaM |  
-antarAntaH kalA-khaNDa-galad-dhana-sudhA\~NkitaM ||
+ekam-aishvarya-samyuktam-ojo-vardhanam-auShadham |  
+antarAntaH kalA-khaNDa-galad-dhana-sudhA\~Nkitam ||
 
-chandrochChalaj-jalaM proj-jhada-j\~nAnaM TaTha-saMyutaM |  
-Dambara-prauDha-kiraNa-tathatAM dadhadunnataM ||
+chandrochChalaj-jalaM proj-jhada-j\~nAnaM TaTha-saMyutam |  
+Dambara-prauDha-kiraNa-tathatAM dadhadunnatam ||
 
 paraM phalapradaM baddha-mUlodbhava-mayaM vapuH |  
-ramyaM laghuvaram sharma varShat sarvasahaakSharaM ||
+ramyaM laghuvaram sharma varShat sarvasahaakSharam ||
 
 etAM namaH sarasvatyaI yaH kriyA-mAtR^ikAM japet |  
-kShemam-aindraM sa labhate bhavo.abhinava-vAgbhavaM ||
+kShemam-aindraM sa labhate bhavo.abhinava-vAgbhavam ||
 
-shvetAM sarasvatIM murdhni chandra-maNDala-madhyagAM |  
-akSharAbharaNA dhyAyed vA\~NmayaamR^itavarShiNIM ||
+shvetAM sarasvatIM murdhni chandra-maNDala-madhyagAm |  
+akSharAbharaNA dhyAyed vA\~NmayaamR^itavarShiNIm ||
 
-trikoNa-yuga-madhye tu taDit-tulyAM pramodinIM |  
-svarga-mArgodgatAM dhyayet paramAm-amR^itavAhinIM ||
+trikoNa-yuga-madhye tu taDit-tulyAM pramodinIm |  
+svarga-mArgodgatAM dhyayet paramAm-amR^itavAhinIm ||
 
-nirvikArAM nirAkArAM shaktiM dhyAyet parAtparAM |  
+nirvikArAM nirAkArAM shaktiM dhyAyet parAtparAm |  
 eSha bIja-trayI vAchyA trayI vAk-kAma-mukti-sUH ||
 
 kAvya-kriyech-Chaa\~Nkura-mUla-bhumiM-anviShya vishrAnti-lavena mokShaH
@@ -82,14 +82,14 @@ the original saMskR^ita.
 
 KK 2.10-11  
 Aloka patra-lekhyAdau goShThI-prahasanaj\~natA |  
-prekShA prANi-svabhavAnAM samudra-adristhitIkShaNaM ||
+prekShA prANi-svabhavAnAM samudra-adristhitIkShaNam ||
 
 He \[the aspiring kavi\] should examine the form of leaves and their
 veins, know how to make people laugh, study the behavior of living
 organisms and observe the features of oceans and mountains.
 
-ravIndu-tArA-kalanaM sarvartu-pari-bhAvanaM |  
-jana-saMghaabhigamanaM desha-bhAShopajIvanaM ||
+ravIndu-tArA-kalanaM sarvartu-pari-bhAvanam |  
+jana-saMghaabhigamanaM desha-bhAShopajIvanam ||
 
 The motion of the sun, moon and stars and all the seasons he should
 closely contemplate on. He should move among different peoples and
@@ -102,12 +102,12 @@ They include, among other things, being in the company of great kavi-s
 and intellectual Arya-s and through them imbibing (kShemendra uses the
 Sanskrit word “chewing” or “tasting” like food) the meaning of great
 kAvya:  
-sahavAsaH kavi-varaIr-mahAkAvyaartha-charvaNaM |  
+sahavAsaH kavi-varaIr-mahAkAvyaartha-charvaNam |  
 AryatvaM sujanair-maitrI saumanasyaM suveShatA ||  
 He also mentions observing the skills of sculptors, warriors in battle,
 graveyards and forests, and hearing the sorrowful lamentations:  
-shilpinAM kaushala-prekSha vIra-yuddhAvalochanaM |  
-shoka-pralApa-shravaNaM shmashAnaaraNya darshanaM ||
+shilpinAM kaushala-prekSha vIra-yuddhAvalochanam |  
+shoka-pralApa-shravaNaM shmashAnaaraNya darshanam ||
 
 Thus, in kShemendra we see the eternal naturalist, linguist and
 sociologist who is immersed in the study of the world around him. It

@@ -5,7 +5,7 @@ title = "The invocation of Ananda-bhairava"
 *h-s-kSh-m-l-v-r-yUM AnandabhairavAya vaShaT ||  
 s-h-kSh-m-l-v-r-yIM sudhAdevyai vauShaT ||  
 aIM klIM sauH ||**  
-brahmANDa-rasa-saMbhUtam-asheSha-rasa-sambhavaM |  
+brahmANDa-rasa-saMbhUtam-asheSha-rasa-sambhavam |  
 ApUritaM mahA-pAtraM pIyUSha-rasam-Avaha ||  
 akhaNDaika-rasAnanda-kare para-sudhAtmani |  
 svachChanda-sphuraNaM mantraM nidehy-akula-rUpiNI ||  

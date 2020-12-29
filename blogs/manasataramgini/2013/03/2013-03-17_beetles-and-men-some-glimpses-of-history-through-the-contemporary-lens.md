@@ -161,9 +161,9 @@ Among the poisons he describes many are made from arthropod, amphibian,
 reptilian and plant sources:
 
 chitra-bheka kauNDinyaka kR^ikaNa pa\~nchakuShTha shatapadI chUrNam |
-uchChiTiNga kambalI shatakardama idhma | kR^ikalAsa chUrNaM |
-gR^ihagolika andhAhi kakrakaNTaka pUtikITa gomArikA chUrNaM | bhallAtaka
-avalguja sAra samyuktaM | sadyaH prANaharam | eteShAM vA dhUmaH ||  
+uchChiTiNga kambalI shatakardama idhma | kR^ikalAsa chUrNam |
+gR^ihagolika andhAhi kakrakaNTaka pUtikITa gomArikA chUrNam | bhallAtaka
+avalguja sAra samyuktam | sadyaH prANaharam | eteShAM vA dhUmaH ||  
 The first preparation here is a powder made from an extract of the
 chitrabheka frog, the insects known as kauNDinyaka, kR^ikaNa,
 pa\~nchakuShTha and the centipede. The next preparation comprises of

@@ -87,7 +87,7 @@ after the pristine vaisheShika faded away, later authors thought that
 these terms were related to mokSha of vedAnta).
 
 tasya nimitta-parIShTiH | (MS3)  
-tadvachanAd AmnAyasya prAmANyaM | (VS3)  
+tadvachanAd AmnAyasya prAmANyam | (VS3)  
 Here again the two darshana-s probably imply similar (not same) things:
 The mImAmsaka-s seem to mean (going by shabara svAmin): examination (of
 veda) is proof of that (dharma).  

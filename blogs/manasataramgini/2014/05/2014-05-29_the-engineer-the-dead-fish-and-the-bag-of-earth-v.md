@@ -143,7 +143,7 @@ deva-devAya ShaNmukhAya mahAsenAya mayUravAhanAya svAhA ||
 Then he poured ghee on to the idol of kumAra with the incantation:  
 OM AyAtu bhagavAn deva-devA\~Nkusha-pAshadhara-kanaka-shakte
 ghaNTA-kolAhala-priya pratiShTha mArge .arghyaM pratigR^ihANa namo namaH
-svAhA || huM ||
+svAhA || hum ||
 
 After several oblations to skanda he then made the oblations to the
 great goddess ShaShThI: OM namo bhagavatyai mahAmayUriNyai hariNyai

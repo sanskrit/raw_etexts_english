@@ -10,8 +10,8 @@ sohaM jayajayAputro vijaye.atha jayAmi cha |
 namaH puruShasiMhAya viShNave vishvakarmaNe |  
 sanAtanAya kR^iShNAya bhavAya vibhavAya cha |  
 tejo vR^iShakapeH sAkShAt tejo brahmendroyor yame |  
-yathA a.haM nAbhijAnAmi vAsudevaparAjayaM |  
-mAtush cha pANigrahaNaM samudrasya cha shoShaNaM |  
+yathA a.haM nAbhijAnAmi vAsudevaparAjayam |  
+mAtush cha pANigrahaNaM samudrasya cha shoShaNam |  
 anena satyavAkyena siddhyatAm agado hy ayam |  
 hili mili saMspR^iShTe rakSha sarva bheShajottame svAhA ||*
 

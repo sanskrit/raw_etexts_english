@@ -183,7 +183,7 @@ protecting the child at birth:
 * kShitir-jalaM viyat-tejo vAyur-viShNuH prajApatiH |  
 sagarbhAM tvAM sadA pAntu vaishalyaM cha dishantu te ||  
 prasUShva tvam avikliShTamavikliShTA shubhAnane |  
-kArttikeyad-dyutiM putraM kArttikeyAbhi-rakShitaM |*|
+kArttikeyad-dyutiM putraM kArttikeyAbhi-rakShitam |*|
 
 But hardly any graha material or mantra-s pertaining to them is found in
 charaka. In fact charaka’s chapter is paralleled to a large extent by

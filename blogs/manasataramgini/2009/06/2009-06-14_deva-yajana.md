@@ -12,7 +12,7 @@ The wise know the decision at the fork to not be ours.
 Hoping not to become the target of the god’s arrow we offered with the
 yajus of nAbhAnediShThA mAnava:  
 eSha te rudra bhAgo yaM nirayAchathAstaM juShasva vidergopatyaGM rAyas
-poShaGM sUvIryaGM saMvatsarINAG svastiM ||
+poShaGM sUvIryaGM saMvatsarINAG svastim ||
 
 The mixed soma that remains is the bhAga of rudra.  
 Wandering but performing the soma yAga in the mind, we said soma mixed
@@ -23,7 +23,7 @@ This the act of yaj\~na. We make over the yaj\~na to him who is the
 ya\~jna, meditating on the soma to swell. He who covers the worlds with
 his strides reverence:  
 viShNo tvaM no antamaH sharma yachCha sahantya | prate dhArA
-madhuShchuta uthasaM druhate akShitaM ||
+madhuShchuta uthasaM druhate akShitam ||
 
 With the yAga performed in our minds as bhR^igu did, as apnavAna did,
 and as aurva did. He who does so experiences the vR^iShTi of the marut-s
@@ -43,5 +43,5 @@ rudrasya gANapatyAN
 pUShNA sayujA saha
 
 He sees the truth with:  
-mitraH saGMsR^ijya pR^ithivIM |  
-rudrAH saMbhR^itya pR^ithivIM |
+mitraH saGMsR^ijya pR^ithivIm |  
+rudrAH saMbhR^itya pR^ithivIm |

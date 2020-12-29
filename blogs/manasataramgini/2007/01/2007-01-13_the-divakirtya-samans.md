@@ -21,7 +21,7 @@ like uvA etc.) of this song is bhrAja/ e bhrAja.
 
 AbhrAja: araNyegeya gAnaM 6.1.6  
 It is composed on the lyric: RV 8.44.16  
-agnir mUrdhA divaH kakut patiH pR^ithivyA ayaM | apAM retAMsi jinvati
+agnir mUrdhA divaH kakut patiH pR^ithivyA ayam | apAM retAMsi jinvati
 ||  
 agni is the head and the axis of heaven, the lord of this earth. He
 makes the seed of water successful.
@@ -31,7 +31,7 @@ The magical stobha of this song is A bhrAja/ e A bhrAja
 vikarNa: araNyegeya gAnaM 6.1.7  
 It is composed on the lyric: RV 10.170.1. The lyric in the Aranya
 saMhitA 5.2 slightly differs (see brackets).  
-vibhrAD bR^ihat.h pibatu somyaM madhvAyurdadhad yaGYapatAvavihrutaM |  
+vibhrAD bR^ihat.h pibatu somyaM madhvAyurdadhad yaGYapatAvavihrutam |  
 vAtajUto yo abhirakShati tmanA prajAH pupoSha (piparti) purudhA
 (bahudhA) vi rAjati |  
 May the great bright one drink soma with honey, giving the lord of the

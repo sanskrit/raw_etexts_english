@@ -37,7 +37,7 @@ the great god, where indra is called to drink soma using the subrahmaNya
 chant. This chant is highly enigmatic and has bhaktis that have never
 been understood outside the vedic tradition. The chief bhaktis of the
 subrahmaNya chant are:  
-subrahmaNyo3M | subrahmaNyo3M | subrahmaNyo3M ||  
+subrahmaNyo3m | subrahmaNyo3m | subrahmaNyo3m ||  
 oM subrahmaNya  
 indrAgachCha | hariva AgachCha | haribhyAM AyAhI | medhAtither meSha |
 vR^iShaNashvasya mena | gaurAvaskandin | \*ahalyAyai jAra\* | kaushika

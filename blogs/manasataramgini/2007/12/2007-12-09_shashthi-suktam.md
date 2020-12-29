@@ -56,7 +56,7 @@ ihAyuShe sharaNamahaM prapadye ||
 varada-pUrva-tApanI 2.2 (a tantric upaniShad of the gANapatya school
 describing the valagahan anuShTubh of gaNesha):  
 sa IM pAhi ya R^ijIShI tarutraH sa shriyaM lakShmIM-aupalAM aMbikAM gAM
-ShaShThIM cha yAM indrasenetyuta Ahus-tAM vidyAM brahmayoni-svarUpAM |
+ShaShThIM cha yAM indrasenetyuta Ahus-tAM vidyAM brahmayoni-svarUpAm |
 tAMihAyuShe sharaNaM prapadye ||
 
 The medieval upaniShadic commentator nArAyaNa explains that this formula
@@ -79,28 +79,28 @@ dhanadA{\\m+} vasum IshAnAM kAmadA{\\m+} sarva-kAminAm |
 puNyA{\\m+} yashasvinIM devI{\\m+} ShaShThI{\\m+} shakra juShasva me ||
 
 nandI bhUtishcha lakShmIshchAdityA cha yashasvinI |  
-sumanA vAk cha siddhishcha ShaShThI me dishatAM dhanaM ||
+sumanA vAk cha siddhishcha ShaShThI me dishatAM dhanam ||
 
-putrAn pashUn dhanaM dhANyaM bahvashvAja-gaveDakaM |  
+putrAn pashUn dhanaM dhANyaM bahvashvAja-gaveDakam |  
 manasA yat-praNItaM cha tanme dishatu havyabhuk ||
 
 kAmadA{\\m+} rajanI{\\m+} vishvarUpA{\\m+} ShaShThIm upavartatu me
-dhanaM |  
-sA me kAmA kAmapatnI ShaShThI me dishatAM dhanaM ||
+dhanam |  
+sA me kAmA kAmapatnI ShaShThI me dishatAM dhanam ||
 
 AkR^itiH prakR^itir-vachanI dhAvaniH padma-chAriNI manmanA bhava svAhA
 ||
 
-gandha-dvArAM durAdarShAM nityapuShTAM karIShiNIM |  
-IshvarI{\\m+} sarva bhUtAnAM tAmihophavaye shrIyaM ||
+gandha-dvArAM durAdarShAM nityapuShTAM karIShiNIm |  
+IshvarI{\\m+} sarva bhUtAnAM tAmihophavaye shrIyam ||
 
 nAnA-patrakA sA devI puShTish-chAti-sarasvatI |  
-ariM devIM prapadyem-upavartayatu me dhanaM ||
+ariM devIM prapadyem-upavartayatu me dhanam ||
 
 hiraNyaprAkArA devi mA{\\m+} vara AgachChatvAyur-yashash-cha svAhA ||
 
-ashva-pUrNA{\\m+} rathamadhyA{\\m+} hastinAda-pramodinIM |  
-shriyaM devIm upavahye shrIr mA devI juShatAM ||
+ashva-pUrNA{\\m+} rathamadhyA{\\m+} hastinAda-pramodinIm |  
+shriyaM devIm upavahye shrIr mA devI juShatAm ||
 
 upayantu mAM deva-gaNAn-nAgAsh-cha tapasA saha |  
 prAdur-bhUto.asmi rAShTre.asmin shrIH shraddhAM \[kIrtIm vR^iddhiM\]

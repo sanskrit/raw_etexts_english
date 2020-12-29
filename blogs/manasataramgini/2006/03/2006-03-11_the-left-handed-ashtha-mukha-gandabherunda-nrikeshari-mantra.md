@@ -22,7 +22,7 @@ trident, gadA, sword, bow and arrow, in addition to various other
 weapons. The mantra was narrated thus by mahAdeva to ishAnI when she
 embraced him and kissed him:  
   
-vedAnAm AdimaM chaiva ardhendhu-bindu-bhUShitaM |  
+vedAnAm AdimaM chaiva ardhendhu-bindu-bhUShitam |  
 pashchAd aShTAnanAyeti pi\~Ngordhva-kesha-vartmane ||  
 chaturviMshatinetrAya tadanu ShoDashabhujAya |  
 kR^iShNa-jImUta-vapuShe kapAla-mAlAneka dhAriNe ||  

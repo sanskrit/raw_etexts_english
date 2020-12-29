@@ -13,7 +13,7 @@ epitome of the arthashAstra:
 cANakyAya ca viduShe namo .astu naya-shAstra-kartR^ibhyaH ||**
 
 sakalArtha-shAstra-sAraM jagati samAlokya viShNuSharmedam |  
-tantraiH pa\~ncabhir etac cakAra sumanoharaM shAstraM ||  
+tantraiH pa\~ncabhir etac cakAra sumanoharaM shAstram ||  
 To manu, to bR^ihaspati, shukra, parAshara and his son and chANakya the
 learned, we salute; these great makers of shAstras. Having examined the
 essence of all shAstras, viShNusharman too, has composed these five

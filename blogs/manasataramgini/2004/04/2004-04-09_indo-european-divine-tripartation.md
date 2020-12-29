@@ -87,7 +87,7 @@ rivers, they flow together to propitiate Urva (the fire within water).On
 every side the bright streams have encompassed the bright and
 resplendent apAM napAt.
 
-asmai tisro avyathyAya nArIrdevAya devIrdidhiShantyannaM |  
+asmai tisro avyathyAya nArIrdevAya devIrdidhiShantyannam |  
 kR^itA ivopa hi prasarsre apsu sa pIyUShaM dhayati pUrvasUnAm ||
 
 Translation: Three goddesses present food to that unassailable god; as

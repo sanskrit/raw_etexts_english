@@ -55,7 +55,7 @@ kAkachandeshvara kalpa occurs as a kalpa of the former tantra or occurs
 as a standalone copy. This text has several interesting plants of which
 one is uchchaTA
 
-rAsAyanaM pravakShyAmi yat-surair-api durlabhaM |  
+rAsAyanaM pravakShyAmi yat-surair-api durlabham |  
 uchchaTetyoShadhI kAchij-jAyate pR^ithivI-tale ||
 
 I will narrate the chemical preparation that is even rare amongst the
@@ -67,8 +67,8 @@ eka nAlA bhavet sA tu varNenA kR^iShNa nIlikA ||
 It displays the following form: circular leaves, a single stalk and a
 dark bluish color.
 
-tasyAH puShpaM bhaved bhugnaM shuka-tuNda-samaprabhaM |  
-kandaM kUrma-pratIkAshaM tasyA lakShaNam IdR^ishaM ||
+tasyAH puShpaM bhaved bhugnaM shuka-tuNda-samaprabham |  
+kandaM kUrma-pratIkAshaM tasyA lakShaNam IdR^isham ||
 
 It is endowed with the following features: Its flowers are drooping and
 have the color of a parrot’s beak. Its tuber is of the form of a

@@ -308,11 +308,11 @@ chANDamahAroShaNa tantra of the yoginI group\].
 It was within this matrix that a minor deity of the crematorium,heruka,
 rose to be the center of the yoginI tantra-s. His beginnings are
 suggested by the Astika kAlikA purANa (63.135-137.5):  
-*shmashAnaM herukAkhyaM cha raktavarNaM bhaya\~NkaraM |
+*shmashAnaM herukAkhyaM cha raktavarNaM bhaya\~Nkaram |
 asi-charma-dharaM raudraM bhu\~njAnaM manujAmiSham || tisR^ibhir
 muNDa-mAlAbhir galad-raktAbhi rAjitam|
 agni-nirdagdha-vigalad-danta-preto-paristhitam || pUjayech-chintanenaiva
-shastra-vAhana-bhUShaNaM |*   
+shastra-vAhana-bhUShaNam |*   
 Here, in the kAlika purANa, heruka is described as a deity in the
 shmashAna who is of blood-red complexion, frightful and fierce, holding
 a sword and shield and eating human flesh. He is mentioned as being

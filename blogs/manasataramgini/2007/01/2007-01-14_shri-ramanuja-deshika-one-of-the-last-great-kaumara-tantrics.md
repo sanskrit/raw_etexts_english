@@ -19,7 +19,7 @@ draw the curtains in his cart and he closed his eyes so that even by
 error he might not cast his eyes on the shrine of rudra. When he was a
 safe from kAlahasti distance he opened his eyes but to his horror he had
 turned blind. Shocked he uttered the verse:  
-sarvAtmatA te shrutiShu prasiddhA satyaiva sA kAlakarIsha nUnaM |  
+sarvAtmatA te shrutiShu prasiddhA satyaiva sA kAlakarIsha nUnam |  
 apashyatastvA madhunA samastaM yato na me dR^iShTipathaM prayAti ||
 
 He was constantly tormented by bhUta-s and agents of sharabha. He

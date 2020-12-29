@@ -60,7 +60,7 @@ though the ekAyana is mentioned as a collection of yajuSh-s, the SYV
 shakhA with which they are associated is explicitly given as kANva or in
 rare cases as also including the mAdhyandina-s:  
 sAtvata 25.16:  
-ekAyanAn yajurmayAn AshrAvitam antaraM | (ekAyana as a collection of
+ekAyanAn yajurmayAn AshrAvitam antaram | (ekAyana as a collection of
 yajuSh-s)
 
 jayAkhya saMhitA 1.109 (manuscript):  

@@ -12,7 +12,7 @@ OM bIjaM; hrIM shaktiH; jaye cha viniyogaH|
 AM AM AM hR^idayAya namaH |  
 IM IM IM shirase svAhA |  
 UM UM UM shikhAyai vaShaT |  
-EM EM EM kavachAya huM |  
+EM EM EM kavachAya hum |  
 AuM AuM AuM netra-trayAya vauShaT |  
 prekhaM astrAya phaT ||
 
@@ -28,7 +28,7 @@ shyAmAm-indu-dharAM devImA.a.a.tAmra-nayana-trayIm |
 vAme rakta-kapAlaM cha trishUlaM dakShiNe tatha ||  
 kR^ishodarIM rakta-vastrAM pINa-stanIM nitambinIm |  
 padmasthAM yuvatIM dhyAyet smerA.a.asyAm-ati sundarIm ||  
-bhadrakAlIM mahAdevIM jayadAtrIM sushItalAM |  
+bhadrakAlIM mahAdevIM jayadAtrIM sushItalAm |  
 pujayed AsurI pIThe syustadA.a.avaraNAni cha ||
 
 OM hrIM chaNDyogeshvarI \! phaT \! svAhA \! \[for homa\]  

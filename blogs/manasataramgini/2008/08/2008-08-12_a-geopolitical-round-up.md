@@ -67,6 +67,6 @@ I will happy to be proven wrong. It is striking to note how the Hindus
 used the “democratic process” to bring upon themselves a government of
 taskara-s and kulu\~ncha-s who are veshyAputra-s.
 
-“*dugdhAbdhi dhavalaM tena saro dUra-girau kR^itaM |  
+“*dugdhAbdhi dhavalaM tena saro dUra-girau kR^itam |  
 amareshvara yAtrAyaM janair adyApi dR^ishyate ||*”  
 kalhaNa’s rAjataraMgiNi 1.267

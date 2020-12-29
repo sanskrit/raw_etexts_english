@@ -8,7 +8,7 @@ the vrata to ShaShThI
 
 dhyAnaM  
 suputradAM cha shubhadAM dayA-rUpAM jagat-prasU |  
-shveta-champaka-varNAbhAM ratna-bhUShaNa-bhUShitAM |  
+shveta-champaka-varNAbhAM ratna-bhUShaNa-bhUShitAm |  
 pavitra-rUpAM paramAM devasenAM parAM bhaje ||
 
 He does japa, homa and tarpaNa with the following ShaShThI mantra:  
@@ -44,4 +44,4 @@ dharmaM dehi yasho dehi ShaShThI-devyai namo namaH |
 dehi bhumim.h prajAM dehi vidyAM dehi supUjite |  
 kalyANaM cha jayaM dehi ShaShThI-devyai namo namaH ||
 
-|| iti priyavrata virachita shrI ShaShThI-devI stotraM samAptaM ||`  `
+|| iti priyavrata virachita shrI ShaShThI-devI stotraM samAptam ||`  `

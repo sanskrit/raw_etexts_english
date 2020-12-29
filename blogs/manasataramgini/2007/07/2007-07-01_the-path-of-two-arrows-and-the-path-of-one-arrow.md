@@ -20,10 +20,10 @@ not grab the independently joyous chit. Now behold through yoga that 4th
 foot which pervades the parorajas – the subtlety that underlies the
 light of savitA.“
 
-OM bhUr-bhuvas-suvaH | tat-saviturvareNyaM | bhargo devasya dhImahi |
-dhiyo yo naH prachodayAt | parorajase .asAvadoM || gR^iNhi-sUrya Adityo
-na prabhAvAtyakSharaM | madhukSharanti tad rasaM | satyaM vai tad rasaM
-Apo jyoti-raso .amR^itaM brahma bhUr-bhuvas-suvaroM || yata indra
+OM bhUr-bhuvas-suvaH | tat-saviturvareNyam | bhargo devasya dhImahi |
+dhiyo yo naH prachodayAt | parorajase .asAvadom || gR^iNhi-sUrya Adityo
+na prabhAvAtyakSharam | madhukSharanti tad rasam | satyaM vai tad rasaM
+Apo jyoti-raso .amR^itaM brahma bhUr-bhuvas-suvarom || yata indra
 bhayAmahi tato no abhyaM kR^dhi | maghava\~n Chagdhi tava tanna Utaye
 vidviSho vimR^idho jahi ||
 

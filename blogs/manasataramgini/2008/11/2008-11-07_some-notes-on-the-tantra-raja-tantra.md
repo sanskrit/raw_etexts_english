@@ -27,7 +27,7 @@ mAyA hR^illekhA (=hrIM) | viyad-dAhasva vahniyuk repha IkAra bindu
 sahitaH shakAraH shrI-bIjaM ity arthaH (=shrIM) | haMsa-hR^it-tejasAM
 yogAd-dyutidAhacharasvakaiH hakAra-sakAra-svakAra-phakAra \[emended from
 rephakAra\] -repha-ekAra-bindu-saptabhir-anantaraM bIjam-ity-arthaH
-(=h-s-sv-phrem) | punash-cha anantaram-akSharaM |
+(=h-s-sv-phrem) | punash-cha anantaram-akSharam |
 haMsa-hR^id-dhaMsa-dvaya-dAhavanair-api samAyaiH
 hakAra-sakAra-hakAra-dvaya-repha-aukAra-visarjanIyaatmabhiH saptabhir
 akSharaiH pa\~nchamaM bIjam-iti yAvat (=h-s-h-hrauH) | amR^ita vigrahA
@@ -71,7 +71,7 @@ recommended for the same purpose.
 The dhyAna for amR^iteshvara bhairava for the mR^ityu\~njaya mantra is
 given thus:  
 *Adya-madya-tR^itIyaarNa-nAla-padma-sukarNike |  
-samAsInaM sudhArdrA\~NgaM maulAbindu-kalA-yutaM ||  
+samAsInaM sudhArdrA\~NgaM maulAbindu-kalA-yutam ||  
 susitaM hariNaakSha-srak-chintA-pAsha-karaM haram |  
 svaikyena bhAvayen-nityaM jaya-dIrghaayuredhate ||* TR 34.13-14
 

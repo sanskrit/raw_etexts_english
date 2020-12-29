@@ -127,7 +127,7 @@ snigdha-rUkShatvAd bandhaH || 5.32
 combinations.  
 He then formulates a system of rules involving these forces that mediate
 atomic combinations.  
-na jaghanya-guNAnAM | gunasAmye sadR^ishAnAM | dvyAdhikAdiguNAnAM tu |
+na jaghanya-guNAnAm | gunasAmye sadR^ishAnAm | dvyAdhikAdiguNAnAM tu |
 bandhe samAdhikau pAriNAmikau || 5.33-5.35  
 aNu-s possessing the minimum one degree of snigdha or rUkSha cannot
 combine; aNU-s which have the same degree of snigdha or the same degree

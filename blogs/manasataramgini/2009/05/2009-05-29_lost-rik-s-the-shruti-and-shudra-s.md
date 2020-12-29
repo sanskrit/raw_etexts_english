@@ -56,7 +56,7 @@ It is in answering this that kR^iShNa explains the transformations of
 nArAyaNa and cites some vaidika mantra-s as pramANa-s:  
 nidarshanamapi hyatra bhavati:  
 nAsIdaho na rAtrirAsIt | na sadAsIn nAsadAsIt  
-tama eva purastAd abhavad vishvarUpaM ||
+tama eva purastAd abhavad vishvarUpam ||
 
 mantravAdo.apI hi bhavati:  
 tvamagne yaj\~nAnAM hotA vishveShAM hito devebhir mAnuShe janeti ||

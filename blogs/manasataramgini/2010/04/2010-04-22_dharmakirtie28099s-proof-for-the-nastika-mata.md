@@ -9,7 +9,7 @@ remarked that he was struck not just by the pleasure of his visual
 sensation but by the vindication of the nAstika mata. How so his protégé
 asked. He responded with this ornate verse:  
 yAtA lochana-gocharaM yadi vidher eNekShaNA sundarI neyaM
-ku\~Nkuma-pa\~Nka-pi\~njara-mukhI tenojjhitA syAt kShaNaM |  
+ku\~Nkuma-pa\~Nka-pi\~njara-mukhI tenojjhitA syAt kShaNam |  
 nApy AmIlita-lochanasya rachanAd rUpaM bhaved IdR^ishaM tasmAt sarvam
 akartR^ikaM jagad idaM shreyo mataM saugatam ||  
 Roughly: If this doe-eyed beauty, with a golden face and vermillion mark

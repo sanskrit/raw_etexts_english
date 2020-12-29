@@ -21,7 +21,7 @@ of viShNu, the mantrarAja, which is described in the ahirbudhnya saMhitA
 of the pA\~ncharAtra stream.
 
 ugraM vIraM mahA-viShNuM jvalantaM sarvato-mukhaM|  
-nR^isimhaM bhIShaNam bhadraM mR^ityur mR^ityuM namAmy-ahaM ||  
+nR^isimhaM bhIShaNam bhadraM mR^ityur mR^ityuM namAmy-aham ||  
 The latter upaniShad also gives the mantra of sudarshana: oM sahasrAra
 huM phaT | This is also expounded in the ahirbudhnya saMhitA and other
 pA\~ncharAtra texts like lakShmI-tantra.  

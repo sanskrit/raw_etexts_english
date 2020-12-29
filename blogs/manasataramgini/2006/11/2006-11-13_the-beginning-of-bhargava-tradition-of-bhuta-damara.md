@@ -51,7 +51,7 @@ Thus, as bhR^igu and brahman priest had dug herbs, as indra and varuNa
 had incised herbs thus purifying with mantras one collects the good
 herbs for the achievement of ones tasks.
 
-The regular vashikaraNa herbs are said to be: apAmArga, gorochana (a
+The regular vashIkaraNa herbs are said to be: apAmArga, gorochana (a
 lump of taurine from cow’s gall bladder), daNDotpala roots,
 shvetAparajita roots, indivAra lotus roots, banyan fig roots.
 vishvAmitra is said to have expounded the vashikaraNa chapter of the

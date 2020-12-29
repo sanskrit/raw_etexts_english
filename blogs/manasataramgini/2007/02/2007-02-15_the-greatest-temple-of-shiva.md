@@ -47,8 +47,8 @@ helps us reconstruct the history of the pAshupatas, and predecessors of
 the kAlAmukha-s of later days. To me on seeing the glory of shiva on
 rock the words came to mind:
 
-daMShTrA-karAlaM divi nR^ityamAnaM hutAsha-vaktraM jvalanArka-rUpaM |  
-sahasra-pAdAkShi-shirobhi yuktaM bhavantam-ekaM praNamAmi rudraM ||  
+daMShTrA-karAlaM divi nR^ityamAnaM hutAsha-vaktraM jvalanArka-rUpam |  
+sahasra-pAdAkShi-shirobhi yuktaM bhavantam-ekaM praNamAmi rudram ||  
 namo.astu somAya sumadhyamAya namo.astu devAya hiraNyabAho |  
 namo.agni-chandrArka-vilochanAya namo.ambikAyAH pataye mR^iDAya ||
 

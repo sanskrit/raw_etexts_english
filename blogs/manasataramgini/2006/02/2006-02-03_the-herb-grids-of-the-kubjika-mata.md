@@ -49,7 +49,7 @@ bhR^i\~ngarAja (16)= Eclipta alba
   
 Using this grid and numerical system various prescriptions may be coded
 by the practioner. Thus, we are told of a prescription thus:
-tri-dashAkShesha-bhujagair lepAt strI sUyate sukhaM ||  
+tri-dashAkShesha-bhujagair lepAt strI sUyate sukham ||  
 Which means: For easy delivery a woman may use a paste made from tri
 (3); dasha (10); akShi (eyes=2); isha (rudra=11); bhujaga (nAga=8).  
 Some applications might have a magical slant: tithi-dig-yuga-bANaish cha

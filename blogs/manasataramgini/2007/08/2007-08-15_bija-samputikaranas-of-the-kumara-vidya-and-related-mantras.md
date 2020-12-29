@@ -16,34 +16,34 @@ originals of the SK and KTS in my possession.
 One of the important elements from the great mayUrashikhA are the bIja
 sampuTikaraNa-s for the kumAra vidyA-s. The mantroddhAra-s are given for
 the following forms:  
-aShTavarga dvitIyA yat skanda bIjam idaM paraM |  
-ShaShThAnala samopetaM bindunAda samAyutaM |  
+aShTavarga dvitIyA yat skanda bIjam idaM param |  
+ShaShThAnala samopetaM bindunAda samAyutam |  
 mUla-mantram idam j\~neyaM sarva kAmArtha siddhidaM||  
 \[OM sUM skandAya namaH |– iti mUla mantraH\]
 
-ShaT vargasya dvitIyam cha ShaShTha-svara samanvitaM |  
-chaturdasha svarantasya bindu-nAda samAyutaM |  
-subrahmaNya chaturtham namo .antaM praNavAdikaM |  
+ShaT vargasya dvitIyam cha ShaShTha-svara samanvitam |  
+chaturdasha svarantasya bindu-nAda samAyutam |  
+subrahmaNya chaturtham namo .antaM praNavAdikam |  
 \[OM sUM sauM subrahmaNyAya namaH |\]
 
-dvitIya varga prathamam chaiva ShaShThAnala samAyutaM |  
-kavarga prathamaM chaiva pa\~nchama-svara samanvitaM |  
-kumAra mantram idam syAt bindunAda samanvitaM ||  
+dvitIya varga prathamam chaiva ShaShThAnala samAyutam |  
+kavarga prathamaM chaiva pa\~nchama-svara samanvitam |  
+kumAra mantram idam syAt bindunAda samanvitam ||  
 \[OM kUM kaM kumArAya namaH |\]
 
-aShTavarga dvitIyantu pa\~nchama svara saMyutaM |  
-svAmin guhAya mantrAnte namo .antaM praNavAdikaM |  
-bindu-nAda samAyuktaM sarva kAmArtha siddhidaM ||  
+aShTavarga dvitIyantu pa\~nchama svara saMyutam |  
+svAmin guhAya mantrAnte namo .antaM praNavAdikam |  
+bindu-nAda samAyuktaM sarva kAmArtha siddhidam ||  
 \[OM suM svAmin guhAya namaH |\]
 
-saptavarga pa\~nchAntaM chaturtha svara-saMyutaM |  
-sharavanabhavaM bindu-nAda samAyutaM |  
-svanAmAdyakSharaM chaiva namontaM praNavAdikaM ||  
+saptavarga pa\~nchAntaM chaturtha svara-saMyutam |  
+sharavanabhavaM bindu-nAda samAyutam |  
+svanAmAdyakSharaM chaiva namontaM praNavAdikam ||  
 \[OM shIM shaM sharavana-bhavAya namaH |\]
 
-aShTavarga tR^itIyantu mAyAgni samanvitaM |  
-tasya vargAd imam chaiva bindu-nAda samAyutaM |  
-idaM bIjaM vijAnIyAt ShaNmukhAya namo .antakaM ||  
+aShTavarga tR^itIyantu mAyAgni samanvitam |  
+tasya vargAd imam chaiva bindu-nAda samAyutam |  
+idaM bIjaM vijAnIyAt ShaNmukhAya namo .antakam ||  
 \[OM hrIM ShaM ShaNmukhAya namaH\]
 
 Then the pa\~ncha brahmA combinations are provided:  

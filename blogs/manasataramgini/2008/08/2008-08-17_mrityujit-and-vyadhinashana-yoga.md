@@ -18,22 +18,22 @@ known as the mR^itu\~njaya sAdhana:
 mR^itu\~njayam samAsena kathyamAnaM shR^iNu priye ||  
 AkAsham bhUta-nilayam tatra padmAkR^itiM smaret |  
 dalAShTaka samopetam karNikAdi sthitaM sitam ||  
-svachCha-sphaTika saMkAshaM prAleyAvani saMnibhaM |  
-sarvAmR^ita-mayaM divyaM chandra-kalpita-karNikaM ||  
+svachCha-sphaTika saMkAshaM prAleyAvani saMnibham |  
+sarvAmR^ita-mayaM divyaM chandra-kalpita-karNikam ||  
 tAdR^ishenaiva rUpeNa bhUpadaM tu manoramam |  
 tasminsh-chaivopaviShTas tu samyag nyAsakR^itas tataH ||  
 prAleyAbham tato.atmAnaM shuddha-sphaTika-samprabham |  
 evaM vichintyan-AtmAnaM paschAd dhyAnaM vichitayet ||  
 vyoma-padme tu yach chandraM karNikAyAM vyavasthitam |  
-tat sthAM vichintayed devIM parAM surabhi-rUpiNIM ||  
-svachCha-sphaTika-saprakhyAM samantAd amR^ita-sravaM |  
-sravantIM sAmayaM divyam mantra-nAdAntasarpiNiM ||  
+tat sthAM vichintayed devIM parAM surabhi-rUpiNIm ||  
+svachCha-sphaTika-saprakhyAM samantAd amR^ita-sravam |  
+sravantIM sAmayaM divyam mantra-nAdAntasarpiNim ||  
 sA shaktir devadevasya paramAtmA amR^itavAhinI |  
-sA sravantIM param kShIram yat tat satyaM sunirmalaM ||  
+sA sravantIM param kShIram yat tat satyaM sunirmalam ||  
 tat patad dhyAtamano mUrtim samantAch cha vichintayet |  
 vishad-brahmabile bhAnhyo plAvayed-dhR^idh-guhAshryAt ||  
 evaM pratidinaM dhyAyej japen mantrottamottamam |  
-Shan-mAsAj-jinvate mR^ityum iti shAstrasya nishchayaM ||
+Shan-mAsAj-jinvate mR^ityum iti shAstrasya nishchayam ||
 
 Here the mR^ityu\~njaya yoga of trika is laid out. First the sAdhaka
 meditates upon an 8-petalled lotus with a white pericarp and of
@@ -89,11 +89,11 @@ bIje parA shaktir ichChaiva shivarUpinI”. This is expounded briefly in
 the great nityAShoDaShikArNava and expanded in the j\~nAnArNava
 (19.29-31) (or equivalently in kaulAvalI-nirNaya of the Eastern shrIkula
 tradition):  
-sharire chintayet parAM |  
-sravat pIyUShadhArbhir varShantIM viShahAriNIM ||  
-hema-prabhA-bhAsamAnaM vidyun-nikara-suprabhAM |  
+sharire chintayet parAm |  
+sravat pIyUShadhArbhir varShantIM viShahAriNIm ||  
+hema-prabhA-bhAsamAnaM vidyun-nikara-suprabhAm |  
 sphurach-chandrakalA pUrNa kalaShaM varadAbhayau ||  
-j\~nAnamudrAM cha dadhatIM sAkShad amR^itarUpinIM |  
+j\~nAnamudrAM cha dadhatIM sAkShad amR^itarUpinIm |  
 Here parA is mediated as sending down the nectar from the full moon
 pitcher while doing japa of her mantra sauH.
 

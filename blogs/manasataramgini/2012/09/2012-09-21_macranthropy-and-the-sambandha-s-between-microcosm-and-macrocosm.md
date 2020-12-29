@@ -16,7 +16,7 @@ yash ChandasAm R^iShabho vishvarUpash Chandobhyash ChandA.gsy Avivesha
 |  
 sachA.gM shikyaH puro vAchopaniShad indro jyeShTha indriyAya
 R^iShibhyo  
-namo devebhyas svadhA pitR^ibhyo bhUr-bhuvas-suvash Chanda OM ||
+namo devebhyas svadhA pitR^ibhyo bhUr-bhuvas-suvash Chanda Om ||
 
 That universe-encompassing bull among the veda-chants, who described by
 the chants and pervades the chants, present before all, the first in
@@ -326,7 +326,7 @@ The metrical Vedic chants were his foraging path, the secret teaching of
 the upaniShat his resting place; he was accompanied by his wife chAyA
 and was huge as the jeweled mountain (the Himalayas).
 
-mahIM sAgara-paryantAM sa-shaila-vana-kAnanAM |  
+mahIM sAgara-paryantAM sa-shaila-vana-kAnanAm |  
 ekArNava-jala-bhraShTAm ekArNava-gataH prabhuH ||
 
 The land surrounded by the oceans, with mountains, forests and groves

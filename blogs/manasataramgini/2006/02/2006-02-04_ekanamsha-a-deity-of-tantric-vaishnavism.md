@@ -14,7 +14,7 @@ parallel system that appears to have largely passed out of subsequent
 vaiShNavism. That was the cult of the goddess ekAnamshA. Who is she ?
 
 namaste .astu ekAnamshAyai | yogakanyAyai namo .astute |   
-viShNor sharIrajAm nidrAM viShNor nirdeshakAriNIM | vivesha rUpiNI kAlI
+viShNor sharIrajAm nidrAM viShNor nirdeshakAriNIm | vivesha rUpiNI kAlI
 kAla-meghAvaguNThitA | kAlI cha kAmarUpiNi sarvaharasya sakhI tatha |
 mahendra-viShNu-bhaginI kAlarAtri cha mohini |
 

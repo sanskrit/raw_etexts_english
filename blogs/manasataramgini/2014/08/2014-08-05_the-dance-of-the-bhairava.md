@@ -43,7 +43,7 @@ agne rudro asuro mahodivaH |). The deva agni is said to come in two
 earthly forms: 1) havyavAha – one who carries the oblations to the gods;
 2) kravyAda – one who devours the corpse on the cremation pile and
 carries oblations to the deceased ancestors. The former is auspicious
-and the later is inauspicious (kravyAdam agniM pra hiNomi dUraM | i.e. I
+and the later is inauspicious (kravyAdam agniM pra hiNomi dUram | i.e. I
 send afar the corpse-eating agni). This dichotomy in agni is also
 reflected in rudra: on one hand he is shiva (auspicious) and daivyo
 bhiShak (the divine physician) or jalASha-bheShaja (one with anti-fever

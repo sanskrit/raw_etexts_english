@@ -5,8 +5,8 @@ title = "Sanskrit poetry in Hindu inscriptions"
 Dr. BC Chabra provides several examples of exemplary Sanskrit poetry in
 Hindu inscriptions. I shall provide a few of these as illustrations:
 
-shrI chandraguptasya mahendra kalpaH kumAraguptastanayaH samagrAM |  
-rarakSha sAdhvIm iva dharmapatnIM vIryAgrahastair upaguhya bhUmiM ||
+shrI chandraguptasya mahendra kalpaH kumAraguptastanayaH samagrAm |  
+rarakSha sAdhvIm iva dharmapatnIM vIryAgrahastair upaguhya bhUmim ||
 
 श्री चन्द्रगुप्तस्य महेन्द्र कल्पः कुमारगुप्तस्तनयः समग्राम् |   
 ररक्ष साध्वीम् इव धर्मपत्नीं वीर्याग्रहस्तैर् उपगुह्य भूमिं ||

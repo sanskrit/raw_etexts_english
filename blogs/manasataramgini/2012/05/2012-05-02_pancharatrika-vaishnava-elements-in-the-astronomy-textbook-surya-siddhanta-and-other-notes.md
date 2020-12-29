@@ -295,7 +295,7 @@ Similarly in ShB 7.4.1.10 and 9.1.2.40 the sun is similarly described as
 being spherical:  
 evaitad Adityam upadadhAti sa hiraNmayo bhavati parimaNDala |  
 asau vA Adityo hR^idayaM shlakShNa eSha shlakShNaM hR^idayam parimaNDala
-eSha parimaNDalaM |
+eSha parimaNDalam |
 
 Thus, it is clear that the spherical earth and sun was a concept among
 Hindus long before any later Greek influence on them. Hence, it is

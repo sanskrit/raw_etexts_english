@@ -12,7 +12,7 @@ We stood before that great idol of pratya\~NgirA before the most holy
 shrine of Tiruchengode. That is the idol filled with the power of
 atharvaNa hR^idyA. When stands one before the deity one attains the most
 high mantra of the devI.  
-khaDUre .adhicha\~NkamAM kharvikAM kharvavAsinIM |  
+khaDUre .adhicha\~NkamAM kharvikAM kharvavAsinIm |  
 ya udArA antarhitA gandharvApasarasashcha ye |  
 sarpA itarajanA rakShAMsi ||
 

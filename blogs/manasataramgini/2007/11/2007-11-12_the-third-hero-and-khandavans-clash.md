@@ -33,8 +33,8 @@ of hemashUla.
 
 We then showed the vajra mudra thinking of the slayer of mahiSha and
 tAraka :  
-OM || uta svAnAso divi Shantv-agnes-tigmAyudhA rakShase hantavA u ||
-hrAM ||  
+Om || uta svAnAso divi Shantv-agnes-tigmAyudhA rakShase hantavA u ||
+hrAm ||  
 made chid asya pra rujanti bhAmA na varante paribAdho adevIH || \~NaM
 
 Oh thundering son of agni who rushes at the adevIH hurling terrible

@@ -2,8 +2,8 @@
 title = "The lineage of the viShNu tantras"
 
 +++
-oM ugraM vIraM mahAviShNuM jvalantaM sarvatomukhaM |  
-nR^isiMhaM bhIShaNaM bhadraM mR^ityu-mR^ityaM namAmyahaM ||
+oM ugraM vIraM mahAviShNuM jvalantaM sarvatomukham |  
+nR^isiMhaM bhIShaNaM bhadraM mR^ityu-mR^ityaM namAmyaham ||
 
 How did these mightiest mantras of viShNu come into being? Beyond
 pa\~ncharAtra promulgated by the chitrashikaNDins are the tantras of

@@ -83,7 +83,7 @@ OMkAras te atha saMskAro vidyuj jihvA cha nirmitA ||
 dantAsh cha pitaro rAjan somapA iti vishrutAH |  
 goloko brahmalokash cha oShTAv AstAM mahAtamanaH ||  
 grIvA chAsyAbhavad rAjan kAlarAtrir guNottarA |  
-etad dhayashiraH kR^itvA nAnAmUrtibhir AvR^itaM ||  
+etad dhayashiraH kR^itvA nAnAmUrtibhir AvR^itam ||  
 antardadhau sa vishvesho vivesha cha rasAM prabhuH |
 
 Thus, viShNu assuming his second form, i.e., that of hayagrIva is
@@ -156,7 +156,7 @@ sandalwood at whose base is placed the triad of vajrapANi, lokeshvara
 and avalokiteshvara. The use of the term vaDavAmukha in this text offers
 a link to the descriptions of hayagrIva in the mahAbhArata:  
 ahaM hayagrIvo bhUtvA samudre pashcimottare |  
-pibAmi suhutaM havyaM kavya\~n cha shraddhayAnvitaM || Mbh. 12.340
+pibAmi suhutaM havyaM kavya\~n cha shraddhayAnvitam || Mbh. 12.340
 
 As also the tale in which the wrath of viShNu made the ocean salty:  
 nArAyaNo lokahitArthaM vaDavAmukho nAma purA maharShir babhUva| Mbh

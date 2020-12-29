@@ -99,7 +99,7 @@ iti pata\~njaliH ||\] Beyond the molecules/atoms VB proposes that the
 tanmAtra-s exist – these are sub-atomic particles that tend not to exist
 on their own but tend to only exist as conjoined together to constitute
 the atoms. VB states that this is what is implied by the term sUkShma of
-the sUtra \[atha kimeshAM sUkShma rUpaM? tanmAtraM bhUta-kAraNaM |
+the sUtra \[atha kimeshAM sUkShma rUpaM? tanmAtraM bhUta-kAraNam |
 tasyaiko .avyavaH paramANuH sAmAnya visheShAtmA .ayuta siddhAvayava
 bhedAnu gataH samudAya ity-evaM sarva-tanmAtrANy-etat-tR^itIyam |\].
 Further, the VB explains that the basis of all matter lies in the 3

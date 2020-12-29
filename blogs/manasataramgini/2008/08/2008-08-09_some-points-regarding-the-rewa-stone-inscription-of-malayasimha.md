@@ -36,9 +36,9 @@ to ma\~njugoSha the deity with which he opens the inscription and feels
 some personal connection?
 
 The invocation of ma\~njughoSha runs thus:  
-aSTaara-chakraakR^iti pUrNachandra padmAsanastha hima-shaila-gauraM |  
+aSTaara-chakraakR^iti pUrNachandra padmAsanastha hima-shaila-gauram |  
 savyetarA pANiga \[or savyetarapaNiga?\] khaDga pusta vakShyAmi natvA
-khalu ma\~njughoShaM ||  
+khalu ma\~njughoSham ||  
 Here, ma\~njughoSha is described as being white as the himAlaya, seated
 in the lotus seat of the full moon of the form of a wheel with 8 spokes.
 He bears a sword in right and book in his left hand. While bauddha-s
@@ -95,9 +95,9 @@ that kukkuteshvara manuscripts were possibly extant in Nepal\]. In these
 Astika tantra-s we find two dhyAna-s.  
 The shrIvidyArNava dhyAna 1:  
 saMpUrNa-mANdala-tuShara-marIchi-madhye bAlaM vichintya dhavalaM
-vara-khaDga-hastaM |  
+vara-khaDga-hastam |  
 uddAma-kesha-nivahaM \[ka\~NkaNa-vahaM\] vara-pustakAdhyaM prauDhaM
-\[nagnaM\] japet kShataja-padma-dalAyatAkShaM ||  
+\[nagnaM\] japet kShataja-padma-dalAyatAkSham ||  
 In this dhyAna we note he is seated on a full moon, holds the book and
 the sword and is white in complexion, thus largely matching the form in
 the inscription.
@@ -108,7 +108,7 @@ ajita-mitra and also inserted into a ma\~njuvajra stotra of another
 nAstika adept named ma\~njugarbha.  
 Astika version:  
 shashadharam iva shubhraM khaDga-pustA\~Nka-pANiM suruchiram ati-shAntaM
-pa\~ncha-chUDaM kumAraM |  
+pa\~ncha-chUDaM kumAram |  
 pR^ithu-tara-vara-mukhyaM padma-patrAyatAkShaM kumati-dahana-dakShaM
 ma\~njughoShaM namAmi ||
 

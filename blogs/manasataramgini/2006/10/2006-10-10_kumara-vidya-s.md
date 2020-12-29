@@ -13,13 +13,13 @@ of these is of great import for a dvija devoted the yAj\~nIkI
 perfection. It is the form known as ajArUDha. Here the great lord of the
 beautiful ShaShThi is meditated upon in the bindu of the maNDala thus:  
 
-dvimukhaM chAShTa-bahuM cha shvetaM vA shyAMa-skandharaM |  
+dvimukhaM chAShTa-bahuM cha shvetaM vA shyAMa-skandharam |  
 sruvAkShamAlAM khaDgaM cha svastikaM dakShiNe kare ||  
 kukkuTaM kheTakaM vajraM Ajya-pAtraM tu vAmake |  
-agnihotra-vidhi devaM agni-jAta svarUpakaM ||
+agnihotra-vidhi devaM agni-jAta svarUpakam ||
 
 His mantra in this form is:  
-OM hrAM \~NaM ||
+OM hrAM \~Nam ||
 
 This form of kumAra has 2 heads, 8 arms and is white in complexion with
 a dusky neck. In his right hands he holds a sruva, rosary, a
@@ -46,13 +46,13 @@ performing worship of kumAra.
 ## gAngeya
 In the gA\~Ngeya form he is meditated upon thus:  
 
-eka-vaktraM trinayanaM dADimI-kusuma-prabhaM |  
-karaNDa-makuTopetaM kukkuTa-dhvaja dhAriNaM ||  
-nIlotpala-dharaM vande makarArUDhaM avayayaM |  
-parashuM pUrNa-kuMbhaM cha savyahaste tu dhAriNaM ||  
-araNiM kukkuTaM vAme gA\~ngeya-sama-rUpakaM |  
+eka-vaktraM trinayanaM dADimI-kusuma-prabham |  
+karaNDa-makuTopetaM kukkuTa-dhvaja dhAriNam ||  
+nIlotpala-dharaM vande makarArUDhaM avayayam |  
+parashuM pUrNa-kuMbhaM cha savyahaste tu dhAriNam ||  
+araNiM kukkuTaM vAme gA\~ngeya-sama-rUpakam |  
 His mantra in this form is:  
-OM hrAM ghaM ||
+OM hrAM gham ||
 
 He is mediated as having a single head with 3 eyes of the deep scarlet
 color of a pomegranate flower. He bears a braided turban on his head and
@@ -74,11 +74,11 @@ bewitched the goddesses and dallied with them. Hence his form is
 described accordingly with the accouterments of ratipati with which
 shR^i\~NgAra is inflamed. He is meditated upon thus: 
 
-chatur-vaktrAShTa-nayanaM bhujAShTa kamalAsanaM |  
-kun\~nchitaM vAmpAdaM cha susthitaM dakShiNaM padaM ||  
+chatur-vaktrAShTa-nayanaM bhujAShTa kamalAsanam |  
+kun\~nchitaM vAmpAdaM cha susthitaM dakShiNaM padam ||  
 shaktyutpate puShpa bANAM abhayaM dakShiNe kare |  
-vajraM chekShu dhanush-shUlaM varadaM vAmake dadhaM ||  
-padma puShpa-nibhaM chaiva saurabheya svarUpakaM |
+vajraM chekShu dhanush-shUlaM varadaM vAmake dadham ||  
+padma puShpa-nibhaM chaiva saurabheya svarUpakam |
 
 He has 4 heads, with 8 eyes, and 8 arms and is seated on a lotus. His
 left leg is bent while his right leg is straight. He is adorned with a
@@ -99,10 +99,10 @@ In the skanda-svAmin form of kumAra he is flanked by two gaNa’s on
 either side: On his left is srauSha (a manifestation of shiva) and on
 his right is rAj\~na (a manifestation of sUrya) \[Note 2\]. In his four
 arms he holds a spear, bow, vajra and arrow. He is mediated upon thus:  
-eka-vaktraM trinetraM cha hema-ratna-kiriTinaM |  
+eka-vaktraM trinetraM cha hema-ratna-kiriTinam |  
 chatur-bhujair vajra shakti shara-kArmuka dhAriNaM||  
-udyat-bhAnu-sahasrAbhaM cha shukla-yaj\~nopavItinaM |  
-bhUta-vetAla-gaNAkIrNaM rAj\~na srauSha sevitaM ||
+udyat-bhAnu-sahasrAbhaM cha shukla-yaj\~nopavItinam |  
+bhUta-vetAla-gaNAkIrNaM rAj\~na srauSha sevitam ||
 
 He is worshipped with the mantra:  
 OM hrAM svAmine svAhA ||

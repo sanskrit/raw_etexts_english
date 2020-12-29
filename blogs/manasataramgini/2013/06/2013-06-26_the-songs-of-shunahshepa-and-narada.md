@@ -10,7 +10,7 @@ The prastAva is sung by the prastotA, the udgItha by the udgAtA, the
 pratihAra by the pratihartA, the upadrava by the udgAtA, and the nidhana
 by all three.
 
-prastAva: yoge-yoge tavA hA vu stArAM |  
+prastAva: yoge-yoge tavA hA vu stArAm |  
 udgIthA: O jevAje havAmAhA e hU vA au ho vA |  
 pratihAra: sAkhAya indraM UtAyA e hU vA au ho vA |  
 upadrava: O khAya yA hU vA au ho vA |  
@@ -20,7 +20,7 @@ prastAva: A ghA gamad yadI hA vu shrAvAt |
 udgIthA: O hasriNIbhir UtA yi bhA e hU vA au ho vA |  
 pratihAra: vAjebhir Upa no hAvAm hU vA au ho vA |  
 upadrava: O jebhir A hU vA au ho vA |  
-nidhana: pa no havAM ||
+nidhana: pa no havAm ||
 
 prastAva: anu pratnasyau hA vu kasaH |  
 udgIthA: O ve tUvIpratA yin nArAM hU vA au ho vA |  
@@ -31,7 +31,7 @@ nidhana: pitA hUve ||
 The lyrics are based on the following mantra-s of the shunaHshepa the
 son of the fallen bhArgava ajigarta composed after he was adopted by
 vishvAmitra:  
-yoge-yoge tavastaraM | vAje-vAje havAmahe | sakhAya indram Utaye ||  
+yoge-yoge tavastaram | vAje-vAje havAmahe | sakhAya indram Utaye ||  
 In every junction of life, in every booty-winning contest, like
 \[calling\] friends we call the mightiest indra for aid.
 

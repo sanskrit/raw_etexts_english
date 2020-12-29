@@ -9,7 +9,7 @@ mantras and examples include:
 
 ## The manmatha vidyA or kAdi vidyA:  
 
-ka e I la hrIM | ha sa ka ha la hrIM | sa ka la hrIM  
+ka e I la hrIm | ha sa ka ha la hrIm | sa ka la hrIM  
 
 This celebrated mantra is seen even in tiru-mantiraM of sundaranAtha
 (tirumUlar) the celebrated siddha who migrated from Kashmir to the
@@ -17,13 +17,13 @@ drAviDa desha.
 
 ## The lopAmudra vidyA or the hAdi vidyA:  
 
-ha sa ka la hrIM | ha sa ka ha la hrIM | sa ka la hrIM  
+ha sa ka la hrIm | ha sa ka ha la hrIm | sa ka la hrIM  
 
 ## The skanda vidyA (with 18 syllables):  
-ha sa ka la hrIM | ha sa ka sa ka la hrIM | sa ha ka ha ka hrIM |  
+ha sa ka la hrIm | ha sa ka sa ka la hrIm | sa ha ka ha ka hrIm |  
 
 ## The manu vidyA (with 18 syllables):  
-ka ha e I la hrIM | ha ka e I la hrIM | sa ka e I la hrIM  
+ka ha e I la hrIm | ha ka e I la hrIm | sa ka e I la hrIM  
 
 Now even within the classic mantras mainly the kAdimata and to a smaller
 extant the hAdimata dominate.

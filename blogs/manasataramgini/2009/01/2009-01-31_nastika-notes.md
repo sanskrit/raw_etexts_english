@@ -83,7 +83,7 @@ rAgavajri-red; IrShyAvajri- grey.
 The CMT also gives a long list of female entities who should be
 worshiped as the forms of the bhagavati:  
 yAvad dhi dhR^ishyate loke strI-rUpam bhuvanatraye |  
-tan madIyaM mataM rUpaM nIchAnIcha-kulaM gataM ||  
+tan madIyaM mataM rUpaM nIchAnIcha-kulaM gatam ||  
 devI chAsurI chaiva yakShiNI rAkShasaI tathA |  
 nAginI bhUtinI-kanyA kinnarI mAnuShI tathA ||  
 gandharvI nArakI chaiva tiryak-kanyAtha pretikA |  

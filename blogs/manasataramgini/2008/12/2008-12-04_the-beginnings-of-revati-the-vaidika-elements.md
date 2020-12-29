@@ -80,10 +80,10 @@ puShA is replaced by that to the 3 goddess including revatI. In the
 recitation for the nakShatreShTi from taittirIya brAhmaNa (3.1.27) we
 note that the constellation named revatI is associated with puShan and
 they are called upon to protect the paths, animals and food:  
-* puShA revaty anveti panthAM | puShTipatI pashupA vAjabastyau | imAni
-havyA prayatA juShANA | sugair no yAnairupayAtAM yaj\~naM | kShudrAn
+* puShA revaty anveti panthAm | puShTipatI pashupA vAjabastyau | imAni
+havyA prayatA juShANA | sugair no yAnairupayAtAM yaj\~nam | kShudrAn
 pashUn rakShatu revatI naH | gAvo no ashvAGM anvetu pUShA | annaGM
-rakShantau bahudhA virUpaM | vAjaGM sanutAM yajamAnAya yaj\~nam ||*  
+rakShantau bahudhA virUpam | vAjaGM sanutAM yajamAnAya yaj\~nam ||*  
 In the atharvavedic chant of the gods’ wives recited by the agnIdhra,
 revatI as pathyA is mentioned as the wife of puShan (gopatha brAhmaNa
 2.2.9):  

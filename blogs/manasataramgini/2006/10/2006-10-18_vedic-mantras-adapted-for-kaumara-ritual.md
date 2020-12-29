@@ -113,7 +113,9 @@ agni is elsewhere described as having 7 mothers and the constellation of
 agni is kR^ittikA \[the mother of paurANic kumAra\]. The sons of rudra
 even in the vedic parlance- the maruts were the leaders of the deva senA
 (RV 10.103.8):  
-“devasenAnAm abhibha\~njatInAM jayantInAM maruto yantvagram”. The
+“devasenAnAm abhibha\~njatInAM jayantInAM maruto yantv agram”. 
+
+The
 nejameSha hymn in the RV khila is a direct reference to the deity, but
 it is in the context of the birth-rites.  
 **

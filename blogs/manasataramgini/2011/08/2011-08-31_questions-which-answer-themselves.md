@@ -5,7 +5,7 @@ title = "Questions which answer themselves"
 kaM saMjaghAna kR^iShNaH ? kaMsaM jaghAna kR^iShNaH |  
 kA shItalavAhinI ga\~NgA ? kAshItala-vAhinI-ga\~NgA |  
 ke dArapoShNaratAH ? kedAra-poShNa-ratAH |  
-kaM balvantaM na bAdhate shItaM ? kaMbalvantaM na bAdhate shItaM ||  
+kaM balvantaM na bAdhate shItaM ? kaMbalvantaM na bAdhate shItam ||  
 Whom did kR^iShNa kill? kaMsa.  
 Which is the ga\~NgA that flows smoothly? The ga\~NgA flowing through
 the surface of kAshI.  

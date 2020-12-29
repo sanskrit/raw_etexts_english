@@ -27,7 +27,7 @@ uShNISheNaiva shuchinA vyabhAd-uttamsa-dhAriNA |
 kashmIraja-pR^iShad-varSha-raMjitena-a\~Ngikena cha ||  
 shiva-varmA bR^ishbalaH saMvR^itaH shiva-varmaNA |  
 tasya vajra-sharIrasya kiM kAryaM tena varmaNA ||  
-kR^ipANaM pANi-naikena bibhrANo.anyena paTTishaM |  
+kR^ipANaM pANi-naikena bibhrANo.anyena paTTisham |  
 sa nandaka-gadA-hastaH sAkShAd-dharid-udaikShyata ||
 
 With a pure \[white\] turban bearing a shining crest jewel,  

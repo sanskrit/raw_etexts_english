@@ -76,7 +76,7 @@ by the old dharma-shAstra-s is seen as a horrible perversion. In
 contrast, the ideals of secularism, modernism, egalitarianism and
 blindness to sex, inter-individual and inter-ethnicity differences are
 seen as superb guiding principles. The great kAlidAsa had said:  
-purANam ity eva na sAdhu sarvaM | na chApi kAvyaM navam ity avidyaM ||  
+purANam ity eva na sAdhu sarvam | na chApi kAvyaM navam ity avidyam ||  
 Yet, before adopting the navam shAstraM and discarding the purANaM we
 must apply the tests to check out their relative robustness. For this
 just as the yogin strives for to excavate the basis of the experiential

@@ -181,7 +181,7 @@ the mirror of fame, gopaNArya.
 svAM rAjadhAnIn-nija \[asi?\]-bala-nihatotsikta-tauruShka-sainyaH
 kR^itvA |  
 shrI-ra\~Nga-bhUmim kR^ita-yuga-sahitAnta \[…?\] lakShmI mahIbhyAM
-saMsthApyAsyAM sarojabhava iva kurute sAdhu-charyAM saparyaM ||*
+saMsthApyAsyAM sarojabhava iva kurute sAdhu-charyAM saparyam ||*
 
 The world \[which is a\] stage, its king \[ra\~NgarAja\] from the
 vR^iShabha hills’ slopes \[Tirupati\], the brAhmaNa gopaNa brought to

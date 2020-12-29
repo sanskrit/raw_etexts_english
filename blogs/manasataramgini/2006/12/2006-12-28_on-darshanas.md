@@ -52,7 +52,7 @@ however, goes to the ancient Indo-Aryan past. It stems from a knowledge
 of the ways of gods\! The gods exhibit mAyA- thus their one true or
 prototypic form appears in many diverse forms. This is true of indra in
 the R^igveda:  
-“rUpam-rUpaM maghavA bobhavIti mAyAh kR^invAnas tanuvaM pari svAM |” (RV
+“rUpam-rUpaM maghavA bobhavIti mAyAh kR^invAnas tanuvaM pari svAm |” (RV
 3.53.8).  
 In the itihAsas viShNu and rudra put forth their mAyA by means of their
 yoga to assume many forms. In the purANa this mAyA is the great goddess
@@ -81,7 +81,7 @@ This comes out strongly in the itihAsa and purANa — one of the most
 famous expressions of this known to most hindus is the statement of
 kR^iShNa in the bhagavad gItA:  
 nAhaM prakAshaH sarvasya yoga-mAyA-samAvR^itaH |  
-mUDho.ayaM nAbhijAnAti loko mAm-ajam-avyayaM || (BG7.25)  
+mUDho.ayaM nAbhijAnAti loko mAm-ajam-avyayam || (BG7.25)  
 “I am not manifest to all veiled by the yoga of my mAyA. This deluded
 world knows not me unborn and unlimited.”  
 Again at sunset on the 14th day of the Great War devakI-putra turning to
@@ -122,7 +122,7 @@ cha so brahmaputrAMsh-cha mahAnubhAvAn || 58
 tamash-cha kaShTaM sumahad-rajash-cha sattvaM cha shuddhaM prakR^itiM
 parAM cha |  
 siddhiM cha devIM varuNasya patnIM tejashcha kR^itsnaM sumahach-cha
-dhairyaM || 59  
+dhairyam || 59  
 narAdhipaM vai vimalaM satAraM vishvAMsh-cha devAn uragAn pitR^IMsh cha
 |  
 shailAMsh-cha kR^itsnAnudadhIMsh-cha ghorAn nadIsh-cha sarvAH

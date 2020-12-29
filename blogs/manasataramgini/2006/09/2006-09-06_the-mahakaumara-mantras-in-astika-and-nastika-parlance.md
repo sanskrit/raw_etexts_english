@@ -140,7 +140,7 @@ that is conferred by them.
 Prior to this section a bauddhized version of the mahAkumAra vidyA is
 given thus:  
 
-OM | kumAra mahA-kumAra krIDa krIDa ShaNmukha-bodhisattvAnuj\~NAta
+Om | kumAra mahA-kumAra krIDa krIDa ShaNmukha-bodhisattvAnuj\~NAta
 mayUrAsana sa\~nghodyata-pANi raktA\~nga rakta-gandhAnulepana-priya kha
 kha khAhi khAhi khAhi | huM nR^itya nR^itya | raktA-puShpArchita-mUrti
 samayamanusmara | bhrama bhrama bhrAmaya bhrAmaya bhrAmaya| lahu lahu
@@ -149,7 +149,7 @@ huM huM sarva-buddhAnuj\~NAta svAhA ||
 
 Elsewhere the MMK provides a bauddhized version of the kaumara
 vighna-ghAtaka vidyA:  
-he he mahAkrodha ShaNmukha ShaTcharaNa sarva-vighna-ghAtaka hUM hUM |
+he he mahAkrodha ShaNmukha ShaTcharaNa sarva-vighna-ghAtaka hUM hUm |
 
 The MMK provides a dhyAnaM of kumAra that matches the classical dhyAnaM
 used by the Astika tantriks:  

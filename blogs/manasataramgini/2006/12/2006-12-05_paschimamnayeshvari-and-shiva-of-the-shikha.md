@@ -5,6 +5,7 @@ title = "paschimAmnAyeshvarI and shiva of the shikhA"
 We first salute the master of the school, matsyendra and ku\~nkumAMbA
 who was his kulA\~NganA without whom none of these mysteries would be
 known to us mortals.  
+
 “siddhamAtA vibhuH shabdarAshIti yonyArNavI vAgvishuddhAsi vAgeshvarI”  
 That provides the inspiration of the rudra-shaktI – mahAsenasambhoginI.
 The one with pretty curves, who is the queen under the chinchini tree,

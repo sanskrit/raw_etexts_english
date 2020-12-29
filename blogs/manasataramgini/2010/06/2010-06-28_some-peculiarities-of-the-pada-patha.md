@@ -17,7 +17,7 @@ I found discussion on issues my teacher had mentioned.
 
 Tradition has it that the deva indra himself in his revelation grammar
 to the R^iShi-s had specified the sUtra:  
-arthaH padaM |  
+arthaH padam |  
 This sUtra is the foundation on which the padapATha is generated. KVA
 explains that this sUtra implies that a word or a part thereof is
 defined as pada, only if it possesses a sense that is distinctly
@@ -41,7 +41,7 @@ Each of these kinds is again of two types: Single or connected. i.e.
 where two fragments are linked into a single word that bears a single
 udAtta.
 
-tannAma yenAbhidadhAti sattvaM |  
+tannAma yenAbhidadhAti sattvam |  
 Nouns are those words which denote an entity which has been perceived.
 It includes pronouns and is declinable: e.g. agniM, yaj\~nasya etc.
 

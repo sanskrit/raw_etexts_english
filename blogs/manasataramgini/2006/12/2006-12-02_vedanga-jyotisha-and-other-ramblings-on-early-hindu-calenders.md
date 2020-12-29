@@ -102,7 +102,7 @@ The vedic measures of time as per VJ:
 5 years  =  1 yuga\*  
 This progression is an old vedic system we have in the taittirIya
 AraNyaka: “kalA muhUrtAH kAShThAsh chaahotrAsh cha sarvavashaH |
-ardhamAsA mAsA R^itavas saMvatsarash cha kalpantAM ||”
+ardhamAsA mAsA R^itavas saMvatsarash cha kalpantAm ||”
 
 \* Time is kept using a water-clock. The volume of water of weight 50
 pala-s, at room temperature, is one Adhaka (a volume measure).  

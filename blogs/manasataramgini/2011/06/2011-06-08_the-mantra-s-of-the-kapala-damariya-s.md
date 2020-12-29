@@ -15,7 +15,7 @@ Here the 5 syllabled primal mantra for the worship of guhyakAlI in the
 said maNDala of the kApAlika tradition, as taught by kapAlaDAmara is
 specified:  
 vedAdi=OM; kAminI=kaM; pAsha=AM; ichCha=phAM; nirveda=phrIM  
-OM kaM AM phAM phrIM ||
+OM kaM AM phAM phrIm ||
 
 Some of the other kAlI-kula systems, which are also mentioned along side
 the kapAla-DAmarIya-s, are the mauleya-s, the tripuraghna-s, the
@@ -57,7 +57,7 @@ of guhyakAlI:
 tAratrape yoginI cha ramAkAmau cha DakinI |  
 pralayash chApi phetkArI bijAni stairya-bhan\~nji hi ||  
 Thus the visheSha saptAkSharI of the kapAlaDamarIya-s is:  
-OM ChrIM shrIM klIM khphreM hsphreM hskhphreM ||  
+OM ChrIM shrIM klIM khphreM hsphreM hskhphrem ||  
 The sAmAnya saptAkSharI is cryptically encoded.
 
 In addition to the several details on the kApAlika practice of the

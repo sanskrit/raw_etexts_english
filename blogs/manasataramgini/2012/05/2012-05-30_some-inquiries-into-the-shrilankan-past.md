@@ -151,7 +151,7 @@ May you O nArAyaNa kindly accept our offerings of flowers and tAmbula.
 
 vasudevaH parabrahmA tanmUrtiH puruShottama |  
 avyaktash cha nirguNash cha prAshAntAtmA tathaiva cha |  
-tvAm eva shrI mahAviShNus sunAmnA pujayAmy ahaM ||
+tvAm eva shrI mahAviShNus sunAmnA pujayAmy aham ||
 
 OM hraM hrIM hrUM shrI mahAviShNu devAnAm adhideva asmin shubha kShaNe
 bhArata varShe pUrva-bhAgAt A gamat; abhighR^iNa, abhighR^iNa, nivAsaya,

@@ -134,7 +134,7 @@ invokes the multitude of gaNa-s of vinAyaka with a mAlA mantra. Then he
 shows the bhakti mudra.
 
 He performs a digbandha by tying a boundary thread all around the ritual
-area and uttering the mantra: “OM ki ye ye ye huM ||”. To deploy the
+area and uttering the mantra: “OM ki ye ye ye hum ||”. To deploy the
 yantra he rotates the vinAyaka on the heaven plate to coincide with a
 deva on the earth plate. Then he casts and incantation for that
 particular prayoga. This mantra is not entirely decipherable and ends in

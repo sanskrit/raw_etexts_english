@@ -48,12 +48,12 @@ saMbodhanam aghorAyAH siddhiM me dehi choddharet |
 tatash cha dApayet yuktvA svAhAnto munir iShyate ||  
 pa\~nchaviMshaty akSharo .ayaM mantro vA\~nchita siddhikR^it |  
 atha dhyAnaM vyAharAmi yena mantraH prasiddhyati ||  
-susnigdha-kajjala-grAva-tulyaavayava-rochiShaM |  
-viShAla-vartulA-rakta-nayana-tritayAnvitAM ||  
-shveta-nrasthi-kR^itAkalpa-samujjvala-tanuc-ChaviM |  
-digambarAM muktakeshIM nR^i-muNDa-kR^ita-kuNDalAM ||  
-shavopari samArUDhAM daMShTA-vikaTa-darshanAM |  
-dvi-bhujAM mArjanI-shUrpa-hastAM pitR^ivana-sthitAM ||
+susnigdha-kajjala-grAva-tulyaavayava-rochiSham |  
+viShAla-vartulA-rakta-nayana-tritayAnvitAm ||  
+shveta-nrasthi-kR^itAkalpa-samujjvala-tanuc-Chavim |  
+digambarAM muktakeshIM nR^i-muNDa-kR^ita-kuNDalAm ||  
+shavopari samArUDhAM daMShTA-vikaTa-darshanAm |  
+dvi-bhujAM mArjanI-shUrpa-hastAM pitR^ivana-sthitAm ||
 
 The 25-syllabled mantra of aghorA specified here is:  
 hrIM shrIM kroM klIM strIM aiM krauM ChrIM phreM krIM hskhphreM huM

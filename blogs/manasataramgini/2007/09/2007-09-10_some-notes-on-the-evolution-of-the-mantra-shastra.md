@@ -62,7 +62,7 @@ in the meaning of “sentences” and as a result are typically longer than
 a tantric mantra, whose semantically meaningful elements are very short
 (e.g. sudarshana chakra mantra: OM sahasrAra huM phaT; sahasrAra=
 thousand spokes – that is all \! ) or may even be non-existent (e.g. the
-shrIvidyA kAdimata: ka e i la hrIM | ha sa ka ha la hrIM | sa ka la
+shrIvidyA kAdimata: ka e i la hrIm | ha sa ka ha la hrIm | sa ka la
 hrIM||).
 
 2\) The vedic canon is very well preserved with great fidelity and
@@ -97,8 +97,8 @@ worship, even if not as the primary mantras.
 2\) Not all tantric mantra-s are bIja mantra-s but a small subset of
 them are actually anuShTubh-s. One of the potentially oldest and most
 famous of these is the ugra viShNu or mantrarAja anuShTubh (ugraM vIraM
-mahAviShNuM jvalantaM sarvatomukhaM | nR^isimhaM bhIShaNaM bhadraM
-mR^ityu-mR^ityuM namAmyahaM ||)  
+mahAviShNuM jvalantaM sarvatomukham | nR^isimhaM bhIShaNaM bhadraM
+mR^ityu-mR^ityuM namAmyaham ||)  
 A collection of such anuShTubh mantras include: 1) ugra viShNu 2) the
 kArtavIryArjuna naShTa dravya lAbha mantra 3) vana-durga mantra 4) the
 shAstA mantra which identifies him with revanta. 5) The skanda anuShTubh

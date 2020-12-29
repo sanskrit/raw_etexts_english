@@ -2,7 +2,7 @@
 title = "viShNu mahApanjara stotraM"
 
 +++
-namo-namaste govindaM chakraM gR^ihya sudarshanaM |  
+namo-namaste govindaM chakraM gR^ihya sudarshanam |  
 prAchyAM rakShasva mAM viShNo tvAm-ahaM sharaNaM gataH ||
 
 Salutations to govinda, who holds the sudarshaNa discus;  
@@ -35,7 +35,7 @@ Hari with the sword, shield, missiles and hand-combat weapons;
 Salutations to the to rakshas-killer protect I seek you refuge in the
 north-west direction.
 
-pA\~nchajanyaM mahAsha\~NkhaM anudbodhaM cha pa\~NkajaM |  
+pA\~nchajanyaM mahAsha\~NkhaM anudbodhaM cha pa\~Nkajam |  
 pragR^ihya rakSha mAM viShNo AgnyeyAM rakSha sUkara ||
 
 Grasping the great pA\~nchajanya conch and anudbodha lotus;  

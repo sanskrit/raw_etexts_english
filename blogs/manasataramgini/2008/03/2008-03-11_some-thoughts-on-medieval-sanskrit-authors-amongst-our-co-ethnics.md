@@ -23,7 +23,7 @@ For example:
 Forward (describes rAmachandra):  
 taM bhUsUtA-muktiM udAra-hAsaM vande yato bhavya-bhavaM dayA-shrIH |  
 Reverse (describes kR^iShNa):  
-shrIyAdavaM bhavya-bha-toya-devaM saMhAra-dA-muktim utAsubhUtAM ||
+shrIyAdavaM bhavya-bha-toya-devaM saMhAra-dA-muktim utAsubhUtAm ||
 
 Two such works shabdArthachintAmaNi by chidambara kavi of Thanjavur (and
 in it from our same ancestral agrahAra) and yAdava-rAghavIya of

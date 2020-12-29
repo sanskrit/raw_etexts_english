@@ -17,7 +17,9 @@ the daitya. After a prolonged duel he finally struck the daitya with his
 charmed shakti, from which none escape. The shakti shattered the li\~Nga
 into 5 fragments and the pierced the daitya-s broad chest slaying him.
 The pieces of the li\~Nga fell on pR^ithivi and each became a
-maha-li\~Nga in which The god is worshiped.” It was near the first of
+maha-li\~Nga in which The god is worshiped.”
+
+It was near the first of
 these pieces he had constructed a kumAra gR^iha. After having performed
 the kha-chakra-dharaNi he offered the oblations to the bull-headed
 nandikeshvara at the appropriate altar. Then he moved over to the altar

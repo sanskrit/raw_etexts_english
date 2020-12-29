@@ -79,7 +79,7 @@ the rAmAyaNa. The key points of note are: 1) Both the rAkShasa-s and
 Polyphemus are eaters of human meat and are described as eating up their
 victims. This is very apparent in the case of baka. In the case of the
 rAkShasa virAdha, vAlmIki informs us thus:  
-dadarsha giri-shR^i\~NgAbhaM puruShAdaM mahAsvanaM |  
+dadarsha giri-shR^i\~NgAbhaM puruShAdaM mahAsvanam |  
 2\) This leads us to the second point of note. The yavana composers
 describe Polyphemus thus:  
 “For he was a savage marvel, not resembling a bread-eating man but the
@@ -96,18 +96,18 @@ Here, the rAkShasa-s of the rAmAyaNa, encountered by rAma and lakShmaNa
 in the forest, are much more cyclopean in their disposition than those
 encountered by vR^ikodara in the Mbh.  
 For example vAlmIki’s account of virAdha emphasizes it thus:  
-gabhIrAkShaM mahA-vaktraM vikaTaM vikaTodaraM | bIbhatasaM viShaMam
-dIrghaM vikR^itaM ghoradarshanaM ||  
+gabhIrAkShaM mahA-vaktraM vikaTaM vikaTodaram | bIbhatasaM viShaMam
+dIrghaM vikR^itaM ghoradarshanam ||  
 His irregularities and ghastly nature along with the huge eye are
 emphasized (though it is not clear if it was one or two). However, in
 the case of the second rAkShasa, kabandha, encountered later in their
 journey his homology with the cyclopean Polyphemus is very clear:  
-romabhir nishitais tIkShNair mahAgirim ivochChritaM | nIla-megha-nibhaM
-raudraM megha-stanitaniH svanaM ||  
+romabhir nishitais tIkShNair mahAgirim ivochChritam | nIla-megha-nibhaM
+raudraM megha-stanitaniH svanam ||  
 agni-jvAlAni-kAshena lalATa-sthAne dIpyatA | mahApakSheNa pi\~Ngena
 vipulenaayatena cha ||  
 ekenorasi ghoreNa nayanena sudarshinA | mahAdaMShTropapannaM taM
-lelihAnaM mahAmukhaM ||  
+lelihAnaM mahAmukham ||  
 Here again we note that kabandha is compared to a great mountain. But
 more importantly he is said to be cyclopean with single large circular
 eye on his forehead which is endowed with a great eyelid and blazes

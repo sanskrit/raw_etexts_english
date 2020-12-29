@@ -9,7 +9,7 @@ early American scholar pointed the presence of an archaic Indo-European
 maxim that occurs in classical Latin as: “quos deus pedere vult dementat
 prius“. In the mahAbhArata (repeatedly) and the rAmAyaNa a similar
 statement occurs as a gAtha:  
-“yasmai devAH prayachChanti puruShAya parAbhavaM |   
+“yasmai devAH prayachChanti puruShAya parAbhavam |   
 buddhiM tasyA .apakarShanti so vAchInAni pashyati || “  
 For which ever man the deva-s prepare the overthrow, they take away his
 mind, and he sees things inverted.  

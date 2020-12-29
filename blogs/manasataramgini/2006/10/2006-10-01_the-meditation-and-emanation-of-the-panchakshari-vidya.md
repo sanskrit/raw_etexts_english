@@ -38,8 +38,8 @@ rosary
 - After realizing the pa\~nchabrahma emanations he sees the following
 mantra emanate from the pa\~nchAkSharI:  
 
-oM shivaH shivAya namaH shivaH oM | jvAlinyai svAhA |  oM shivAtmaka
+oM shivaH shivAya namaH shivaH om | jvAlinyai svAhA |  oM shivAtmaka
 mahAtejaH sarvaj\~na prabhurAvartaya mahAghora pi\~Ngala namaH |
 shivAj\~nayA hR^idayaM bandha bandha ghUrNaya ghUrNaya chUrNaya chUrNaya
 sUkShma vajradhara vajrapAsha dhanur-vajrAshani-vajra-sharIra mama
-sharIram-anupravishya sarvaduShTAn stambhaya stambhaya hUM ||
+sharIram-anupravishya sarvaduShTAn stambhaya stambhaya hUm ||

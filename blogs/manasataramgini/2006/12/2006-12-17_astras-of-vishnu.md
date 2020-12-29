@@ -8,7 +8,7 @@ time, watched upon by the epitome of the female kind, are put forth as
 deadly 105 astras.
 
 The head of them is the chakra known as sudarshana:  
-dhyAtaM sakR^id bhagavAneka koTyaghaugham haratyaraM |  
+dhyAtaM sakR^id bhagavAneka koTyaghaugham haratyaram |  
 sudarshanasya taddivyaM bhargo devasya dhImahi ||
 
 The pravartaka astras of viShNu:  

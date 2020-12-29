@@ -89,7 +89,7 @@ Thus, in this active form the past participle behaves has though it is
 an adjective for the agent (rAma in this sentence). The same sense is
 also conveyed in the manner of the earlier sentences if the participle
 is used in a passive sense. i.e.  
-rAmeNApi maireyaM pItaM ||  
+rAmeNApi maireyaM pItam ||  
 Here again the past participle takes the form of an adjective for
 maireya, a neuter singular noun in the nominative.
 

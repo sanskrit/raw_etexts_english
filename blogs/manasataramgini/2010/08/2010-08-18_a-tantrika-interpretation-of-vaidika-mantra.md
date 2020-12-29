@@ -119,7 +119,7 @@ the “jane antar ichChanti rudraM” is literally inside the body of the
 man. It is here that the deva-s are stationed. In this regard we might
 examine the opinion of the great tAntrika abhinavagupta (tantrAloka
 12.6-7; let me repeat it here):  
-evaM vishvAdhva saMpUrNaM kAla-vyApAra-chitritaM |  
+evaM vishvAdhva saMpUrNaM kAla-vyApAra-chitritam |  
 desha-kAla-maya-spanda-sadma dehaM vilokayet |  
 tathA vilokyamAno .asau vishvAntar devatA-mayaH |  
 dhyeyaH pUjyashcha tarpyashcha tadAviShTo vimuchyate | (tantrAloka

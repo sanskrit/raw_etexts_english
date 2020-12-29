@@ -4,18 +4,18 @@ title = "kumAra trishatI"
 +++
 OM asya shrI kumAra trishatI mahAmantrasya  
 mArkaNDeya R^iShiH | anuShTup ChandaH | kumAra-ShaNmukho devatA |  
-kumAra iti bIjaM | shAkha iti shaktiH | vishAkha iti kIlakaM | nejameSha
-ityargalaM |  
-kArttikeya iti kavachaM | ShaNmukha iti dhyAnaM |
+kumAra iti bIjam | shAkha iti shaktiH | vishAkha iti kIlakam | nejameSha
+ityargalam |  
+kArttikeya iti kavacham | ShaNmukha iti dhyAnam |
 
-dhyAyet ShaNmukham indu-koTi-sadR^ishaM ratnaprabhA-shobhitaM |  
-bAlArka-dyuti-ShaT-kirITa-vilasat-keyUra-hArAnvitaM ||  
-karNAlambita kuNDala pravilasad-gaNDa-sthalA-shobhitaM |  
-kA\~nchI-ka\~NkaNa-ki\~NkiNI-rava-yutaM shR^i\~NgAra-sArodayaM ||  
-dhyAyedIpsita-siddhidaM bhava-sutaM shrI-dvAdashAkShaM guhaM |  
-kheTaM kukkuTam a\~NkushaM cha varadaM pAshaM dhanush-chakrakaM ||  
-vajraM shaktim asiM cha shUlam abhayaM dorbhir dhR^itaM ShaNmukhaM |  
-devaM chitra-mayUra-vAhana-gataM chitrAmbarAlaMkR^itaM ||
+dhyAyet ShaNmukham indu-koTi-sadR^ishaM ratnaprabhA-shobhitam |  
+bAlArka-dyuti-ShaT-kirITa-vilasat-keyUra-hArAnvitam ||  
+karNAlambita kuNDala pravilasad-gaNDa-sthalA-shobhitam |  
+kA\~nchI-ka\~NkaNa-ki\~NkiNI-rava-yutaM shR^i\~NgAra-sArodayam ||  
+dhyAyedIpsita-siddhidaM bhava-sutaM shrI-dvAdashAkShaM guham |  
+kheTaM kukkuTam a\~NkushaM cha varadaM pAshaM dhanush-chakrakam ||  
+vajraM shaktim asiM cha shUlam abhayaM dorbhir dhR^itaM ShaNmukham |  
+devaM chitra-mayUra-vAhana-gataM chitrAmbarAlaMkR^itam ||
 
 arindamaH kumArash cha guhas skando mahAbalaH | 1/5  
 rudrapriyo mahAbAhur Agneyash-cha maheshvaraH || 1/9  

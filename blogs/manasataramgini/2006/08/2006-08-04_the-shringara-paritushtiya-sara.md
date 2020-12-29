@@ -16,7 +16,7 @@ So here is its un-adulterated summary:
 
 The vaiShNava formulae for women to bewitch men:
 
-brahmadaNDI vachA kuShThaM priya\~Ngavar-nAgakesharaM |   
+brahmadaNDI vachA kuShThaM priya\~Ngavar-nAgakesharam |   
 dadyAt tAmbUla saMyuktaM strINAM mantreNa tadvasham |   
 oM nArAyaNyai svAhA ||   
 tAmbUlaM yasya dIyeta sa vashI syAt sumantrataH |  

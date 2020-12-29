@@ -14,7 +14,7 @@ his devotions might sincerely recite this stuti.
 || mahAdeva virachita vAsudeva stuti ||  
 viShNur-jiShNur-vibhur-devo yaj\~nesho yaj\~napAlakaH |  
 prabha-viShNur-grasiShNushcha lokAtmA lokapAlakaH || 1  
-keshavaH keshihA kalpaH sarva-kAraNa-kAraNaM |  
+keshavaH keshihA kalpaH sarva-kAraNa-kAraNam |  
 karma-kR^id-vAmatAdhIsho vAsudevo puruShTutaH || 2  
 AdikartA varAhashcha mAdhavo madhusUdanaH |  
 nArAyaNo naro haMso viShvakseno hutAshanaH || 3  

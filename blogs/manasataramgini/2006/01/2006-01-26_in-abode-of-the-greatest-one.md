@@ -41,6 +41,6 @@ does no tapas may \[know what I am\].
 tad vA indro vyAhR^itIr Uche tA upA.a.aptA Asanniti |  
 Then indeed did indra proclaim the vyAhR^itis. They sufficed for him.
 
-Indeed the chant of the vyAhR^itis is : bhur-bhuva-svaroM |  
+Indeed the chant of the vyAhR^itis is : bhur-bhuva-svarom |  
 They fully describe the universe. Hence the shruti states: “yó víshvasya
 pratimaánam babhuúva”- the universe is the image of indra.

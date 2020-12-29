@@ -110,7 +110,7 @@ And then mahAdeva said these weighty words to mahAsena: “You must
 watchfully command the seven-fold troops of maruts.”
 
 skandovAcha: saptamaM mAruta skandhaM pAlayiShyAmy-ahaM prabho|
-yad-anyad-api me kAryam deva tad-vada mAchiraM ||  
+yad-anyad-api me kAryam deva tad-vada mAchiram ||  
 skanda replied, “Very well, my lord\! I shall command the seven-fold
 marut troops. Now tell me quickly if there is any other task of the
 devas to be done.”

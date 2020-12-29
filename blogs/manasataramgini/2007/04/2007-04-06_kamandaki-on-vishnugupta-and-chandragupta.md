@@ -5,11 +5,11 @@ title = "kAmandaki on viShNugupta and chandragupta"
 yasyaabhichAra-vajreNa vajra-jvalana-tejasaH |  
 papAta mUlatash-shrImAn suparvA nanda parvataH ||  
 ekAkI mantra-shaktyA yash-shaktyA shakti-dharopamaH |  
-AjahAra nR^i-chandrAya chandraguptAya medinIM ||  
+AjahAra nR^i-chandrAya chandraguptAya medinIm ||  
 nIti-shAstraamR^itaM dhImAn arthashAstra mahodadheH |  
 samuddadhre namas-tasmai viShNuguptAya vedhase ||  
 darshanAt-tasya sudR^isho vidyAnAM pAradR^ishvataH |  
-yat-ki\~nchid-upadekShyAmaH rAja-vidyA-vidAM mataM ||
+yat-ki\~nchid-upadekShyAmaH rAja-vidyA-vidAM matam ||
 
 By the vajra-like abhichAra of the one who shone like the flash of the
 vajra, the opulent mountain of the nanda-s fell root and branch.  

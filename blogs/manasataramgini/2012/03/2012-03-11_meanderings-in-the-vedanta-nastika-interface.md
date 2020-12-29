@@ -294,7 +294,7 @@ deities, following one or the other ritual injunctions, led by their own
 nature.
 
 ye. apy anya devatA bhaktA yajante shraddhayAnvitAH |  
-te .api mAmeva kaunteya yajanty avidhipUrvakaM ||BhG 9.23  
+te .api mAmeva kaunteya yajanty avidhipUrvakam ||BhG 9.23  
 Even the worshipers, who with conviction worship other deities, worship
 only me, O son of kunti, but with the incorrect procedures.
 
@@ -527,9 +527,9 @@ the description of his alternative, which is implied to be state of
 nirvANa is not very different (of course prior to this he caricatures
 the brahman of the Astika-s). In the vulgar pAli:
 
-vi\~n\~nANaM anidassanaM anantaM sabbato pahaM |  
+vi\~n\~nANaM anidassanaM anantaM sabbato paham |  
 ettha Apo cha paThavI tejo vAyo na gAdhati |  
-ettha dIgha\~n cha rassa\~n cha aNuM thUlaM subhAsubhaM |  
+ettha dIgha\~n cha rassa\~n cha aNuM thUlaM subhAsubham |  
 ettha nAma\~n cha rUpa\~n cha asesaM uparujjhati |  
 vi\~n\~nANassa nirodhena etthetaM uparujjhatIti ||  
 idamavocha bhagavA ||

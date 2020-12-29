@@ -38,7 +38,7 @@ conceals within it an immense mantra power. It is not easy to expound it
 but it needs to be “experienced” as a first person experience.  
 This is sensed right in the 2nd verse itself:  
 ekA devI parasarati parA vyomahaMkAra-ghoShA  
-chakraM raudraM gagana-sadR^ishaM rashmi-pu\~njaM samagraM |  
+chakraM raudraM gagana-sadR^ishaM rashmi-pu\~njaM samagram |  
 vyomAkAraakalita-kalanAnanda-bhAsA-prachaNDaM  
 bhAShAtItaM vismaya-viShayaM devI-chakraM namAmi ||  
 The one goddess, the supreme, spreads the sound the ahaMkAra \[\*1\] of

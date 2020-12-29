@@ -67,7 +67,7 @@ notable scholar in the line of gadAdhara was our coethnic annam bhaTTa
 who composed the tarka-saMgraha. It is in examining this capstone
 production of the great atomic tradition that we find a great irony: Did
 most of our paNDita-s fail to comprehend what for us is a guiding
-mahAvAkya: kANAdaM pANinIyaM cha sarva-shAstropakArakaM || Some
+mahAvAkya: kANAdaM pANinIyaM cha sarva-shAstropakArakam || Some
 traditional paNDita coethnics of mine, who are certainly great scholars
 of saMskR^ita, interpret this vAkya as meaning: “Logic and grammar are
 essential aids to understand any shAstra”. But we would interpret it

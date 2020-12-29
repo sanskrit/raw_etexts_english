@@ -163,7 +163,7 @@ eSha tAmrAn vayaH prokto vinatAyAM nibodhata || 6.33 ||
 
 padma purANa (Setzer edition)  
 ShaT-kanyA janayAmAsa tAmrA mArIcha-vIryataH ||1.6.62||  
-shukIM shyenIM cha bhAsIM cha sugR^idhrIM shuchiM |  
+shukIM shyenIM cha bhAsIM cha sugR^idhrIM shuchim |  
 shukI shukAn ulUkAMsh-cha janayAmAsa dharmataH ||1.6.63||  
 shyenI shyenAMsh-cha bhAsI cha kurarAn apya-jIjanat |  
 gR^idhrI gR^idhrAn su-gR^idhrI-cha pArAvata-vihaMgamAn |  

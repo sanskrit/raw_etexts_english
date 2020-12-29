@@ -123,7 +123,7 @@ vigorous; the wealth of bhR^igus, willing, of sagely deeds, agni shining
 forth with light that comes from heaven.
 
 RV 3.005.10 vishvAmitra gAthina  
-ud astambhIt samidhA nAkam R^iShvo.agnír bhavann uttamo rocanAnAM |  
+ud astambhIt samidhA nAkam R^iShvo.agnír bhavann uttamo rocanAnAm |  
 yadI bhR^igubhyaH pari mAtarishvA guhA santaM havyavAhaM samIdhe ||
 
 The mighty agni, the best of the heavenly lights, sustained the heaven

@@ -2,7 +2,7 @@
 title = "Our link to asura varuNa"
 
 +++
-ajIjano hi varuNa svadhAvan-natharvANaM pitaraM deva-bandhuM |  
+ajIjano hi varuNa svadhAvan-natharvANaM pitaraM deva-bandhum |  
 tasmA u rAdhaH kR^iNuhi suprashastaM sakhA no asi paramaM cha bandhuH ||
 AV-S 5.11
 

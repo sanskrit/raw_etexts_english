@@ -64,7 +64,7 @@ oM vAishvAnara ihAvaha lohitAkSha sarvakarmANi sAdhaya svAhA
 
 It is with it the act of sacrifice is achieved. He is then protected by
 the emanations of the 7 bIjas:  
-sryUM | shryUM | ShryUM | vryUM | LR^iryUM |R^iryUM |yryUM ||
+sryUm | shryUm | ShryUm | vryUm | LR^iryUm |R^iryUm |yryUm ||
 
 ``` 
 ```

@@ -11,7 +11,7 @@ namaH shivAya sharvAya sha\~NkarAyArtihariNe ||
 
 grahAdhipatye bhagavAn-abhyaShi\~nchad-divAkaram |  
 vR^ikShANAm oShadhInAM cha somaM brahmA prajApatiH ||  
-apAM cha varuNaM devaM dhanAnAM yakSha-pu\~NgavaM |  
+apAM cha varuNaM devaM dhanAnAM yakSha-pu\~Ngavam |  
 AdityAnAM tathA viShNuM vasUnAM pAvakaM tathA ||  
 prajApatInAM dakShaM cha marutAM shakram-eva cha |  
 daityAnAM dAnavAnAM cha prahlAdaM daitya-pu\~Ngavam ||  

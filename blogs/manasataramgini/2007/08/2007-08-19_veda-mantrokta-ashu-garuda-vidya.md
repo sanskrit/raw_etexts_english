@@ -15,7 +15,7 @@ the veda mantrokta Ashu-garuDA vidyA.
 
 The sAdhaka invokes AshugaruDa into the yantra with the mantra:
 
-OM shrIM svasti nas-trAkShyo ariShTanemyoM ||
+OM shrIM svasti nas-trAkShyo ariShTanemyom ||
 
 Then he performs homa with the following mantras:  
 The R^iShi is sha\~Nkara, the Chandas is triShTubh, the devata is ashu

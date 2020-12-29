@@ -26,7 +26,7 @@ aiM glauM aiM ThaM ThaM ThaM hUM svAhA | AM hrIM kroM saMketa-yoginyai
 namaH ||
 
 asya shrI vArAhI mahAmantrasya dharaNi-varAha R^ishiH – jagatI ChandaH –
-vArAhI devatA| glauM bIjaM | ThaM shaktiH | aiM kIlakaM | vArAhyambA
+vArAhI devatA| glauM bIjam | ThaM shaktiH | aiM kIlakam | vArAhyambA
 prasAda siddhyarthe jape viniyogaH|
 
 karanyAsa:  
@@ -36,13 +36,13 @@ karatalakara pR^iShThAbhyAM namaH ||
 
 a\~NganyAsa:  
 glAM hR^idayAya namaH | glIM shirase svAhA | glUM shikhAyai vaShaT |
-glaiM kavachAya huM | glauM netra-trayAya vauShaT| glaH astrAya phaT ||
+glaiM kavachAya hum | glauM netra-trayAya vauShaT| glaH astrAya phaT ||
 
 evaM nyAsaM kR^itvA dhyAyet:  
 OM raktAMbhoruha-karNikopari-gate shavAsane saMsthitAM
-muNDa-srak-parirAjamAna-hR^idayAM nIlAshma-sad-rochiShAM |  
+muNDa-srak-parirAjamAna-hR^idayAM nIlAshma-sad-rochiShAm |  
 hastAbjair musalaM halaabhaya varAn saMbibhratIM sat-kuchAM vArtAlIm
-aruNaaMbarAM trinayanAM vande varAhAnanAM || evaM dhyAyet
+aruNaaMbarAM trinayanAM vande varAhAnanAm || evaM dhyAyet
 
 tataH maNDUkAdi-para-tatvaanta pITha devatA saMsthApya:  
 aiM glauM maNDUkAya namaH | kAlAgni-rudrAya namaH | mUlaprakR^ityai
@@ -82,7 +82,7 @@ vArAhyai namaH | vArAhi shrI-pA. pU. ta. na. | OM varAhamukhyai namaH |
 varAhamukhi shrI-pA. pU. ta. na. ||  
 iti pUjayet | tataH puShpAnjalim AdAya mUlaM uchchArya:  
 abhIShTasiddhiM dehi me sharaNagata vatsale | bhaktyA samarpaye tubhyaM
-prathamAvarNArchanaM ||  
+prathamAvarNArchanam ||  
 iti paThitvA puShpA\~njaliM cha datvA “pUjitAs-tarpitAH santu” iti vadet
 ||
 
@@ -96,7 +96,7 @@ shrI-pA. pU. ta. na. | OM staMbhinyai namaH| staMbhinI shrI-pA. pU. ta.
 na. ||  
 iti pUjayet | tataH puShpAnjalim AdAya mUlaM uchchArya:  
 abhIShTasiddhiM dehi me sharaNagata vatsale | bhaktyA samarpaye tubhyaM
-dvitIyAvarNArchanaM ||  
+dvitIyAvarNArchanam ||  
 iti paThitvA puShpA\~njaliM cha datvA “pUjitAs-tarpitAH santu” iti vadet
 ||
 
@@ -129,7 +129,7 @@ AryA shrI-pA. pU. ta. na. | OM daMShTriNyai namaH | daMShTriNI shrI-pA.
 pU. ta. na. | OM potriNyai namaH | potriNI shrI-pA. pU. ta. na. ||  
 iti pUjayet | tataH puShpAnjalim AdAya mUlaM uchchArya:  
 abhIShTasiddhiM dehi me sharaNagata vatsale | bhaktyA samarpaye tubhyaM
-tritiyAvarNArchanaM ||  
+tritiyAvarNArchanam ||  
 iti paThitvA puShpA\~njaliM cha datvA “pUjitAs-tarpitAH santu” iti vadet
 ||
 
@@ -137,7 +137,7 @@ atha chaturthAvaraNaM (dvAdashAtmikA):
 pa\~nchamI daNDanAthA cha saMketA samayeshvarI |  
 vArAhI chaiva vArtAlI mahAsenA shivA tathA ||  
 Aj\~nAchakreshvarI devI arighnI chaiva potriNI |  
-divyA samaya-saMketA rakSha mAM sharaNAgataM ||  
+divyA samaya-saMketA rakSha mAM sharaNAgatam ||  
 dvAdashAtmikA shrI-pA. pU. ta. na. ||  
 OM pa\~nchamyai namaH | pa\~nchamI shrI-pA. pU. ta. na. | OM
 daNDanAthAyai namaH |daNDanAthA shrI-pA. pU. ta. na. | OM samayeshvaryai
@@ -150,7 +150,7 @@ shrI-pA. pU. ta. na. | OM potriNyai namaH | potriNI shrI-pA. pU. ta. na.
 | OM samaya-saMketAyai namaH |samaya-saMketA shrI-pA. pU. ta. na. ||  
 iti pUjayet | tataH puShpAnjalim AdAya mUlaM uchchArya:  
 abhIShTasiddhiM dehi me sharaNagata vatsale | bhaktyA samarpaye tubhyaM
-chaturthAvarNArchanaM ||  
+chaturthAvarNArchanam ||  
 iti paThitvA puShpA\~njaliM cha datvA “pUjitAs-tarpitAH santu” iti vadet
 ||
 
@@ -185,7 +185,7 @@ sarva-mantramAlinyai namaH |
 mantramAlinI shrI-pA. pU. ta. na. ||  
 iti pUjayet | tataH puShpAnjalim AdAya mUlaM uchchArya:  
 abhIShTasiddhiM dehi me sharaNagata vatsale | bhaktyA samarpaye tubhyaM
-pa\~nchamAvarNArchanaM ||  
+pa\~nchamAvarNArchanam ||  
 iti paThitvA puShpA\~njaliM cha datvA “pUjitAs-tarpitAH santu” iti vadet
 ||
 
@@ -198,7 +198,7 @@ ta. na. | aiM glauM shAkinyai namaH | shAkinI shrI pa. pu. ta. na. | aiM
 glauM hAkinyai namaH | hAkinI shrI pa. pu. ta. na. ||  
 iti pUjayet | tataH puShpAnjalim AdAya mUlaM uchchArya:  
 abhIShTasiddhiM dehi me sharaNagata vatsale | bhaktyA samarpaye tubhyaM
-ShaShThAvarNArchanaM ||  
+ShaShThAvarNArchanam ||  
 iti paThitvA puShpA\~njaliM cha datvA “pUjitAs-tarpitAH santu” iti vadet
 ||
 
@@ -210,7 +210,7 @@ siMhavarAya devIvAhanAya | siMhavara shrI pa. pu. ta. na. | mahAvegAya
 garuDAya devIvAhanAya nama | garuDa shrI pa. pu. ta. Na |  
 iti pUjayet | tataH puShpAnjalim AdAya mUlaM uchchArya:  
 abhIShTasiddhiM dehi me sharaNagata vatsale | bhaktyA samarpaye tubhyaM
-saptamAvarNArchanaM ||  
+saptamAvarNArchanam ||  
 iti paThitvA puShpA\~njaliM cha datvA “pUjitAs-tarpitAH santu” iti vadet
 ||
 
@@ -241,7 +241,7 @@ aiM glauM kShauM achala-bhairava kshetrapAlAya namaH | achala-bhairava
 shrI pa. pu. ta. Na ||  
 iti pUjayet | tataH puShpAnjalim AdAya mUlaM uchchArya:  
 abhIShTasiddhiM dehi me sharaNagata vatsale | bhaktyA samarpaye tubhyaM
-aShTamAvarNArchanaM ||  
+aShTamAvarNArchanam ||  
 iti paThitvA puShpA\~njaliM cha datvA “pUjitAs-tarpitAH santu” iti vadet
 ||
 
@@ -252,7 +252,7 @@ OM yAM yoginIbhyo namaH | yoginInAM shrI pa. pu. ta. Na ||
 OM gaM gaNapatye namaH | shrI pa. pu. ta. Na ||  
 iti pUjayet | tataH puShpAnjalim AdAya mUlaM uchchArya:  
 abhIShTasiddhiM dehi me sharaNagata vatsale | bhaktyA samarpaye tubhyaM
-navamAvarNArchanaM ||  
+navamAvarNArchanam ||  
 iti paThitvA puShpA\~njaliM cha datvA “pUjitAs-tarpitAH santu” iti vadet
 ||
 

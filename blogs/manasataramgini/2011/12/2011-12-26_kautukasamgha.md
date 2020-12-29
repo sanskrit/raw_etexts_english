@@ -41,7 +41,7 @@ the updrava of the dasyu-s.”
 
 S asked us of our ontology for dharma. We course had to cite kaNAda:
 dharma-visheSha-prasUtAd dravya-guNa-karma-sAmAnya-visheSha-samavAyAnAM
-padArthAnAM sAdharmya-vaidharmAbhyAM tattvaj\~nAnAn niHshreyasaM ||
+padArthAnAM sAdharmya-vaidharmAbhyAM tattvaj\~nAnAn niHshreyasam ||
 
 S pointed to a translation of this by Matilal: “The ‘supreme good’ (i.e.
 niHshreyasa) is achieved through the knowledge of reality resulting from

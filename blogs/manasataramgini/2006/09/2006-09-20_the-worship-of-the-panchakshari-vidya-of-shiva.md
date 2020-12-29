@@ -80,7 +80,7 @@ namaH (South) | OM vAmadevAya namaH (North) |OM sadyojAtAya namaH (West)
 One then offers the flowers with the formula:  
 
 OM abhIShTa-siddhiM me dehi sharaNAgata-vatsala| bhaktyA samarpaye
-tubhyaM prathAmAvarNArchanaM ||
+tubhyaM prathAmAvarNArchanam ||
 
 Then one worships the second AvarNa comprising of the kalA goddesses in
 the zone outside the hexagram but inside its circumcircle holding
@@ -92,7 +92,7 @@ shAntyai namaH | OM shAntyatItyai namaH ||
 Then one offers the flowers with the formula:  
 
 OM abhIShTa-siddhiM me dehi sharaNAgata-vatsala| bhaktyA samarpaye
-tubhyaM dvitIyAvarNArchanaM ||
+tubhyaM dvitIyAvarNArchanam ||
 
 Then one worships the emanations of shiva termed the vighnesha-s in the
 middle of the eight-petals of the aShTa-dala-chakra starting from East
@@ -105,7 +105,7 @@ shrIkaNThAya namaH | OM shikhaNDine namaH |
 Then one offers the flowers with the formula:  
 
 OM abhIShTa-siddhiM me dehi sharaNAgata-vatsala| bhaktyA samarpaye
-tubhyaM tritIyAvarNArchanaM ||
+tubhyaM tritIyAvarNArchanam ||
 
 Then at the tips of the eight petals of the aShTadalachakra one worships
 the agents of shiva holding flowers from East clockwise:  
@@ -117,7 +117,7 @@ bhR^i\~NgAritye namaH |OM skandAya namaH ||
 Then one offers the flowers with the formula:  
 
 OM abhIShTa-siddhiM me dehi sharaNAgata-vatsala| bhaktyA samarpaye
-tubhyaM chaturthAvarNArchanaM ||
+tubhyaM chaturthAvarNArchanam ||
 
 Then in the directions one worships the gods:  
 
@@ -129,7 +129,7 @@ yaM vAyave namaH (NW)| OM kuM kuberAya namaH (N)| OM haM IshAnAya namaH
 Then one offers the flowers with the formula:  
 
 OM abhIShTa-siddhiM me dehi sharaNAgata-vatsala| bhaktyA samarpaye
-tubhyaM pa\~NchamAvarNArchanaM ||
+tubhyaM pa\~NchamAvarNArchanam ||
 
 Then one worships the weapons of the gods (the thunderbolt, spear,
 cudgel, sword, lasso, hook-spike, mace, trident)  
@@ -142,7 +142,7 @@ namaH (NE) |
 Then one offers the flowers with the formula:  
 
 OM abhIShTa-siddhiM me dehi sharaNAgata-vatsala| bhaktyA samarpaye
-tubhyaM ShaShTAvarNArchanaM ||
+tubhyaM ShaShTAvarNArchanam ||
 
 Then one offers dIpaM, dUpaM, gandhaM, puShpaM and naivedyaM of honey
 and pAyasa. Then one performs japa of the mantra:  

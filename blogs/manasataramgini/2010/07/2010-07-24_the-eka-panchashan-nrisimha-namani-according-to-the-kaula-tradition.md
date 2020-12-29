@@ -53,7 +53,7 @@ astrair-visbhUShitAn dIrghAn bhujAn ShoDasha bibhrataH ||
 sharaM chakraM gadAM khaDgaM pAsham a\~Nkusham eva cha |  
 vajraM vidAraNaM chApi dakShiNena kramAd api ||  
 dhanuH sha\~NkhaM cha padmaM cha kheTakaM mushalaM tathA |  
-parashuM paTTishaM chApi vidAraNam ataH paraM ||  
+parashuM paTTishaM chApi vidAraNam ataH param ||  
 vAmena dhArayantas te ratnAkalpa-virAjitAH |  
 vAma-ja\~NghAsan-niviShTa-lakShmIkAs siddhi-dAyinaH ||
 

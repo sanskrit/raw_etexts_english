@@ -169,11 +169,11 @@ dharma sUtra in describing the mode of existence of the avApachamAnaka
 (the ascetic who does not cook), which appears to include the vaiShNava
 vaikhAnasa ascetic:  
 kR^ichChrAM vR^ittim asaMhAryAM sAmAnyAM mR^igapakShibhiH |  
-tad aharjana saMbhArAM kaShAyakaTukAshrayAM |  
-parigR^ihya shubhAM vR^ittim etAM durjana varjitAM |  
+tad aharjana saMbhArAM kaShAyakaTukAshrayAm |  
+parigR^ihya shubhAM vR^ittim etAM durjana varjitAm |  
 vana-vAsam upAshritya brAhmaNo nAvasIdati ||  
 mR^igaiH saha parispandaH saMvAsastebhir eva cha |  
-tair eva sadR^ishi vR^ittiH pratyaShaM svargalakShaNaM ||  
+tair eva sadR^ishi vR^ittiH pratyaShaM svargalakShaNam ||  
 pratyakShaM svargalakShaNaM iti || BauSu 3.3.21-22
 
 These citations by baudhAyana appear to be from ancient lost texts which

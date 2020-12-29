@@ -28,7 +28,7 @@ gaja-charma-prAvR^ita-sharIre mAMsadigdhe lelihAnogra-jihve
 mahA-rAkShasi raudra-daMShTrA-karAle bhImATTahAse sphurad-vidyut-prabhe
 chala chala OM \[no OM in devI purANa\]|  
 chakora-netre hili hili OM \[no OM in devI purANa\]  
-lalana-jihve OM |  
+lalana-jihve Om |  
 bhIM bhru-kuTI-mukhi hu\~NkAra-bhaya-trAsani
 kapAla-mAlAveShTita-jaTA-mukuTa shashA\~NkadhAriNi aTTahAse kili kili oM
 |  

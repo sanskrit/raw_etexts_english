@@ -42,7 +42,7 @@ with two hands holding a trishUla and a skull with a yantra inscribed on
 it, with cobra garlands and surrounded by howling dogs.  
 
 baTuka bhairava mantra is used during this meditation:  
-hrIM baTukAya ApaduddhArana kuru kuru baTukAya hrIM ||  
+hrIM baTukAya ApaduddhArana kuru kuru baTukAya hrIm ||  
 
 homa may next be offered to baTuka bhairava with this mantra.  
 Then the index finger and thumb and joined to show the baTuka mudra and
@@ -56,7 +56,7 @@ Then the yoginIs are invoked into the biMba-s with the mantra: yAM
 
 yoginibhyo namaH ||  
 
-Then they are worshipped with the formula aiM hrIM shrIM ||  
+Then they are worshipped with the formula aiM hrIM shrIm ||  
 
 Then the yoginI mudra is shown: The middle finger, ring finger and
 thumbs are bent so that their tips meet to form a circle.  
@@ -69,11 +69,11 @@ shubha-bali-vidhinA pAntu vIrendra -vandyAH | yAM yoginIbhyaH svAhA ||*
 
 Then one meditates on paramshiva using the dhyAna:  
 
-nAnA-kalpAbhirAmApaghanam-abhi-matArtha-pradaM suprasannaM |  
+nAnA-kalpAbhirAmApaghanam-abhi-matArtha-pradaM suprasannam |  
 padaMasthaM pa\~nchavaktraM sphaTika-maNi-nibhaM pArvatIshaM namAmI ||
 
 The he meditates on the mantra: aiM hrIM shrIM hasakhaphreM hasauH || or
-hauM ||
+haum ||
 
 This is then the worship of sadAshiva and his clan is done.
 
@@ -100,8 +100,8 @@ One then praises shiva saying:
 vishva-grAsAya vilasat-kAla-kUTa-viShAshine |  
 tat-kala\~NkA\~Nkita-grIva-nIlakaNThAya te namaH |
 
-daMShTrA-karAlaM divi nR^ityamAnaM hutAsha-vaktraM jvalanArka-rUpaM |  
-sahasra-pAdAkShi-shirobhi yuktaM bhavantam-ekaM praNamAmi rudraM ||  
+daMShTrA-karAlaM divi nR^ityamAnaM hutAsha-vaktraM jvalanArka-rUpam |  
+sahasra-pAdAkShi-shirobhi yuktaM bhavantam-ekaM praNamAmi rudram ||  
 namo.astu somAya su-madhyamAya namo.astu devAya hiraNya-bAho |  
 namo.agni-chandrArka-vilochanAya namo.ambikAyAH pataye mR^iDAya ||
 

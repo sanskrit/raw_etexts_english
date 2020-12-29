@@ -23,7 +23,7 @@ shanno devI…abhi sravantu naH ||
 
 kubjikA parameShThinI vAgdevI brahma-saMshritA |  
 yayaiva sasR^ije ghoraM tayaiva shAntir astu naH ||  
-idaM yat parameShThinaM mano vAM brahma-saMshritaM |  
+idaM yat parameShThinaM mano vAM brahma-saMshritam |  
 yenaiva sasR^ije ghoraM tenaiva shAntir astu naH ||  
 imAni yAni pa\~nchendriyAni manaH ShaShThAni me hR^idi brahmaNa
 saMshR^itAni |  
@@ -36,14 +36,14 @@ Then he goes to the karNamoTa tree, the kula vR^ikSha, and recites the
 mAdhavI vidyA to worship kubjikA there in:  
 madhuman mUlaM madhumad agramAsAM madhuman madhyaM vIrudhAM babhUva |  
 madhumat parNaM madhumat puShpamAsAm madhoH saMbhaktA amR^itaM ghR^itam
-annaM duhutAM kubjikAtmakaM ||
+annaM duhutAM kubjikAtmakam ||
 
 Then he focuses on his breath and invokes viShNu there in and kubjikA
 emerging as the power of his mAyA:  
 ajapA vaiShNavI mAyA japyena sAjitA parA |  
 kubjikA brahmavidyA sA yA vedair upagIyate ||  
-anAkhyeyam idaM guhyaM yogI-kesha-samaM nibhaM |  
-haMsasya gativistAraM bhukti-mukti-phala-pradaM ||
+anAkhyeyam idaM guhyaM yogI-kesha-samaM nibham |  
+haMsasya gativistAraM bhukti-mukti-phala-pradam ||
 
 Then he perceives his oneness with indra, viShNu, prajApati and the
 whole universe and utters:  
@@ -52,9 +52,9 @@ tubhyaM yaj\~no vijAyate tubhyaM juhvati juhvatas taved viShNo bahudhA
 vIryANi ||  
 Then the preceptor gives him the two kUTa-s and decodes them for him:  
 prAneshaH sugrIvaH saMvartako vaikuNTho dharA tridhAtur vahnir vyApako
-mahAvidyeshvarI saMyutaM | This is the kUTa of kubjIshAna.  
+mahAvidyeshvarI saMyutam | This is the kUTa of kubjIshAna.  
 sahajaH paramAtmA nR^isiMhaM kAlarudraM khaDgI sha\~NkaraM vahnivarNaM
-chAMuNDA tUrya-svara-bhUShitaM nAda-bindu-yutaM | This is the kUTa of
+chAMuNDA tUrya-svara-bhUShitaM nAda-bindu-yutam | This is the kUTa of
 mahApratya\~NgirA.
 
 Then he gives him the mantra weapon with which he battles abhichAra:  

@@ -152,7 +152,7 @@ sahasrAkShAya durbhedAya pAshupatAstrAya huM phaT ||
 similarly for a\~Nga-nyAsa.  
 The dhyana for aghora in this mantra runs thus:  
 vAmAdibhish cha sahite manonmanyApy adhiShThite |  
-shivAsanetmamUrtistham akShayAkAra rUpiNaM ||  
+shivAsanetmamUrtistham akShayAkAra rUpiNam ||  
 aShTa-triMshat-kalA-dehaM tri-tattva-sahitaM shivam |  
 aShTAdasha-bhujaM devaM gaja-charmottarIyakam ||  
 siMhAjinAMbara-dharam-aghoraM parameshvaram |  
@@ -306,7 +306,7 @@ aghora in a li\~Nga, sthaNDila or in oneself:
 bANa-li\~Nge .athavA vahnau dakShiNAmUrtim AshritaH LiP 2.50.14cd ;  
 aghorArchAvidhAnaM cha li\~NgevA sthANDile .api vA LiP 2.26.26 cd \~  
 sthaNDile vA.api li\~Nge vA pashchAd yajanam Arabhet | SST 1.9;  
-li\~Nge vA sthaNDile vA.api sarva-kAma-phalapradaM |SST 1.37 ab
+li\~Nge vA sthaNDile vA.api sarva-kAma-phalapradam |SST 1.37 ab
 
 kAlAgni-koTi saMkAshaM svadeham api bhAvayet LiP 2.50.19cd \~  
 mAheshvaraM vapuH kR^itvA jaTA-mukuTa-bhUShaNaM… svasharIra tataH pUjya
@@ -334,7 +334,7 @@ pralayaM yAnti te sarve maitrIm Ayanti mAnavAH || SST 1.35
 Here the deployment of the svachChanda mantra is said to destroy evil
 beings like DAkinI-s, graha-s and vetAla-s.  
 Again we have:  
-shivasyaiva hi nirmAlyaM sahasreNAbhimantritaM |  
+shivasyaiva hi nirmAlyaM sahasreNAbhimantritam |  
 dhUpanaM tena rakShAMsi bhUta-vetAla-sugrahAH |  
 vinAyakAs tu Dakinyo jvaraapasmara saMbhavAH |  
 nashyanti sakalA rogAH satyaM satyaM vadAmyahaM||SST 4.11  
@@ -389,7 +389,7 @@ several other rites including some with bones of a vulture or
 preparation of guggulu pills and using them in a rite for attaining the
 siddhi-s. It should however be noted that an element of non-duality is
 hinted in the statement:  
-sarvaavasthA-gato nityaM yaH pUjayati sha\~NkaraM |  
+sarvaavasthA-gato nityaM yaH pUjayati sha\~Nkaram |  
 apavitraH pavitro vA svachChandas tena kIrtitaH || SST 1.14  
 The one who irrespective of purity or lack there of in all states
 worships rudra is said to be the spontaneous worshiper.
@@ -412,7 +412,7 @@ the SVBT and the LiP:
 kapAla-mAlAbharaNaM chatur-bhujaM vaktrekShaNaM shUladhArAbhayapradaM
 |  
 trilochanaM khaNDa-shashA\~NkadhAriNaM dhyAyeddharaM yaH sa labheta
-IpsitaM ||
+Ipsitam ||
 
 \-The invocation of \[a\]ghoreshvarI is performed in a hR^illekha
 manifesting in the middle of aghora meditated upon in the heart. She is

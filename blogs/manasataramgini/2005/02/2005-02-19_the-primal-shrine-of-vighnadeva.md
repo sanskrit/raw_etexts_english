@@ -8,9 +8,9 @@ tIvrA, chAlini, nandA, bhogadA, kAmarUpiNi, ugrA, tejovatI, satyA and is
 embraced by vighnanAshini who is seated beside him.
 
 oM rAyaspoShasya dadhitA nidhido ratnadhAtumAn rakShohaNo valagahano
-vakratuNDAya huM ||  
+vakratuNDAya hum ||  
 medholkAya svAhA ||  
-oM hrIM grIM hrIM ||
+oM hrIM grIM hrIm ||
 
 Having worshipped the awful one-tusked son of rudra by the Punya river,
 the Kashi of the gANapatyas, we saw him in the embrace of the delightful

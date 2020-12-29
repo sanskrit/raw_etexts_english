@@ -18,4 +18,4 @@ sha\~Nkara. 5) The saubhAgya bhAskara of bhAskararAya.
 His biography is clear in stating that shiva-datta shukla, the
 madhyandina brAhmaNa from Surat conferred on him pUrNAbhisheka-  
 shivadatta shukla-charaNaasAdita pUrNAbhiSheka-sAmrAjyaH |  
-gurjara-deshe vidadhe jarjara-dhairyaM sa vallabhAchAryaM ||
+gurjara-deshe vidadhe jarjara-dhairyaM sa vallabhAchAryam ||

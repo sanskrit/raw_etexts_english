@@ -78,11 +78,11 @@ vrata provided in the parishiShTa 40 of the atharvan literature. Their
 links to the atharva tradition is also established by the use of a
 particular rudra mantra that is unique to Atharvavedins (though not
 recorded in any extant saMhitA):  
-rudraM kruddhAshanimukhaM devAnAM IshvaraM paraM |  
+rudraM kruddhAshanimukhaM devAnAM IshvaraM param |  
 shveta-pi\~NgalaM devesham prapadye sharaNAgataH ||
 
 yasya yuktA rathe siMhA vyAghrAsh cha viShamAnanAH |  
-tam ahaM pauNDarIkAkShaM devaM AvAhaye shivaM ||
+tam ahaM pauNDarIkAkShaM devaM AvAhaye shivam ||
 
 The pAshupata-s also deploy the atharvedic dvaya rudra formulae for the
 ghee offerings.

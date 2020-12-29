@@ -36,7 +36,7 @@ reply mahAdeva says:
 shR^iNu loka hitArthaM me tantram etad asheShataH |  
 shlokair dvAdasha sAhasrair munInAM kathitaM purA ||  
 saMskShepAt tava vakShyAmi skanda-sadbhAvaM uttamam |  
-adhyAya-aShTa dashopetaM skanda-sadbhAva saMyutaM || 1.3-1.4 (the
+adhyAya-aShTa dashopetaM skanda-sadbhAva saMyutam || 1.3-1.4 (the
 manuscript from which I entered this has no numbers of shloka-s; *a very
 likely emendation of the unmetrical elements in above has been kindly
 suggested by the learned scholar Somadeva Vasudeva:  
@@ -107,11 +107,11 @@ one provided by the shAradA tilaka tantra (also known to
 chennas-nArAyaNa nambuthiri-pAD):
 
 athaH paraM pravakShyAmi mantrANAM prasaraM punaH |  
-saptamasya chaturthaM tu tR^itIyAdyam athaH paraM ||  
+saptamasya chaturthaM tu tR^itIyAdyam athaH param ||  
 pa\~nchame prathamaM bhUyaH kevalaM svara-varjitaM|  
-punaH ShaShThe chaturthamsyAt pa\~nchama svara-saMyutaM ||  
+punaH ShaShThe chaturthamsyAt pa\~nchama svara-saMyutam ||  
 chaturthaM saptame bhUyaH svareNaikAdashena tu |  
-pa\~nchamAntaM punar dadyAt ShaShTAntam sa-visargakaM ||  
+pa\~nchamAntaM punar dadyAt ShaShTAntam sa-visargakam ||  
 ayaM ShaDakSharo mantraH sAkShAt skandaH sanAtanaH | (SS 3.7-10ab)
 
 [![](https://i2.wp.com/farm4.static.flickr.com/3058/2708727044_31f5463ee7_o.jpg)](http://farm4.static.flickr.com/3058/2708727044_31f5463ee7_o.jpg)

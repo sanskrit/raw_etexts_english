@@ -110,7 +110,7 @@ But going right to the bottom of it, i.e., the idea of time itself,
 things are rather different from Spengler or what our own compatriots
 think it to be.In the taittirIya AraNyaka we have the mantra:  
 kalA muhUrtAH kAShThAsh chaahotrAsh cha sarvavashaH |  
-ardhamAsA mAsA R^itavas saMvatsarash cha kalpantAM ||
+ardhamAsA mAsA R^itavas saMvatsarash cha kalpantAm ||
 
 Hindu tradition tells us that:  
 nimeShaiH pa\~ncha-dashabhiH kASThA triMshat tu tAH kalAH |  

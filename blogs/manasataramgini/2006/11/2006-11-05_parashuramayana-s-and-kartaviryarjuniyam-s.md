@@ -9,7 +9,9 @@ enjoys the status of devakI-putra or his name sake of the ikShvAku clan.
 There are no major mantra-s devoted to him, and even in the mahAbhArata
 where he makes a prominent appearance, only next the main protagonist
 avatAra-s, the devakI-putra and baladeva, he is only once called an
-avatAra. Yet, starting from the mahAbhArata he has an increasingly
+avatAra. 
+
+Yet, starting from the mahAbhArata he has an increasingly
 prominent place in the Hindu mythosphere of the paurANic realm appearing
 all over over the place in addition to his main encounter with the
 haihaya king kArtavIryArjuna and his priest, datta the atri. He is seen

@@ -54,7 +54,7 @@ Then he joins his palms and does a namaskAra to the fire.
 Then he begins making oblations of ghee with the following mantra-s by
 uttering OM vainateyAya svAhA || idam na mama || (at the end of each
 R^ik and before the svAhAkAra mantra he utters the formula OM svasti nas
-tArkShyoM ||) :
+tArkShyom ||) :
 
 suparNas tvA garutmAn viSha prathamam Avayat |  
 nAmImado nArUrupa utAsmA abhavaH pituH ||(AVS 4.6.3)

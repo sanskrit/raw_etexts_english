@@ -31,8 +31,8 @@ spectrum we will look at some paradoxes in the existence of the former
 two.  
 GNR had not entirely lost his link to the foundations of his
 intellectual tradition; he cited the following verse:  
-purANam ity eva na sAdhu sarvaM |  
-na chApi kAvyaM navam ity avidyaM ||  
+purANam ity eva na sAdhu sarvam |  
+na chApi kAvyaM navam ity avidyam ||  
 The words of the poet often regarded as the greatest of the classical
 period. Our man took the lesson from the verse to be that of a struggle
 against established order and vindication of new ideas – a common

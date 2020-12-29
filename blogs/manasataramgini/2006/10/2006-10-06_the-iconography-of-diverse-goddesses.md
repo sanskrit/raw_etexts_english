@@ -21,25 +21,25 @@ are long while some are laconic. Some the less frequently encountered
 ones are:
 
 lopAmudrA:  
-pAshA\~Nkushau sharaM chApaM dhArayantIM trilochanAM | sUryAbhAM
-chandra-chUDAM cha lopAmudrAM bhaje shivAM || sindhUra-varNaH
+pAshA\~Nkushau sharaM chApaM dhArayantIM trilochanAm | sUryAbhAM
+chandra-chUDAM cha lopAmudrAM bhaje shivAm || sindhUra-varNaH
 
 shItalA (a terrifying female agent of The god, who is the deification of
 variola. As described here on the chaNDikA hill near my regions of youth
 I had noted an icon of the deity depicted riding a donkey, naked and
 bearing a pot of cooling drugs and a winnowing fan and black in
 color):  
-dhyAyechcha shItalAM devIM rAsabhasthAM digambarAM |
-mArjanI-kalashopetAM shUrpAlaMkr^ita-mastakAM || (kR^iShNavarNaH).
+dhyAyechcha shItalAM devIM rAsabhasthAM digambarAm |
+mArjanI-kalashopetAM shUrpAlaMkr^ita-mastakAm || (kR^iShNavarNaH).
 
 tulasI (It also provides the imagery for the demoness tulasI, who was
 conquered by viShNu, there by allowing rudra to slay her husband, the
 demon sha\~NkachUDa. But here she is caled a devI, worshiped as a deity
 of the basil plant):  
-dhyAyechcha tulasIM devIM shyAmAM kamala-lochanAM | prasannAM
-padmakahlAra-varAbhaya-chatur-bhujAM ||1||  
-kirITa-hAra-keyUra-kuNDalAdi-vibhUShitAM | dhavalAM shuka-saMyuktAM
-padmAsana-niSheduShIM ||2|| (shyAma varNaH)
+dhyAyechcha tulasIM devIM shyAmAM kamala-lochanAm | prasannAM
+padmakahlAra-varAbhaya-chatur-bhujAm ||1||  
+kirITa-hAra-keyUra-kuNDalAdi-vibhUShitAm | dhavalAM shuka-saMyuktAM
+padmAsana-niSheduShIm ||2|| (shyAma varNaH)
 
 tiraskariNI (A simple but beautiful image is given of our
 favor-bestowing goddess tiraskariNI, with whose hallowed mantra the

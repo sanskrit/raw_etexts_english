@@ -104,7 +104,7 @@ khecharIvidyA in its classical form is an offshoot of the procedure
 proclaimed in the foundational kaula texts. It is here that the
 important mantra of the melaka is taught, which is supposed to be
 combined with the actual yogic practice of khecharI:  
-hrIM bhaM saM ShaM \[paM\] phaM saM kShaM ||  
+hrIM bhaM saM ShaM \[paM\] phaM saM kSham ||  
 As per the khecharIvidyA the practice of the mantra is a must for
 attaining khecharI siddhI – this point is repeatedly mentioned and the
 mantroddhAra is given before the yogic procedures. The mantra itself of

@@ -33,11 +33,11 @@ the mantra with the oblations are made during the first upAkarma and in
 subsequent recitation during brahmayaj\~na. The source for this mantra
 is the atharvavedIya MNU:  
 * OM bhUH | OM bhuvaH | OM svaH | OM mahaH | OM janaH | OM tapaH | OM
-satyaM | OM tat-savitur vareNyaM bhargo devasya dhImahI | dhiyo yo naH
-prachodayAt | omApo-jyotI-raso.amR^itaM brahma bhUr-bhuvas-svaroM | OM
+satyam | OM tat-savitur vareNyaM bhargo devasya dhImahI | dhiyo yo naH
+prachodayAt | omApo-jyotI-raso.amR^itaM brahma bhUr-bhuvas-svarom | OM
 bhUr-bhuvaH-suvar-mahar-janas-tapaH satyaM madhu kSharanti | tad-brahma
 tad-Apa Apo jyotI-raso. amR^itaM brahma bhUr-bhuvas-svaroM| OM
-tad-brahma | OM tad-vAyuH | OM tad-AtmA | OM tat-sarvaM | OM tat-puroM
+tad-brahma | OM tad-vAyuH | OM tad-AtmA | OM tat-sarvam | OM tat-puroM
 namaH ||*
 
 The AV version of the upaniShad also contains the nArAyaNa sUkta which

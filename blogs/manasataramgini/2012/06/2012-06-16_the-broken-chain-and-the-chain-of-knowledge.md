@@ -123,7 +123,7 @@ placed in a framework or graph of relationships – this act we term the
 quest for saMbandha-s. [That is why we had said earlier that our guiding
 vAkya in this regard
 is](https://manasataramgini.wordpress.com/2012/01/24/the-irony-of-vasudeva-sarvabhauma/)
-“kANAdaM pANinIyaM cha sarva-shAstropakArakaM ||” Thus, we see the first
+“kANAdaM pANinIyaM cha sarva-shAstropakArakam ||” Thus, we see the first
 act of generation of knowledge as being the generation of ontologies
 from the information that we have accrued. One of the great pioneers in
 this was the kashyapa kaNada; hence, the kANadam. Logic is subordinate

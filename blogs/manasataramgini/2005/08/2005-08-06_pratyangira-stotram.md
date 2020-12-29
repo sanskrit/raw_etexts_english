@@ -11,7 +11,7 @@ raudrI pratyangire devI mamashatrUn-uchChaTaya ||
 ugrasvarupe ugreshI ugrAstra khaDgadhAriNI |   
 ugrakR^ityA pratyangire ugrAbhichAryAn-nAshaya ||   
 bhadrakAli ugra-atharva sukta khaDgadhAriNI |   
-bhArgava-mantra hR^idayA rakSha mAM sharaNAgataM ||   
+bhArgava-mantra hR^idayA rakSha mAM sharaNAgatam ||   
 mahAkR^itye ugravidyA mahAstra khaDgadhAriNI |   
 mahAkR^ityA pratyangire mahAkShudrAn vinAshaya ||
 

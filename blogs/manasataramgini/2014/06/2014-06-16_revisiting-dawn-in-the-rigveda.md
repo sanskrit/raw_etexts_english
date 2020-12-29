@@ -12,7 +12,7 @@ indicating that they are sung at the junction between night and the
 daybreak, i.e., the dawn. That they are linked with the dawn presided by
 the goddess uShas is clear from one set of these songs known as the
 uShANi, which are thus deployed by the sAmavedic singers:  
-hiM |  
+him |  
 prastAva: prAti vo darshyAyato3 vA |  
 udgItha: o3 chChantI duhitA divo3 po3 mahi vR^iNute chakShuShA tamaH |  
 pratihAra: jyo3tIH kR^iNoti |  
@@ -21,7 +21,7 @@ nidhana: As ||
 
 prastAva: jyo3to3 vA |  
 udgItha: o3 No3ti sUnarI udusriyAs sR^ijate3 sUriyAs sachA |  
-pratihAra: udyan nAkShatrAM |  
+pratihAra: udyan nAkShatrAm |  
 upadrava: i LA o3rchA yi vA do3 vA hA vu vA |  
 nidhana: As |
 

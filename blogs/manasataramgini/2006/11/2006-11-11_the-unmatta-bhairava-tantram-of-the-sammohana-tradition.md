@@ -2,6 +2,8 @@
 title = "The unmatta bhairava tantraM of the saMmohana tradition"
 
 +++
+
+## mada-sAgara, tumburu and the 4 devI-s
 dAnavendra realized that if he could get hold of the amR^ita of the
 deva-s he would be victorious. For this he went over to the circle of
 mAtR^ikA-s headed by chakrakarAlinI and invoked them to fight on his
@@ -22,6 +24,7 @@ They played melodiously on their vINas and captivated the mAtR^ikA-s and
 held them spell bound. When they were thus de-activated, the deva-s and
 tumburu attacked dAnavendra and killed him.
 
+## Transmission
 tumburu and his 4 sister goddess revealed the mahAsammohana saMhitA to
 maheshAna, from him to sammohana (after whom the tantra is now known),
 from him to ananta, from him to trimUrti, from him to dundubhi, from him
@@ -52,8 +55,8 @@ was taken up by nAstIka-s, and then the AstIkas re-obtained this from
 them with minor modifications as their version of bhUta-DAmara.
 
 AstIka bhUta-dAMaraM and unmattabhairavaM open with the lines:  
-vyoma-vaktraM mahAkAyaM pralalAgni-samaprabhaM |  
-abhedya-bhedyakaM staumi bhUtaDAmara-nAmakaM ||
+vyoma-vaktraM mahAkAyaM pralayAgni-samaprabham |  
+abhedya-bhedyakaM staumi bhUtaDAmara-nAmakam ||
 
 Technically the face of rudra specifically being referred to here is
 ishAna (vyoma being the Urdhva mukha), which in the usual system refers
@@ -61,8 +64,8 @@ to face from which the siddhAnta tantras arose. But in the context of
 this tantra unmatta-bhairava is taken to be the emanation of
 ishAna-shiva:
 
-trailokyAdhipati raudraM sura-siddha-namaskR^itaM |  
-unmatta-bhairavaM natvA pR^ichchaty-unmatta-bhairavI ||
+trailokyAdhipatiM raudraM sura-siddha-namaskR^itam |  
+unmatta-bhairavaM natvA pR^ichchaty unmatta-bhairavI ||
 
 The first four mantras appear to belong to the vajra-series that were
 deployed in the vajra-maNDala tantras used in certain shiva temples:  

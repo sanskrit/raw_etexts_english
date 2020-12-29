@@ -67,7 +67,7 @@ The activation of the bhairava power with the brahman of sAvitrI:
 
 oM hrAM hrIM haMsaH mArtANDa bhairavAya prakAsha shakti sahitAya svAhA |
   
-oM tat-savitur vareNyaM | bhargo devasya dhimahI | dhiyo yo naH
+oM tat-savitur vareNyam | bhargo devasya dhimahI | dhiyo yo naH
 prachodayAt || svAhA   
 X 3 arghyaM is offered
 

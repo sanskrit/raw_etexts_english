@@ -10,7 +10,7 @@ yatra tvaM deva tumburo parvateShu virohati ||
 kR^iShyAm anyo virohati girer anyo.adhipakShasi |  
 trAtArau shashvatAM imAv A gantAM shigru-tumburU ||  
 yAvat parNaM yAvat phalaM yAvanto .adhyaR^ikSharAH  
-tAvantaH shuShmAs tumburos tad u te viShadUShaNaM ||  
+tAvantaH shuShmAs tumburos tad u te viShadUShaNam ||  
 rudro jalAShabheShaja imAM rogam ashIsamaH |  
 ye avAjijvalan iti ||  
 asthAd dyaur asthAt pR^ithivy asthAd vishvam idaM jagat |  

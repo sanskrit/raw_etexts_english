@@ -109,15 +109,15 @@ rathItamaM rathInAM vA rAjAnAM shatapatiM patim ||
 
 \~RV 10.123.6:  
 nAke suparNam upatyAnta havA revanto abhya chakShata tvA |  
-hiraNyAkShaM varuNasya dUtaM yamasya bhuraNyuM yonau shakunaM ||
+hiraNyAkShaM varuNasya dUtaM yamasya bhuraNyuM yonau shakunam ||
 
 \~RV 5.64.1:  
 varuNaM bodhipAdam R^ichAm indraM havAmahe |  
-pari vrajech cha bAhvor jagandhaso svarNavam naraM ||
+pari vrajech cha bAhvor jagandhaso svarNavam naram ||
 
 \~AV-paippalAda 20.5.8 \[\~RV khila 3.22.4.1\]:  
 AdityaM devaM savitA manyoH kavi kratum archAmi |  
-satyasavaM ratnadhAm abhi priyam atitaram kaviM ||
+satyasavaM ratnadhAm abhi priyam atitaram kavim ||
 
 \~AV-paippalAda 20.5.9 \[\~RV khila 3.22.4.2\]:  
 UrdhvA yasyA matibhA Adidyutat savImani |  

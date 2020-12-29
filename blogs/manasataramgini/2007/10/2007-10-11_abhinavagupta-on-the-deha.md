@@ -7,7 +7,7 @@ an exchange with a compatriot on the reason why matysendra is such a
 colossus in ancient thought.
 
 he says:  
-evaM vishvAdhva saMpUrNaM kAla-vyApAra-chitritaM |  
+evaM vishvAdhva saMpUrNaM kAla-vyApAra-chitritam |  
 desha-kAla-maya-spanda-sadma dehaM vilokayet |  
 tathA vilokyamAno .asau vishvAntardevatA-mayaH |  
 dhyeyaH pUjyashcha tarpyashcha tadAviShTo vimuchyate | (tantrAloka

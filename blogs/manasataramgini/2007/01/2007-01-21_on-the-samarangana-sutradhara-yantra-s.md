@@ -26,7 +26,7 @@ the SS states the following SS 31.95-98:
 
 laghu-dAru-mayaM mahAviha\~NgaM dR^iDha-sushliShTa-tanuM vidhAya tasya
 |  
-udare rasa-yantraM-AdhIta jvalAdhAram-adho.asya chAgni-pUrNaM ||  
+udare rasa-yantraM-AdhIta jvalAdhAram-adho.asya chAgni-pUrNam ||  
 tatrArUDhaH pUruShas-tasya pakSha-dvandvoch-chAla-proj-jhitenAnilena |  
 supta-svAntaH pAradasyAsya shaktyA chitraM kurvan-nambare yAti dUraM
 ||  
@@ -109,8 +109,8 @@ power an aircraft.
 Finally, one yantra mentioned by king bhoja caught my attention — the
 sUryAdi-graha-gati-pradarshana-paraM gola-bhramaNaM.  
 The king says (SS 31.61-62): golash-cha sUchi-vihitaH sUryAdInAM
-pradakShiNaM |  
-pari-bhrAmyaty-ahorAtraM grahANAM darshayan gatiM |  
+pradakShiNam |  
+pari-bhrAmyaty-ahorAtraM grahANAM darshayan gatim |  
 \[Images of\] The sun and the planets are made to revolve without any
 connection and these revolutions show the occurrence of day and night
 and the motions of planets. Thus, bhoja-deva describes a yantra that

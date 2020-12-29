@@ -28,7 +28,9 @@ son. Thereafter in the clash between the demons and devas viShNu in the
 form of the terrible varAha and nR^isiMha slew hirANyAkSha and his
 brother hiraNyakashipu. There upon prahlAda the mighty son of
 hiraNyakashipu took over the lordship of the daityas and made fun of
-andhaka as the blind and ugly one. Then andhaka performed a terrible
+andhaka as the blind and ugly one.
+
+Then andhaka performed a terrible
 rite where he offered all his flesh and blood to brahmA. Finally, when
 he was to offer himself as an oblation he received a boon of
 invincibility from brahmA, except under the condition where he will
@@ -44,7 +46,9 @@ enjoyed time in magic mansions erected for him by the asura maya. He
 attacked leading Brahmins with fallacious arguments and derided vedic
 learning. He went around with his other daitya friends like the anindra
 prahlAda destroying vedic rites. He built himself a large city in the
-mandhAra mountains and settled there with his dAnavas and daityas. His
+mandhAra mountains and settled there with his dAnavas and daityas. 
+
+His
 three ministers duryodhana, vighasa and hasti, saw the most beautiful
 woman in the company of a terrible being. He had serpents all around his
 body. He had a necklace of skulls and had a digit of the moon on his
@@ -76,7 +80,9 @@ with a terrible daitya army and pounced on vIraka. They fought a
 terrible combat for 500 days on end, using swords, shakti-s, paTTishis,
 and maces, shooting numerous arrows like ardhachandrabha-s,
 kUrma-mukhas, vatsadantas, hurling axes and iron balls. vIraka
-overwhelmed by the asura’s weapons was buried within them. umA at that
+overwhelmed by the asura’s weapons was buried within them. 
+
+umA at that
 point called the other gods to her aid. To aid her, their shaktis went
 forth to fight the daityas: the frightful goddesses like brAhmI with a
 rod, vaiShNavI with her usual weapons, indrANI of a thousand eyes,
@@ -84,7 +90,7 @@ vAruNI, kauberI of hideous form and 100s of other goddesses came for to
 fight along with them. vIraka in the meantime regained consciousness and
 along with the goddess attacked the asuras. gaurI too joined the fight
 with the goddess and just then they saw shiva arrive from his vrata. The
-goddesses delighted at his fought fiercely and attacked the frontline
+goddesses delighted at this fought fiercely and attacked the frontline
 division of the asuras who were commanded by gila. The asura routed by
 the goddesses retreated in disarray. pArvatI then sent the goddesses
 back and honored vIraka with hundreds of gifts.

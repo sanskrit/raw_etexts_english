@@ -116,7 +116,7 @@ second hemistich of the mantra. The same concept emerges again in the
 spell laid to counter the maker of kR^ityA-s as per the atharvanic
 tradition. Here the foe crunched by the jaws or the fangs of the year
 (AV-P 1.63.2):  
-vyAtte parameShThino brahmaNApIpadAma taM |  
+vyAtte parameShThino brahmaNApIpadAma tam |  
 saMvatsarasya daMShTrAbhyAM hetis taM sam adhAd abhi ||  
 The missile crunches him like the jaws/fangs of the year close upon him.
 

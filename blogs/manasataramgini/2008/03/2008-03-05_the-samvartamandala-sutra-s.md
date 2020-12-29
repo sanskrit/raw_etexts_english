@@ -12,7 +12,7 @@ pUrNagiri and vighna at kAmarUpa.
 \~\*\~\*\~
 
 tava svAdhiShThAne hutavaham adhiShThAya nirataM  
-tam IDe saMvartaM janani mahatIM tAM cha samayAM |  
+tam IDe saMvartaM janani mahatIM tAM cha samayAm |  
 yadAloke lokAn dahati mahati krodha kalite  
 dayArdrA yaddR^iShTiH shishiram upachAraM rachayati || saundaryalahari
 39

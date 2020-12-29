@@ -219,10 +219,10 @@ anuShTubh)
 PSu, TA, kauNDinya bhAShya:  
 *tatpuruShAya vidmahe mahAdevAya dhImahi | tanno rudraH prachodayAt  
 * PSu, TA:  
-*IshAnaH sarva-vidyAnAm IshvaraH sarvabhUtAnAM |  
+*IshAnaH sarva-vidyAnAm IshvaraH sarvabhUtAnAm |  
 brahmAdhipatir brahmaNo.adhipatir brahmA shivo me astu sadAshivOm ||**  
 * kauNDinya bhAShya:  
-*IshAnaH sarva-vidyAnAm IshvaraH sarvabhUtAnAM |  
+*IshAnaH sarva-vidyAnAm IshvaraH sarvabhUtAnAm |  
 brahmaNo.adhipatir brahmA shivo me astu sadAshivaH ||* ** (Regular
 anuShTubh)
 

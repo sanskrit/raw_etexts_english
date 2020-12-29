@@ -137,22 +137,22 @@ verses. If he is accompanied by his dUtI he invokes the goddess into her
 and also visualizes the goddess in her.
 
 brAhmI:  
-raktAM rakta-sumAlya-lepa-vasanAM bhUShAdibhir-bhUShitAM |  
-shuddhAM smera-chatur-mukhIM shubhataragrIvAM dvinetrAMchalAM ||  
-devIM daNDa-kamaNDaluM-sruva-sruchAkSha-srag-karAMbhoruhAM |  
-brAhmIM bhakta-janeShTadAna-niratAM vande suhaMsAsanAM ||
+raktAM rakta-sumAlya-lepa-vasanAM bhUShAdibhir-bhUShitAm |  
+shuddhAM smera-chatur-mukhIM shubhataragrIvAM dvinetrAMchalAm ||  
+devIM daNDa-kamaNDaluM-sruva-sruchAkSha-srag-karAMbhoruhAm |  
+brAhmIM bhakta-janeShTadAna-niratAM vande suhaMsAsanAm ||
 
 mAheshvarI:  
 shvetAbhAM shveta-vastrAM kuchabharanamitAM shveta-mAlyAbhirAmAm |  
 tredhA shUlaM kapAlaM kanaka-maNi-japAsrag-vahantIM karAbjaiH ||  
-vande .anaDvAha-rUDhAM smita-vishada-chatur-vaktra-padmAM trinetrAM |  
-mAheshIM snighdha-keshIM maNimaya-valayAM manyu-yuktAM prasannAM ||
+vande .anaDvAha-rUDhAM smita-vishada-chatur-vaktra-padmAM trinetrAm |  
+mAheshIM snighdha-keshIM maNimaya-valayAM manyu-yuktAM prasannAm ||
 
 kaumArI:  
-pItAbhAM shakti-khaDgAbhaya-vara-subhujAM pItamAlyAM shukADhyAM |  
-devIM barhAdhirUDhAM himakara-shakalA baddha-nIlAlakAntAM ||  
-nAnA-ratnair virachitair anukhachita-mahAbhUShaNair bhUShitA\~NgAM |  
-dhyAyet sarvArtha-siddhyai praNata-bhayaharAM divyahArAM kumArIM ||
+pItAbhAM shakti-khaDgAbhaya-vara-subhujAM pItamAlyAM shukADhyAm |  
+devIM barhAdhirUDhAM himakara-shakalA baddha-nIlAlakAntAm ||  
+nAnA-ratnair virachitair anukhachita-mahAbhUShaNair bhUShitA\~NgAm |  
+dhyAyet sarvArtha-siddhyai praNata-bhayaharAM divyahArAM kumArIm ||
 
 vaiShNavI:  
 marakata-maNi-nIlA nIlavAsovasAnA |  
@@ -161,20 +161,20 @@ chapala-garuDAruDhA sarvato vaktra-padmA |
 dishatu sumaghadeyI jivanI vaiShNavI naH ||
 
 vArAhI:  
-vajropalasamAM nIlAM prasannAM mahiShAsanAM |  
+vajropalasamAM nIlAM prasannAM mahiShAsanAm |  
 sarva-dukhaharAM ghorAM stabdhalomAnanAM numaH ||
 
 indrANI:  
-hemAbhAM varamAlikAbhirachitAM hemAM prasannAnanAM |  
-nAnA-ratna-vibhUShitAM nava-navAM nAthAM harIshAdinAM ||  
-mAyAtIta-parAkramAM mada-gaja-skandhe-nibaddhAsanAM |  
-vande nAga-vinAshinIM vanakaraM vajrAyudhodyat-karAM ||
+hemAbhAM varamAlikAbhirachitAM hemAM prasannAnanAm |  
+nAnA-ratna-vibhUShitAM nava-navAM nAthAM harIshAdinAm ||  
+mAyAtIta-parAkramAM mada-gaja-skandhe-nibaddhAsanAm |  
+vande nAga-vinAshinIM vanakaraM vajrAyudhodyat-karAm ||
 
 chAmuNDA:  
 dhyAyet pretAsanasthAM musala-shara-gadA-khaDga-kuntAsy-abhItIH |  
 gotrAdAnaM sharAsaM-parigha-jaladhikaM-pAsha-kheTaM-varaM cha ||  
-hastAMbhojair vahantIM shashi-ravI-nayanAM akSha-varNAtma-rUpAM |  
-chAmuNDAM muNDamAlAM sakala-ripuharAM shyAmalAM komalA\~NgIM ||
+hastAMbhojair vahantIM shashi-ravI-nayanAM akSha-varNAtma-rUpAm |  
+chAmuNDAM muNDamAlAM sakala-ripuharAM shyAmalAM komalA\~NgIm ||
 
 For vIrabhadra he uses the following mantra (he invokes vIrabhadra in
 his own forehead):  
@@ -239,7 +239,7 @@ tanno rudraH prachodayAt ||
 
 IshAnas sarva-vidyAnAm Ishvaras sarva-bhUtAnAm brahmA.adhipatir
 brahmaNo.adhipatir brahmA |  
-shivo me astu sadAshivOM ||
+shivo me astu sadAshivOm ||
 
 kad rudrAya prachetase mIDhushTamAya tavyase |  
 vo chema shantamaM hR^ide |  
@@ -254,8 +254,8 @@ rudraH sharavyayA tAn amitrAn no vi vidhyatu || AV-P 1.20.3
 rudra yat te guhyaM nAma yat te addhAtayo viduH |  
 shivA sharavyA yA tava tayA no mR^iDa jIvase || AV-P 1.95.2
 
-stuhi shrutaM gartasadaM janAnAM rAjAnaM bhImam upahatnum ugraM |  
-mR^iDa jaritre rudra ha stavAno anyam asut te ni vapantu senyaM || AV-P
+stuhi shrutaM gartasadaM janAnAM rAjAnaM bhImam upahatnum ugram |  
+mR^iDa jaritre rudra ha stavAno anyam asut te ni vapantu senyam || AV-P
 18.60.10
 
 His dUtI, if present, performs the yoga of the pleasing of rudra
@@ -267,13 +267,13 @@ shuddha-sphaTika-saMkAShaM triNetraM pa\~ncha-vaktrakam ||
 ga\~NgAdharaM daSha-bhujaM sarvAbharaNa-bhUshitam |  
 nIlagrIvaM shashA\~NkA\~NkaM nAga-yaj\~nopavItinam ||  
 vyAghra-charmottariyaM cha vareNyam abhayapradam |  
-kamaNDvalv-aksha-sUtrANi dhAriNaM shUlapANinaM ||  
-jvalantaM pi\~Ngala-jaTaM shikhAmadhyoda-dhAriNaM |  
+kamaNDvalv-aksha-sUtrANi dhAriNaM shUlapANinam ||  
+jvalantaM pi\~Ngala-jaTaM shikhAmadhyoda-dhAriNam |  
 vR^iSha-skandha samArUDhaM shAshvataM vishvatomukhaM||  
-amR^itenAplutaM shAntaM divya-bhoga-samanvitaM |  
-dig-devatA-samAyuktaM surAsura-namaskR^itaM ||  
-nityaM cha paramANuM vai dhruvam-aksharam-avyayaM |  
-sarva-vyApinam-IshAnaM rudraM vai vishva-rUpiNaM ||
+amR^itenAplutaM shAntaM divya-bhoga-samanvitam |  
+dig-devatA-samAyuktaM surAsura-namaskR^itam ||  
+nityaM cha paramANuM vai dhruvam-aksharam-avyayam |  
+sarva-vyApinam-IshAnaM rudraM vai vishva-rUpiNam ||
 
 This is followed by vaishvadeva-tarpaNaM:  
 agniM tarpayAmi | vAyuM tarpayAmi | somaM tarpayAmi | indraM tarpayAmi |

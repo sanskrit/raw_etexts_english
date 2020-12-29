@@ -39,7 +39,7 @@ A jabhruH ketum Ayavo bhR^igavANaM vishe-vishe ||RV 4.7.4
 Here, apnavAna and his bhR^igu-s are described as having initiated the
 fire rite that spread throughout the peoples.  
 vAmadeva gautama also states:  
-eved indrAya vR^iShabhAya vR^iShNe brahmAkarma bhR^igavo na rathaM |  
+eved indrAya vR^iShabhAya vR^iShNe brahmAkarma bhR^igavo na ratham |  
 nU chid yathA naH sakhyA viyoShad asan na ugro .avitA tanUpAH || RV
 4.16.20  
 Here, vAmadeva says that he fashions a hymn for indra even as the

@@ -16,6 +16,7 @@ this. In any case here are some notes on the topic.
 Many tangled lines of our investigations over the years led to this body
 of unique sanskR^it literature that we came to term the kAshyapa
 tradition.  
+
 1\) The tracing the post-atharvaNic development of medicinal practices
 has lead most students to the obvious successors in the form of the
 great saMhitA-s of charaka and sushruta, which represent early high

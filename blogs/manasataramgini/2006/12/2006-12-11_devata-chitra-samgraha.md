@@ -15,6 +15,7 @@ bhArgava mArkaNDeya gives a lecture on drawing and painting and
 specifically provides the principal lakShaNas that should depicted in
 paintings of devatAs. Most of the drawings in this collection are pretty
 exquisite and depict the following deities:  
+
 1\) vinAyaka: 1 headed, 4 armed in bhadrAsana with chakra and 3-looped
 pAsha.  
 2\) sUrya  
@@ -37,22 +38,17 @@ Nepal.
 12\) gopIjana-vallabha  
 13\) nAstIka siddhArtha: shown like a body-builder flanked by devas and
 brAhmaNas on either side.  
-14\) kalki: riding on a horse and slaughtering bearded turuShka-s (or
-Meccan demons) and mlechCha-s in combat.  
+14\) kalki: riding on a horse and slaughtering bearded turuShka-s (or Meccan demons) and mlechCha-s in combat.  
 15\) hayagrIva  
 16\) shiva: 5-headed with mR^iga and paraShu  
 17\) sharabha: shown like a griffin from Western Asia.  
-18\) kArtavIryArjuna: shown in a ratha with many arms and many bows
-discharging arrows.  
+18\) kArtavIryArjuna: shown in a ratha with many arms and many bows discharging arrows.  
 19\) kAli  
-20\) tArA: shown just like a female shiva standing on shiva with a
-cleaver and lotus.  
-21\) ShoDashi: in the chintAmaNi gR^iha with the pa\~ncha preta
-ma\~ncha  
+20\) tArA: shown just like a female shiva standing on shiva with a cleaver and lotus.  
+21\) ShoDashi: in the chintAmaNi gR^iha with the pa\~ncha preta ma\~ncha  
 22\) bhuvaneshvarI  
 23\) bhairavI  
-24\) ChinnamastA: sky-clad, dancing on rati and kAma with her 2 DAkinis
-drinking the blood streams coming from her head.  
+24\) ChinnamastA: sky-clad, dancing on rati and kAma with her 2 DAkinis drinking the blood streams coming from her head.  
 25\) dhUmAvatI: on a chariot drawn by a large crow holding a winnowing
 basket and crow banner. Looking awful.  
 26\) bagalamukhi  

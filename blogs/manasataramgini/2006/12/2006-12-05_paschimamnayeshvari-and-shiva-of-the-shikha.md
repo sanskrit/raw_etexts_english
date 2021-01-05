@@ -7,7 +7,7 @@ who was his kulA\~NganA without whom none of these mysteries would be
 known to us mortals.  
 
 “siddhamAtA vibhuH shabdarAshIti yonyArNavI vAgvishuddhAsi vAgeshvarI”  
-That provides the inspiration of the rudra-shaktI – mahAsenasambhoginI.
+That provides the inspiration of the rudra-shaktI – mahAsena-sambhoginI.
 The one with pretty curves, who is the queen under the chinchini tree,
 manifests simultaneously in all her glory in the great oDDiyAna,
 jAlandhara, pUrNagiri and kAmarUpa. The very name kubjIshAna causes the
@@ -18,7 +18,8 @@ glorious navAtman like a thunder cloud, the wielder of the pinAka bow.
 On his lap, like streak of brilliant lightning illuminating that roaring
 thunder cloud is our goddess, paschimAmnAyeshvarI, the queen of the
 samayavidyA. The one who can recite the daNDakaM recalls the words “tvaM
-navAtmAnadevasya chotsa\~NgayAnAshritA“.  
+navAtmAnadevasya chotsa\~NgayAnAshritA“. 
+ 
 From the 32 syllabled samayavidyA’s shikhA mantra emanates svachChanda,
 who is the manifestation of the tantric aghora mantra. One who has
 stilled his mind for the expansion of the mighty samayavidyA sees a

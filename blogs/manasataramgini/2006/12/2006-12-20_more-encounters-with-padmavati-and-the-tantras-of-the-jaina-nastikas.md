@@ -21,10 +21,11 @@ he claimed was installed by a jinendra named pradyumna-sUri. We noted
 that on the pedestal of the image of the devI was inscribed a peculiar
 mantra:  
 OM hrIM namo.astu bhagavati padmAvatI ehi ehi saM vauShaT ||  
+
 There was something about the icon — one could feel the great goddess
 with many arms, holding many weapons inspire a sense of awe. I had the
 same feeling as what I felt only in the presence of another old idol of
-the great mantrinI, who is sangIta-yoginI, at some other point in time.
+the great mantriNI, who is sangIta-yoginI, at some other point in time.
 I kept this in mind and was to learn more of it some months later.
 
 Both me and the muni had enjoyed the excellent hospitality of a

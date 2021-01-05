@@ -11,7 +11,9 @@ which was known to bhR^igu and ushanA kAvya. It is considered the crest
 jewel of the mighty vidyA-s of ushAna kAvya himself – indeed it is
 called the AsurI mAyA. Only the brAhmaNa of high caliber who masters the
 deep rahasyas of the ritual practice can set himself on the path of
-becoming the master of the viliste\~NgA prayoga. He having changed his
+becoming the master of the viliste\~NgA prayoga. 
+
+He having changed his
 yaj\~nopavIta and performed his saMdhya as per the rules of the atharvan
 lore moves in the southern direction. He performs the appropriate rites
 of the paippalAda lore to the lord of the gods, with the sUktaM that a

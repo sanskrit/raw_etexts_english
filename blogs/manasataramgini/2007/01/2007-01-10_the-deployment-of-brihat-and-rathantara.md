@@ -22,4 +22,3 @@ pursuit of the foe. The jaiminIya declares “bR^ihad-rathantarayor
 evainaM mukhe .apidadhAti | yaM dveShTi taM purA saMvatsarAt prANo
 jahAti |”
 
->

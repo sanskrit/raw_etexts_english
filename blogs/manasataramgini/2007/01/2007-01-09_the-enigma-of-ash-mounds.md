@@ -25,12 +25,16 @@ prehistoric sites:
 Indian prehistory shows a sharp archaeo-cultural divide in the
 peninsula, geographically corresponding to the boundary between the
 heart land of the Maharatta country and the Telugu and Kanada zones
-below. To the north of this divide the sub-continent is marked by a
+below. 
+
+To the north of this divide the sub-continent is marked by a
 transition from the neolithic to the chalcolithic, though the neolithic
 elements persist even after the emergence of the chalcolithic in some
 places like Gujarat. Finally, the chalcolithic gives way to the Iron
 age, though the exact temporal point of this transition is being
-obfuscated by the agendas of the Witzelite indologists. To the south of
+obfuscated by the agendas of the Witzelite indologists. 
+
+To the south of
 the divide there is instead an extended Stone age and a sudden
 transition to the Iron age in the first half of the first millennium
 before the common era. This transition to the Iron age is associated
@@ -74,7 +78,9 @@ the base of the granite hills. There is clear evidence for butchering of
 cattle using stone tools in these settlements in the vicinity. The
 community probably consisted of pastoralists tending cattle, primarily
 associated with the cattle dung, and farmers in the vicinity associated
-with the cultivation of pulses and grains. Kosambi and his successors
+with the cultivation of pulses and grains. 
+
+Kosambi and his successors
 thought that the dung burning was a means of sanitation. But we believe
 he was wrong and Allchin was correct in interpreting the mounds as a
 dung-burning ritual. Modern pastoralists and associated farmers value

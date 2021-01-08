@@ -19,8 +19,10 @@ draw the curtains in his cart and he closed his eyes so that even by
 error he might not cast his eyes on the shrine of rudra. When he was a
 safe from kAlahasti distance he opened his eyes but to his horror he had
 turned blind. Shocked he uttered the verse:  
-sarvAtmatA te shrutiShu prasiddhA satyaiva sA kAlakarIsha nUnam |  
-apashyatastvA madhunA samastaM yato na me dR^iShTipathaM prayAti ||
+sarvAtmatA te shrutiShu prasiddhA  
+satyaiva sA kAlakarIsha nUnam |  
+apashyatastvA madhunA samastaM  
+yato na me dR^iShTipathaM prayAti ||
 
 He was constantly tormented by bhUta-s and agents of sharabha. He
 recalled the great vaiShNava tantric, the master of pA\~ncharAtra
@@ -78,7 +80,9 @@ varAha, who held in his hand a great sword dripping with the blood of
 hiraNyAkSha, with an upavIta of 3 intertwined snakes. Then from the
 snout of varAha emerged that awful emanation of kumAra, krodha-rAja
 kumAra, with 6 heads, who is irresistible. With these mantra-s he had
-attained the height of tantric perfection, he was called a deshika. He
+attained the height of tantric perfection, he was called a deshika. 
+
+He
 was the master of the kaumAra lore, an impregnable mantra-vAdin. After
 his marriage he was proceeding with his wife to kumAra parvata when he
 was attacked by the turuShka-s on the way who tried to seize his wife.

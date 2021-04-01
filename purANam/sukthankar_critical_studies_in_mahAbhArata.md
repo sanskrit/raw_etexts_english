@@ -4,9 +4,7 @@ title = "Critical studies in mahAbhArata"
 
 
 
-## Intro
-
-
+## Cover
 
 
 V. S. SUKTHANKAR

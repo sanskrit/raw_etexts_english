@@ -8,7 +8,7 @@ A repository containing important raw texts (some non-proofread). Processed (eg:
 ## Usage
 - Clone this repo: `git clone https://github.com/sanskrit/raw_etexts_english.git --recursive --shallow-submodules`
 - Initialize submodules if needed: `git submodule update --init --recursive --depth 1`
-- Update submodules if needed: `git submodule foreach "(git checkout master; git pull --depth 1)&"`
+- Update submodules if needed: `git submodule foreach "(git checkout $(git config -f $toplevel/.gitmodules submodule.$name.branch || echo master); git pull)&"`
 
 ## Contribution
 - Fork this repo and send pull requests.

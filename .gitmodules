@@ -1,0 +1,8 @@
+[submodule "hindutvam/hindutva.github.io"]
+	path = hindutvam/hindutva.github.io
+	url = https://github.com/hindutva/hindutva.github.io.git
+	branch = content
+[submodule "mixed/vvasuki/notes"]
+	path = mixed/vvasuki/notes
+	url = https://github.com/vvasuki/notes.git
+	branch = content

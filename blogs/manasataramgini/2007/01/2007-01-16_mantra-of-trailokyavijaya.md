@@ -5,7 +5,7 @@ title = "mantra of trailokyavijayA"
 The mantra of the goddess trailokyavijayA is provided by the
 yuddha-jayArNava tantraM. A somewhat corrupt version of this tantra is
 incorporated into the agni purANa. Stand-alone manuscripts of the YJA
-also exist, though they have not been edited or published. In addition
+walso exist, though they have not been edited or published. In addition
 to the version of the agni-purANa I had access to a hand-written
 transcript on paper. The Dutch explorers have recovered a corrupt
 version of the same in their collection of Hindu mantras known as

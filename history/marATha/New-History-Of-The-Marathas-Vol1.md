@@ -2634,7 +2634,7 @@ mander-killed at Sinhgad 191. tures Raigad 322; besieges Jinji UDEPURI BEGAM, Au
 331 ; captures Jinji 340. 
 लाल बहादुर शास्त्री राष्ट्रीय प्रशासन अकादमी, पुस्तकालय Lal Bahadur Shastri National Academy of Administration, Library 
 म सरी MUSSOORIE. 115735 
-यह पुस्तक निम्नांकित तारीख तक वापिस करनी है। This book is to be returned on the date last stamped. 
+यह पुस्तक निन्नांकित तारीख तक वापिस करनी है। This book is to be returned on the date last stamped. 
 दिनांक Date 
 उधारकर्ता की संख्या Borrower's 
 No. 
